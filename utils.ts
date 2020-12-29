@@ -42,7 +42,7 @@ export function getCurrentRank(): number {
   } else if (dailyHours.morning.includes(currentHours)) {
     return 0.8;
   } else if (dailyHours.noon.includes(currentHours)) {
-    return 1.5;
+    return 1.2;
   }
 
   return 1;
