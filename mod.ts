@@ -29,10 +29,23 @@ async function fetchData(): Promise<HotWord[]> {
 }
 
 /**
- * 处理源数据，包括排序、切割
+ * 处理源数据，包括去重、排序、切割
  * @param words 源数据
  */
-function handleRawData(words: HotWord[]) {
+function handleRawData(rawWords: HotWord[]) {
+  const wordTextSet: Set<string> = new Set();
+  const words: HotWord[] = [];
+
+  /** 去重 */
+  rawWords
+    .sort((a, b) => b.count - a.count)
+    .forEach((t) => {
+      if (!wordTextSet.has(t.text)) {
+        wordTextSet.add(t.text);
+        words.push(t);
+      }
+    });
+
   return words
     .sort((a, b) => b.count - a.count)
     .splice(0, 50);
