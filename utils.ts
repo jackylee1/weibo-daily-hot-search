@@ -3,7 +3,7 @@ import { HotWord } from "./types.ts";
 
 function genDataListString(words: HotWord[]): string {
   return words
-    .map((x) => `1. [${x.text}](https://s.weibo.com/${x.url})`)
+    .map((x) => `1. [${x.text}](https://s.weibo.com${x.url})`)
     .join("\n");
 }
 
