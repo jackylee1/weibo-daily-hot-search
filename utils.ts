@@ -1,4 +1,5 @@
 import { format } from "std/datetime/mod.ts";
+import { dailyHours } from "./consts.ts";
 import { HotWord } from "./types.ts";
 
 function genDataListString(words: HotWord[]): string {
@@ -31,12 +32,17 @@ ${genDataListString(words)}
 `;
 }
 
-// 根据当前小时，获取权值
+// 根据当前的小时数，获取热度权值
 export function getCurrentRank(): number {
   const currentHours = (new Date()).getHours();
 
-  if (currentHours >= 2 && currentHours <= 6) {
+  // NOTE: 数值待完善
+  if (dailyHours.night.includes(currentHours)) {
+    return 0.5;
+  } else if (dailyHours.morning.includes(currentHours)) {
     return 0.8;
+  } else if (dailyHours.noon.includes(currentHours)) {
+    return 1.5;
   }
 
   return 1;
