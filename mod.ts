@@ -47,7 +47,7 @@ function handleRawData(rawWords: HotWord[]) {
     });
 
   return words
-    .filter((w)=>!w.text.includes('肖战'))
+    .filter((w) => !w.text.includes("肖战"))
     .sort((a, b) => b.count - a.count)
     .splice(0, 50);
 }
