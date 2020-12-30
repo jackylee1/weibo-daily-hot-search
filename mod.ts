@@ -29,7 +29,7 @@ async function fetchData(): Promise<HotWord[]> {
 }
 
 /**
- * 处理源数据，包括去重、排序、切割
+ * 处理源数据，包括去重、关键词过滤、排序、切割
  * @param words 源数据
  */
 function handleRawData(rawWords: HotWord[]) {
@@ -47,6 +47,7 @@ function handleRawData(rawWords: HotWord[]) {
     });
 
   return words
+    .filter((w)=>!w.text.includes('肖战'))
     .sort((a, b) => b.count - a.count)
     .splice(0, 50);
 }
