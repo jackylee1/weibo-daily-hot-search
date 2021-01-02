@@ -55,9 +55,9 @@
 1. [男子为请假自称核酸阳性被拘留](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E4%B8%BA%E8%AF%B7%E5%81%87%E8%87%AA%E7%A7%B0%E6%A0%B8%E9%85%B8%E9%98%B3%E6%80%A7%E8%A2%AB%E6%8B%98%E7%95%99%23&Refer=top)
 1. [黄奕工作室在易烊千玺超话晒票根](https://s.weibo.com/weibo?q=%23%E9%BB%84%E5%A5%95%E5%B7%A5%E4%BD%9C%E5%AE%A4%E5%9C%A8%E6%98%93%E7%83%8A%E5%8D%83%E7%8E%BA%E8%B6%85%E8%AF%9D%E6%99%92%E7%A5%A8%E6%A0%B9%23&Refer=top)
 1. [易烊千玺回应章子怡评价](https://s.weibo.com/weibo?q=%23%E6%98%93%E7%83%8A%E5%8D%83%E7%8E%BA%E5%9B%9E%E5%BA%94%E7%AB%A0%E5%AD%90%E6%80%A1%E8%AF%84%E4%BB%B7%23&Refer=top)
-1. [原来燕小六戴的是搓澡巾](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E7%87%95%E5%B0%8F%E5%85%AD%E6%88%B4%E7%9A%84%E6%98%AF%E6%90%93%E6%BE%A1%E5%B7%BE%23&Refer=top)
+1. [奇葩说](https://s.weibo.com/weibo?q=%E5%A5%87%E8%91%A9%E8%AF%B4&Refer=top)
 
-数据更新于 2021-01-02 19:59:44
+数据更新于 2021-01-02 20:37:53
 
 <!-- END -->
 
