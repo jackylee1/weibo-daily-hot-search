@@ -4,7 +4,7 @@ import { HotWord } from "./types.ts";
 
 function genDataListString(words: HotWord[]): string {
   return words
-    .map((x) => `1. [${x.text}](https://s.weibo.com${x.url})`)
+    .map((x) => `1. [${x.text}](https://s.weibo.com${x.url}) \`${getCountStr(x.count)} 🔥\``)
     .join("\n");
 }
 
@@ -46,4 +46,17 @@ export function getCurrentRank(): number {
   }
 
   return 1;
+}
+
+// 获取热度字符串，例如：100.1K 热度
+export function getCountStr(num: number): string {
+  const countUnit = ["", "K", "M", "B"];
+  let idx = 0;
+
+  while (num / 1000 >= 1 && idx < 3) {
+    idx++;
+    num = num / 1000;
+  }
+
+  return num.toFixed(1) + countUnit[idx];
 }
