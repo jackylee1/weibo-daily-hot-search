@@ -14,6 +14,7 @@
 1. [范丞丞妈妈就是我妈妈本人](https://s.weibo.com/weibo?q=%23%E8%8C%83%E4%B8%9E%E4%B8%9E%E5%A6%88%E5%A6%88%E5%B0%B1%E6%98%AF%E6%88%91%E5%A6%88%E5%A6%88%E6%9C%AC%E4%BA%BA%23&Refer=top) `2.1M 🔥`
 1. [小鹿 为什么不能有灯牌里的妈妈](https://s.weibo.com/weibo?q=%E5%B0%8F%E9%B9%BF%20%E4%B8%BA%E4%BB%80%E4%B9%88%E4%B8%8D%E8%83%BD%E6%9C%89%E7%81%AF%E7%89%8C%E9%87%8C%E7%9A%84%E5%A6%88%E5%A6%88&Refer=top) `1.8M 🔥`
 1. [丁辉](https://s.weibo.com/weibo?q=%E4%B8%81%E8%BE%89&Refer=top) `1.8M 🔥`
+1. [抖音平台被行政处罚](https://s.weibo.com/weibo?q=%23%E6%8A%96%E9%9F%B3%E5%B9%B3%E5%8F%B0%E8%A2%AB%E8%A1%8C%E6%94%BF%E5%A4%84%E7%BD%9A%23&Refer=top) `1.7M 🔥`
 1. [南柱赫旧照撞脸杨迪](https://s.weibo.com/weibo?q=%23%E5%8D%97%E6%9F%B1%E8%B5%AB%E6%97%A7%E7%85%A7%E6%92%9E%E8%84%B8%E6%9D%A8%E8%BF%AA%23&Refer=top) `1.6M 🔥`
 1. [河北新增33例本土确诊](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8C%97%E6%96%B0%E5%A2%9E33%E4%BE%8B%E6%9C%AC%E5%9C%9F%E7%A1%AE%E8%AF%8A%23&Refer=top) `1.4M 🔥`
 1. [美国交通部长赵小兰辞职](https://s.weibo.com/weibo?q=%E7%BE%8E%E5%9B%BD%E4%BA%A4%E9%80%9A%E9%83%A8%E9%95%BF%E8%B5%B5%E5%B0%8F%E5%85%B0%E8%BE%9E%E8%81%8C&Refer=top) `1.2M 🔥`
@@ -46,18 +47,17 @@
 1. [R1SE年度人气团体](https://s.weibo.com/weibo?q=%23R1SE%E5%B9%B4%E5%BA%A6%E4%BA%BA%E6%B0%94%E5%9B%A2%E4%BD%93%23&Refer=top) `503.7K 🔥`
 1. [特朗普推特账号恢复后首次发推](https://s.weibo.com/weibo?q=%23%E7%89%B9%E6%9C%97%E6%99%AE%E6%8E%A8%E7%89%B9%E8%B4%A6%E5%8F%B7%E6%81%A2%E5%A4%8D%E5%90%8E%E9%A6%96%E6%AC%A1%E5%8F%91%E6%8E%A8%23&Refer=top) `496.3K 🔥`
 1. [车银优好帅](https://s.weibo.com/weibo?q=%E8%BD%A6%E9%93%B6%E4%BC%98%E5%A5%BD%E5%B8%85&Refer=top) `492.1K 🔥`
+1. [15名支援石家庄医护再写请战书](https://s.weibo.com/weibo?q=15%E5%90%8D%E6%94%AF%E6%8F%B4%E7%9F%B3%E5%AE%B6%E5%BA%84%E5%8C%BB%E6%8A%A4%E5%86%8D%E5%86%99%E8%AF%B7%E6%88%98%E4%B9%A6&Refer=top) `487.2K 🔥`
+1. [黄执中 饭圈排他与身份剥夺](https://s.weibo.com/weibo?q=%E9%BB%84%E6%89%A7%E4%B8%AD%20%E9%A5%AD%E5%9C%88%E6%8E%92%E4%BB%96%E4%B8%8E%E8%BA%AB%E4%BB%BD%E5%89%A5%E5%A4%BA&Refer=top) `485.1K 🔥`
+1. [江苏新冠疫苗累计接种12.9万剂次](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%8B%8F%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E7%B4%AF%E8%AE%A1%E6%8E%A5%E7%A7%8D12.9%E4%B8%87%E5%89%82%E6%AC%A1%23&Refer=top) `480.4K 🔥`
 1. [大学生打破复原魔方吉尼斯世界纪录](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%AD%A6%E7%94%9F%E6%89%93%E7%A0%B4%E5%A4%8D%E5%8E%9F%E9%AD%94%E6%96%B9%E5%90%89%E5%B0%BC%E6%96%AF%E4%B8%96%E7%95%8C%E7%BA%AA%E5%BD%95%23&Refer=top) `477.6K 🔥`
 1. [黄执中谈饭圈](https://s.weibo.com/weibo?q=%E9%BB%84%E6%89%A7%E4%B8%AD%E8%B0%88%E9%A5%AD%E5%9C%88&Refer=top) `475.2K 🔥`
+1. [婴儿用抑菌霜后成大头娃娃](https://s.weibo.com/weibo?q=%23%E5%A9%B4%E5%84%BF%E7%94%A8%E6%8A%91%E8%8F%8C%E9%9C%9C%E5%90%8E%E6%88%90%E5%A4%A7%E5%A4%B4%E5%A8%83%E5%A8%83%23&Refer=top) `467.5K 🔥`
 1. [彭斯办公室主任被特朗普禁止进入白宫](https://s.weibo.com/weibo?q=%E5%BD%AD%E6%96%AF%E5%8A%9E%E5%85%AC%E5%AE%A4%E4%B8%BB%E4%BB%BB%E8%A2%AB%E7%89%B9%E6%9C%97%E6%99%AE%E7%A6%81%E6%AD%A2%E8%BF%9B%E5%85%A5%E7%99%BD%E5%AE%AB&Refer=top) `467.0K 🔥`
 1. [百度被判赔偿优酷百万余元](https://s.weibo.com/weibo?q=%23%E7%99%BE%E5%BA%A6%E8%A2%AB%E5%88%A4%E8%B5%94%E5%81%BF%E4%BC%98%E9%85%B7%E7%99%BE%E4%B8%87%E4%BD%99%E5%85%83%23&Refer=top) `466.4K 🔥`
 1. [暴乱后美国国会内部](https://s.weibo.com/weibo?q=%23%E6%9A%B4%E4%B9%B1%E5%90%8E%E7%BE%8E%E5%9B%BD%E5%9B%BD%E4%BC%9A%E5%86%85%E9%83%A8%23&Refer=top) `465.8K 🔥`
-1. [文咏珊演技](https://s.weibo.com/weibo?q=%23%E6%96%87%E5%92%8F%E7%8F%8A%E6%BC%94%E6%8A%80%23&Refer=top) `465.8K 🔥`
-1. [西单大悦城全部餐饮商户闭店整改](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E5%8D%95%E5%A4%A7%E6%82%A6%E5%9F%8E%E5%85%A8%E9%83%A8%E9%A4%90%E9%A5%AE%E5%95%86%E6%88%B7%E9%97%AD%E5%BA%97%E6%95%B4%E6%94%B9%23&Refer=top) `459.8K 🔥`
-1. [林书豪签约勇士发展联盟](https://s.weibo.com/weibo?q=%E6%9E%97%E4%B9%A6%E8%B1%AA%E7%AD%BE%E7%BA%A6%E5%8B%87%E5%A3%AB%E5%8F%91%E5%B1%95%E8%81%94%E7%9B%9F&Refer=top) `459.6K 🔥`
-1. [希林娜依高被妈妈问为什么苦涩](https://s.weibo.com/weibo?q=%23%E5%B8%8C%E6%9E%97%E5%A8%9C%E4%BE%9D%E9%AB%98%E8%A2%AB%E5%A6%88%E5%A6%88%E9%97%AE%E4%B8%BA%E4%BB%80%E4%B9%88%E8%8B%A6%E6%B6%A9%23&Refer=top) `458.7K 🔥`
-1. [山东春晚官宣张韶涵刘雨昕](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E4%B8%9C%E6%98%A5%E6%99%9A%E5%AE%98%E5%AE%A3%E5%BC%A0%E9%9F%B6%E6%B6%B5%E5%88%98%E9%9B%A8%E6%98%95%23&Refer=top) `453.7K 🔥`
 
-数据更新于 2021-01-08 09:41:03
+数据更新于 2021-01-08 10:42:35
 
 <!-- END -->
 
