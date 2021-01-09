@@ -16,6 +16,7 @@
 1. [推特宣布永久移除特朗普账号](https://s.weibo.com/weibo?q=%23%E6%8E%A8%E7%89%B9%E5%AE%A3%E5%B8%83%E6%B0%B8%E4%B9%85%E7%A7%BB%E9%99%A4%E7%89%B9%E6%9C%97%E6%99%AE%E8%B4%A6%E5%8F%B7%23&Refer=top) `2.3M 🔥`
 1. [邱淑贞女儿cos赤木晴子](https://s.weibo.com/weibo?q=%E9%82%B1%E6%B7%91%E8%B4%9E%E5%A5%B3%E5%84%BFcos%E8%B5%A4%E6%9C%A8%E6%99%B4%E5%AD%90&Refer=top) `2.2M 🔥`
 1. [石家庄快递公司收派件业务逐步恢复正常](https://s.weibo.com/weibo?q=%23%E7%9F%B3%E5%AE%B6%E5%BA%84%E5%BF%AB%E9%80%92%E5%85%AC%E5%8F%B8%E6%94%B6%E6%B4%BE%E4%BB%B6%E4%B8%9A%E5%8A%A1%E9%80%90%E6%AD%A5%E6%81%A2%E5%A4%8D%E6%AD%A3%E5%B8%B8%23&Refer=top) `2.1M 🔥`
+1. [考第一溺亡女生遗书](https://s.weibo.com/weibo?q=%E8%80%83%E7%AC%AC%E4%B8%80%E6%BA%BA%E4%BA%A1%E5%A5%B3%E7%94%9F%E9%81%97%E4%B9%A6&Refer=top) `2.1M 🔥`
 1. [章子怡新剧人设](https://s.weibo.com/weibo?q=%23%E7%AB%A0%E5%AD%90%E6%80%A1%E6%96%B0%E5%89%A7%E4%BA%BA%E8%AE%BE%23&Refer=top) `1.8M 🔥`
 1. [石家庄机场塔台超暖心对话](https://s.weibo.com/weibo?q=%23%E7%9F%B3%E5%AE%B6%E5%BA%84%E6%9C%BA%E5%9C%BA%E5%A1%94%E5%8F%B0%E8%B6%85%E6%9A%96%E5%BF%83%E5%AF%B9%E8%AF%9D%23&Refer=top) `1.7M 🔥`
 1. [张雨绮李斯丹妮唱大花轿唱到缺氧](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E9%9B%A8%E7%BB%AE%E6%9D%8E%E6%96%AF%E4%B8%B9%E5%A6%AE%E5%94%B1%E5%A4%A7%E8%8A%B1%E8%BD%BF%E5%94%B1%E5%88%B0%E7%BC%BA%E6%B0%A7%23&Refer=top) `1.7M 🔥`
@@ -55,9 +56,8 @@
 1. [石家庄疫情](https://s.weibo.com/weibo?q=%E7%9F%B3%E5%AE%B6%E5%BA%84%E7%96%AB%E6%83%85&Refer=top) `759.1K 🔥`
 1. [阿妩及笄礼出场](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%A6%A9%E5%8F%8A%E7%AC%84%E7%A4%BC%E5%87%BA%E5%9C%BA%23&Refer=top) `749.3K 🔥`
 1. [石家庄火眼实验室已建成](https://s.weibo.com/weibo?q=%23%E7%9F%B3%E5%AE%B6%E5%BA%84%E7%81%AB%E7%9C%BC%E5%AE%9E%E9%AA%8C%E5%AE%A4%E5%B7%B2%E5%BB%BA%E6%88%90%23&Refer=top) `747.1K 🔥`
-1. [河北目前阳性病例是由一起疫情串起](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8C%97%E7%9B%AE%E5%89%8D%E9%98%B3%E6%80%A7%E7%97%85%E4%BE%8B%E6%98%AF%E7%94%B1%E4%B8%80%E8%B5%B7%E7%96%AB%E6%83%85%E4%B8%B2%E8%B5%B7%23&Refer=top) `733.7K 🔥`
 
-数据更新于 2021-01-09 14:00:55
+数据更新于 2021-01-09 14:42:01
 
 <!-- END -->
 
