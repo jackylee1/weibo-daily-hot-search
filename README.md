@@ -13,6 +13,7 @@
 1. [Jiae出柜](https://s.weibo.com/weibo?q=%23Jiae%E5%87%BA%E6%9F%9C%23&Refer=top) `3.6M 🔥`
 1. [郑渊洁对不想结婚的看法](https://s.weibo.com/weibo?q=%23%E9%83%91%E6%B8%8A%E6%B4%81%E5%AF%B9%E4%B8%8D%E6%83%B3%E7%BB%93%E5%A9%9A%E7%9A%84%E7%9C%8B%E6%B3%95%23&Refer=top) `2.9M 🔥`
 1. [孟佳没有找到结婚的理由](https://s.weibo.com/weibo?q=%23%E5%AD%9F%E4%BD%B3%E6%B2%A1%E6%9C%89%E6%89%BE%E5%88%B0%E7%BB%93%E5%A9%9A%E7%9A%84%E7%90%86%E7%94%B1%23&Refer=top) `2.8M 🔥`
+1. [苏醒](https://s.weibo.com/weibo?q=%E8%8B%8F%E9%86%92&Refer=top) `2.7M 🔥`
 1. [汪苏泷 你告诉她得了呗](https://s.weibo.com/weibo?q=%E6%B1%AA%E8%8B%8F%E6%B3%B7%20%E4%BD%A0%E5%91%8A%E8%AF%89%E5%A5%B9%E5%BE%97%E4%BA%86%E5%91%97&Refer=top) `2.7M 🔥`
 1. [华晨宇酒吧吸烟](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E6%99%A8%E5%AE%87%E9%85%92%E5%90%A7%E5%90%B8%E7%83%9F%23&Refer=top) `2.7M 🔥`
 1. [高天佐道歉](https://s.weibo.com/weibo?q=%23%E9%AB%98%E5%A4%A9%E4%BD%90%E9%81%93%E6%AD%89%23&Refer=top) `2.5M 🔥`
@@ -38,6 +39,7 @@
 1. [苹果谷歌下架美社交平台Parler](https://s.weibo.com/weibo?q=%E8%8B%B9%E6%9E%9C%E8%B0%B7%E6%AD%8C%E4%B8%8B%E6%9E%B6%E7%BE%8E%E7%A4%BE%E4%BA%A4%E5%B9%B3%E5%8F%B0Parler&Refer=top) `1.1M 🔥`
 1. [成都市民街头卖雪](https://s.weibo.com/weibo?q=%23%E6%88%90%E9%83%BD%E5%B8%82%E6%B0%91%E8%A1%97%E5%A4%B4%E5%8D%96%E9%9B%AA%23&Refer=top) `1.1M 🔥`
 1. [河北新增14例本土确诊](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8C%97%E6%96%B0%E5%A2%9E14%E4%BE%8B%E6%9C%AC%E5%9C%9F%E7%A1%AE%E8%AF%8A%23&Refer=top) `1.0M 🔥`
+1. [石家庄疫情还没有看到明显拐点](https://s.weibo.com/weibo?q=%23%E7%9F%B3%E5%AE%B6%E5%BA%84%E7%96%AB%E6%83%85%E8%BF%98%E6%B2%A1%E6%9C%89%E7%9C%8B%E5%88%B0%E6%98%8E%E6%98%BE%E6%8B%90%E7%82%B9%23&Refer=top) `1.0M 🔥`
 1. [江苏成为全国冬季用电负荷最高省份](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%8B%8F%E6%88%90%E4%B8%BA%E5%85%A8%E5%9B%BD%E5%86%AC%E5%AD%A3%E7%94%A8%E7%94%B5%E8%B4%9F%E8%8D%B7%E6%9C%80%E9%AB%98%E7%9C%81%E4%BB%BD%23&Refer=top) `982.9K 🔥`
 1. [坚决取消或改造不符合要求发热门诊](https://s.weibo.com/weibo?q=%E5%9D%9A%E5%86%B3%E5%8F%96%E6%B6%88%E6%88%96%E6%94%B9%E9%80%A0%E4%B8%8D%E7%AC%A6%E5%90%88%E8%A6%81%E6%B1%82%E5%8F%91%E7%83%AD%E9%97%A8%E8%AF%8A&Refer=top) `964.1K 🔥`
 1. [寻6日K7537次列车2密接者同乘人](https://s.weibo.com/weibo?q=%23%E5%AF%BB6%E6%97%A5K7537%E6%AC%A1%E5%88%97%E8%BD%A62%E5%AF%86%E6%8E%A5%E8%80%85%E5%90%8C%E4%B9%98%E4%BA%BA%23&Refer=top) `963.9K 🔥`
@@ -52,12 +54,10 @@
 1. [被袁媛气死](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E8%A2%81%E5%AA%9B%E6%B0%94%E6%AD%BB%23&Refer=top) `875.2K 🔥`
 1. [烟台机场一飞机与除冰车相撞](https://s.weibo.com/weibo?q=%E7%83%9F%E5%8F%B0%E6%9C%BA%E5%9C%BA%E4%B8%80%E9%A3%9E%E6%9C%BA%E4%B8%8E%E9%99%A4%E5%86%B0%E8%BD%A6%E7%9B%B8%E6%92%9E&Refer=top) `873.7K 🔥`
 1. [今年可以冷到什么程度](https://s.weibo.com/weibo?q=%23%E4%BB%8A%E5%B9%B4%E5%8F%AF%E4%BB%A5%E5%86%B7%E5%88%B0%E4%BB%80%E4%B9%88%E7%A8%8B%E5%BA%A6%23&Refer=top) `865.4K 🔥`
-1. [苏醒](https://s.weibo.com/weibo?q=%E8%8B%8F%E9%86%92&Refer=top) `865.2K 🔥`
 1. [饿了么将为猝死骑手提供60万抚恤金](https://s.weibo.com/weibo?q=%23%E9%A5%BF%E4%BA%86%E4%B9%88%E5%B0%86%E4%B8%BA%E7%8C%9D%E6%AD%BB%E9%AA%91%E6%89%8B%E6%8F%90%E4%BE%9B60%E4%B8%87%E6%8A%9A%E6%81%A4%E9%87%91%23&Refer=top) `857.2K 🔥`
 1. [章子怡少女感](https://s.weibo.com/weibo?q=%E7%AB%A0%E5%AD%90%E6%80%A1%E5%B0%91%E5%A5%B3%E6%84%9F&Refer=top) `854.5K 🔥`
-1. [教师资格证面试](https://s.weibo.com/weibo?q=%E6%95%99%E5%B8%88%E8%B5%84%E6%A0%BC%E8%AF%81%E9%9D%A2%E8%AF%95&Refer=top) `853.8K 🔥`
 
-数据更新于 2021-01-09 16:16:35
+数据更新于 2021-01-09 16:56:34
 
 <!-- END -->
 
