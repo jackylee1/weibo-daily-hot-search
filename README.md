@@ -20,6 +20,7 @@
 1. [蒋南孙王永正分手](https://s.weibo.com/weibo?q=%23%E8%92%8B%E5%8D%97%E5%AD%99%E7%8E%8B%E6%B0%B8%E6%AD%A3%E5%88%86%E6%89%8B%23&Refer=top) `2.8M 🔥`
 1. [山东新增1例本地无症状](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E4%B8%9C%E6%96%B0%E5%A2%9E1%E4%BE%8B%E6%9C%AC%E5%9C%B0%E6%97%A0%E7%97%87%E7%8A%B6%23&Refer=top) `2.8M 🔥`
 1. [徐峥 武汉日夜应该给美国人看看](https://s.weibo.com/weibo?q=%E5%BE%90%E5%B3%A5%20%E6%AD%A6%E6%B1%89%E6%97%A5%E5%A4%9C%E5%BA%94%E8%AF%A5%E7%BB%99%E7%BE%8E%E5%9B%BD%E4%BA%BA%E7%9C%8B%E7%9C%8B&Refer=top) `2.6M 🔥`
+1. [黑龙江新增40例确诊病例](https://s.weibo.com/weibo?q=%23%E9%BB%91%E9%BE%99%E6%B1%9F%E6%96%B0%E5%A2%9E40%E4%BE%8B%E7%A1%AE%E8%AF%8A%E7%97%85%E4%BE%8B%23&Refer=top) `2.6M 🔥`
 1. [为什么石家庄部分村民要异地隔离](https://s.weibo.com/weibo?q=%23%E4%B8%BA%E4%BB%80%E4%B9%88%E7%9F%B3%E5%AE%B6%E5%BA%84%E9%83%A8%E5%88%86%E6%9D%91%E6%B0%91%E8%A6%81%E5%BC%82%E5%9C%B0%E9%9A%94%E7%A6%BB%23&Refer=top) `2.5M 🔥`
 1. [微信屏蔽拼多多小红书等外链](https://s.weibo.com/weibo?q=%E5%BE%AE%E4%BF%A1%E5%B1%8F%E8%94%BD%E6%8B%BC%E5%A4%9A%E5%A4%9A%E5%B0%8F%E7%BA%A2%E4%B9%A6%E7%AD%89%E5%A4%96%E9%93%BE&Refer=top) `2.5M 🔥`
 1. [我国疫情呈现多地局部暴发和零星散发](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD%E7%96%AB%E6%83%85%E5%91%88%E7%8E%B0%E5%A4%9A%E5%9C%B0%E5%B1%80%E9%83%A8%E6%9A%B4%E5%8F%91%E5%92%8C%E9%9B%B6%E6%98%9F%E6%95%A3%E5%8F%91%23&Refer=top) `2.5M 🔥`
@@ -40,6 +41,7 @@
 1. [口罩拉到下巴处会增加传染风险](https://s.weibo.com/weibo?q=%23%E5%8F%A3%E7%BD%A9%E6%8B%89%E5%88%B0%E4%B8%8B%E5%B7%B4%E5%A4%84%E4%BC%9A%E5%A2%9E%E5%8A%A0%E4%BC%A0%E6%9F%93%E9%A3%8E%E9%99%A9%23&Refer=top) `1.7M 🔥`
 1. [虞书欣](https://s.weibo.com/weibo?q=%E8%99%9E%E4%B9%A6%E6%AC%A3&Refer=top) `1.7M 🔥`
 1. [原来大厂是个地名](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E5%A4%A7%E5%8E%82%E6%98%AF%E4%B8%AA%E5%9C%B0%E5%90%8D%23&Refer=top) `1.6M 🔥`
+1. [武契奇说中国新冠疫苗质量极高就是小贵](https://s.weibo.com/weibo?q=%23%E6%AD%A6%E5%A5%91%E5%A5%87%E8%AF%B4%E4%B8%AD%E5%9B%BD%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E8%B4%A8%E9%87%8F%E6%9E%81%E9%AB%98%E5%B0%B1%E6%98%AF%E5%B0%8F%E8%B4%B5%23&Refer=top) `1.6M 🔥`
 1. [乌合之众](https://s.weibo.com/weibo?q=%23%E4%B9%8C%E5%90%88%E4%B9%8B%E4%BC%97%23&Refer=top) `1.6M 🔥`
 1. [告诉我妈我有抑郁症后](https://s.weibo.com/weibo?q=%23%E5%91%8A%E8%AF%89%E6%88%91%E5%A6%88%E6%88%91%E6%9C%89%E6%8A%91%E9%83%81%E7%97%87%E5%90%8E%23&Refer=top) `1.6M 🔥`
 1. [北京单位春节可错峰放假](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E5%8D%95%E4%BD%8D%E6%98%A5%E8%8A%82%E5%8F%AF%E9%94%99%E5%B3%B0%E6%94%BE%E5%81%87%23&Refer=top) `1.5M 🔥`
@@ -54,10 +56,8 @@
 1. [多地出现新冠疫苗诈骗](https://s.weibo.com/weibo?q=%23%E5%A4%9A%E5%9C%B0%E5%87%BA%E7%8E%B0%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E8%AF%88%E9%AA%97%23&Refer=top) `1.2M 🔥`
 1. [石家庄两万村民转移隔离](https://s.weibo.com/weibo?q=%E7%9F%B3%E5%AE%B6%E5%BA%84%E4%B8%A4%E4%B8%87%E6%9D%91%E6%B0%91%E8%BD%AC%E7%A7%BB%E9%9A%94%E7%A6%BB&Refer=top) `1.2M 🔥`
 1. [B站起诉脉脉不正当竞争胜诉](https://s.weibo.com/weibo?q=B%E7%AB%99%E8%B5%B7%E8%AF%89%E8%84%89%E8%84%89%E4%B8%8D%E6%AD%A3%E5%BD%93%E7%AB%9E%E4%BA%89%E8%83%9C%E8%AF%89&Refer=top) `1.1M 🔥`
-1. [40岁女子在贝加尔湖冰面下游85米](https://s.weibo.com/weibo?q=40%E5%B2%81%E5%A5%B3%E5%AD%90%E5%9C%A8%E8%B4%9D%E5%8A%A0%E5%B0%94%E6%B9%96%E5%86%B0%E9%9D%A2%E4%B8%8B%E6%B8%B885%E7%B1%B3&Refer=top) `1.1M 🔥`
-1. [虞书欣 隔离](https://s.weibo.com/weibo?q=%E8%99%9E%E4%B9%A6%E6%AC%A3%20%E9%9A%94%E7%A6%BB&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-01-13 22:11:14
+数据更新于 2021-01-13 22:56:45
 
 <!-- END -->
 
