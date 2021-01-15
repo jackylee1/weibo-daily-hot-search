@@ -41,20 +41,23 @@
 1. [张韶涵赵磊高音](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E9%9F%B6%E6%B6%B5%E8%B5%B5%E7%A3%8A%E9%AB%98%E9%9F%B3%23&Refer=top) `406.9K 🔥`
 1. [上海发布首套沪语防护海报](https://s.weibo.com/weibo?q=%E4%B8%8A%E6%B5%B7%E5%8F%91%E5%B8%83%E9%A6%96%E5%A5%97%E6%B2%AA%E8%AF%AD%E9%98%B2%E6%8A%A4%E6%B5%B7%E6%8A%A5&Refer=top) `396.1K 🔥`
 1. [石家庄阳性病例没有在社区蔓延](https://s.weibo.com/weibo?q=%E7%9F%B3%E5%AE%B6%E5%BA%84%E9%98%B3%E6%80%A7%E7%97%85%E4%BE%8B%E6%B2%A1%E6%9C%89%E5%9C%A8%E7%A4%BE%E5%8C%BA%E8%94%93%E5%BB%B6&Refer=top) `392.5K 🔥`
+1. [吴彤的头是王霏霏的两个大](https://s.weibo.com/weibo?q=%23%E5%90%B4%E5%BD%A4%E7%9A%84%E5%A4%B4%E6%98%AF%E7%8E%8B%E9%9C%8F%E9%9C%8F%E7%9A%84%E4%B8%A4%E4%B8%AA%E5%A4%A7%23&Refer=top) `303.8K 🔥`
 1. [蒋南孙朱锁锁又住一起了](https://s.weibo.com/weibo?q=%E8%92%8B%E5%8D%97%E5%AD%99%E6%9C%B1%E9%94%81%E9%94%81%E5%8F%88%E4%BD%8F%E4%B8%80%E8%B5%B7%E4%BA%86&Refer=top) `283.5K 🔥`
 1. [天赐的声音](https://s.weibo.com/weibo?q=%E5%A4%A9%E8%B5%90%E7%9A%84%E5%A3%B0%E9%9F%B3&Refer=top) `281.3K 🔥`
-1. [吴彤的头是王霏霏的两个大](https://s.weibo.com/weibo?q=%23%E5%90%B4%E5%BD%A4%E7%9A%84%E5%A4%B4%E6%98%AF%E7%8E%8B%E9%9C%8F%E9%9C%8F%E7%9A%84%E4%B8%A4%E4%B8%AA%E5%A4%A7%23&Refer=top) `280.4K 🔥`
 1. [蔡徐坤冷感氛围太绝了](https://s.weibo.com/weibo?q=%23%E8%94%A1%E5%BE%90%E5%9D%A4%E5%86%B7%E6%84%9F%E6%B0%9B%E5%9B%B4%E5%A4%AA%E7%BB%9D%E4%BA%86%23&Refer=top) `279.8K 🔥`
 1. [青3录制在厕所水箱里发现手机](https://s.weibo.com/weibo?q=%23%E9%9D%923%E5%BD%95%E5%88%B6%E5%9C%A8%E5%8E%95%E6%89%80%E6%B0%B4%E7%AE%B1%E9%87%8C%E5%8F%91%E7%8E%B0%E6%89%8B%E6%9C%BA%23&Refer=top) `277.3K 🔥`
 1. [杭州大剧院](https://s.weibo.com/weibo?q=%E6%9D%AD%E5%B7%9E%E5%A4%A7%E5%89%A7%E9%99%A2&Refer=top) `269.1K 🔥`
 1. [最强大脑](https://s.weibo.com/weibo?q=%E6%9C%80%E5%BC%BA%E5%A4%A7%E8%84%91&Refer=top) `269.0K 🔥`
 1. [女团都在剪的胎毛刘海](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%9B%A2%E9%83%BD%E5%9C%A8%E5%89%AA%E7%9A%84%E8%83%8E%E6%AF%9B%E5%88%98%E6%B5%B7%23&Refer=top) `262.4K 🔥`
+1. [胡彦斌看孟美岐露出老父亲的微笑](https://s.weibo.com/weibo?q=%23%E8%83%A1%E5%BD%A6%E6%96%8C%E7%9C%8B%E5%AD%9F%E7%BE%8E%E5%B2%90%E9%9C%B2%E5%87%BA%E8%80%81%E7%88%B6%E4%BA%B2%E7%9A%84%E5%BE%AE%E7%AC%91%23&Refer=top) `233.3K 🔥`
+1. [李诞 搏一搏飞机变摩托](https://s.weibo.com/weibo?q=%E6%9D%8E%E8%AF%9E%20%E6%90%8F%E4%B8%80%E6%90%8F%E9%A3%9E%E6%9C%BA%E5%8F%98%E6%91%A9%E6%89%98&Refer=top) `207.7K 🔥`
 1. [肖波](https://s.weibo.com/weibo?q=%E8%82%96%E6%B3%A2&Refer=top) `202.4K 🔥`
 1. [重庆两拉石子货车侧翻多人被埋](https://s.weibo.com/weibo?q=%E9%87%8D%E5%BA%86%E4%B8%A4%E6%8B%89%E7%9F%B3%E5%AD%90%E8%B4%A7%E8%BD%A6%E4%BE%A7%E7%BF%BB%E5%A4%9A%E4%BA%BA%E8%A2%AB%E5%9F%8B&Refer=top) `195.7K 🔥`
 1. [阳光之下](https://s.weibo.com/weibo?q=%E9%98%B3%E5%85%89%E4%B9%8B%E4%B8%8B&Refer=top) `193.8K 🔥`
 1. [汽油柴油价格五连涨](https://s.weibo.com/weibo?q=%23%E6%B1%BD%E6%B2%B9%E6%9F%B4%E6%B2%B9%E4%BB%B7%E6%A0%BC%E4%BA%94%E8%BF%9E%E6%B6%A8%23&Refer=top) `179.1K 🔥`
+1. [奔跑吧](https://s.weibo.com/weibo?q=%E5%A5%94%E8%B7%91%E5%90%A7&Refer=top) `165.3K 🔥`
 
-数据更新于 2021-01-16 00:20:05
+数据更新于 2021-01-16 01:52:16
 
 <!-- END -->
 
