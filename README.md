@@ -26,6 +26,7 @@
 1. [万能回复话术](https://s.weibo.com/weibo?q=%23%E4%B8%87%E8%83%BD%E5%9B%9E%E5%A4%8D%E8%AF%9D%E6%9C%AF%23&Refer=top) `3.7M 🔥`
 1. [河北隆尧全县居民居家隔离](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8C%97%E9%9A%86%E5%B0%A7%E5%85%A8%E5%8E%BF%E5%B1%85%E6%B0%91%E5%B1%85%E5%AE%B6%E9%9A%94%E7%A6%BB%23&Refer=top) `3.5M 🔥`
 1. [阳光之下](https://s.weibo.com/weibo?q=%E9%98%B3%E5%85%89%E4%B9%8B%E4%B8%8B&Refer=top) `3.4M 🔥`
+1. [Hamzy被解约](https://s.weibo.com/weibo?q=Hamzy%E8%A2%AB%E8%A7%A3%E7%BA%A6&Refer=top) `3.2M 🔥`
 1. [WE iG](https://s.weibo.com/weibo?q=WE%20iG&Refer=top) `3.2M 🔥`
 1. [岳云鹏吹蒲公英时的表情](https://s.weibo.com/weibo?q=%E5%B2%B3%E4%BA%91%E9%B9%8F%E5%90%B9%E8%92%B2%E5%85%AC%E8%8B%B1%E6%97%B6%E7%9A%84%E8%A1%A8%E6%83%85&Refer=top) `3.1M 🔥`
 1. [天齐锂业](https://s.weibo.com/weibo?q=%E5%A4%A9%E9%BD%90%E9%94%82%E4%B8%9A&Refer=top) `3.1M 🔥`
@@ -55,9 +56,8 @@
 1. [郝蕾评价金子涵 你回去唱跳吧](https://s.weibo.com/weibo?q=%E9%83%9D%E8%95%BE%E8%AF%84%E4%BB%B7%E9%87%91%E5%AD%90%E6%B6%B5%20%E4%BD%A0%E5%9B%9E%E5%8E%BB%E5%94%B1%E8%B7%B3%E5%90%A7&Refer=top) `1.3M 🔥`
 1. [快乐大本营](https://s.weibo.com/weibo?q=%E5%BF%AB%E4%B9%90%E5%A4%A7%E6%9C%AC%E8%90%A5&Refer=top) `1.2M 🔥`
 1. [魏大勋粉丝信写没什么想说的](https://s.weibo.com/weibo?q=%23%E9%AD%8F%E5%A4%A7%E5%8B%8B%E7%B2%89%E4%B8%9D%E4%BF%A1%E5%86%99%E6%B2%A1%E4%BB%80%E4%B9%88%E6%83%B3%E8%AF%B4%E7%9A%84%23&Refer=top) `1.2M 🔥`
-1. [周大福客服回应页面售价错误](https://s.weibo.com/weibo?q=%E5%91%A8%E5%A4%A7%E7%A6%8F%E5%AE%A2%E6%9C%8D%E5%9B%9E%E5%BA%94%E9%A1%B5%E9%9D%A2%E5%94%AE%E4%BB%B7%E9%94%99%E8%AF%AF&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-01-17 23:11:20
+数据更新于 2021-01-17 23:50:39
 
 <!-- END -->
 
