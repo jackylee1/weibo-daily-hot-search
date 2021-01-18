@@ -23,7 +23,9 @@
 1. [孙怡家的小鸡被野猫给叼走了](https://s.weibo.com/weibo?q=%23%E5%AD%99%E6%80%A1%E5%AE%B6%E7%9A%84%E5%B0%8F%E9%B8%A1%E8%A2%AB%E9%87%8E%E7%8C%AB%E7%BB%99%E5%8F%BC%E8%B5%B0%E4%BA%86%23&Refer=top) `2.6M 🔥`
 1. [傅菁 我的腿不是很完美](https://s.weibo.com/weibo?q=%E5%82%85%E8%8F%81%20%E6%88%91%E7%9A%84%E8%85%BF%E4%B8%8D%E6%98%AF%E5%BE%88%E5%AE%8C%E7%BE%8E&Refer=top) `2.5M 🔥`
 1. [Prada的眼泪PradaPrada的掉](https://s.weibo.com/weibo?q=%23Prada%E7%9A%84%E7%9C%BC%E6%B3%AAPradaPrada%E7%9A%84%E6%8E%89%23&Refer=top) `2.5M 🔥`
-1. [2例无症状曾乘Z216次和K262次列车](https://s.weibo.com/weibo?q=%232%E4%BE%8B%E6%97%A0%E7%97%87%E7%8A%B6%E6%9B%BE%E4%B9%98Z216%E6%AC%A1%E5%92%8CK262%E6%AC%A1%E5%88%97%E8%BD%A6%23&Refer=top) `1.8M 🔥`
+1. [2例无症状曾乘Z216次和K262次列车](https://s.weibo.com/weibo?q=%232%E4%BE%8B%E6%97%A0%E7%97%87%E7%8A%B6%E6%9B%BE%E4%B9%98Z216%E6%AC%A1%E5%92%8CK262%E6%AC%A1%E5%88%97%E8%BD%A6%23&Refer=top) `2.4M 🔥`
+1. [郑爽张恒父母录音](https://s.weibo.com/weibo?q=%23%E9%83%91%E7%88%BD%E5%BC%A0%E6%81%92%E7%88%B6%E6%AF%8D%E5%BD%95%E9%9F%B3%23&Refer=top) `2.3M 🔥`
+1. [北京确诊病例曾坐地铁1号线和4号线](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E7%A1%AE%E8%AF%8A%E7%97%85%E4%BE%8B%E6%9B%BE%E5%9D%90%E5%9C%B0%E9%93%811%E5%8F%B7%E7%BA%BF%E5%92%8C4%E5%8F%B7%E7%BA%BF%23&Refer=top) `2.0M 🔥`
 1. [微信回应消息延迟bug](https://s.weibo.com/weibo?q=%23%E5%BE%AE%E4%BF%A1%E5%9B%9E%E5%BA%94%E6%B6%88%E6%81%AF%E5%BB%B6%E8%BF%9Fbug%23&Refer=top) `1.8M 🔥`
 1. [基金](https://s.weibo.com/weibo?q=%E5%9F%BA%E9%87%91&Refer=top) `1.8M 🔥`
 1. [石家庄新增14例本土确诊](https://s.weibo.com/weibo?q=%23%E7%9F%B3%E5%AE%B6%E5%BA%84%E6%96%B0%E5%A2%9E14%E4%BE%8B%E6%9C%AC%E5%9C%9F%E7%A1%AE%E8%AF%8A%23&Refer=top) `1.8M 🔥`
@@ -36,12 +38,16 @@
 1. [你是否看到了一只鸡](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E6%98%AF%E5%90%A6%E7%9C%8B%E5%88%B0%E4%BA%86%E4%B8%80%E5%8F%AA%E9%B8%A1%23&Refer=top) `1.6M 🔥`
 1. [王牌对王牌定档](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E7%89%8C%E5%AF%B9%E7%8E%8B%E7%89%8C%E5%AE%9A%E6%A1%A3%23&Refer=top) `1.5M 🔥`
 1. [车厘子奶茶](https://s.weibo.com/weibo?q=%E8%BD%A6%E5%8E%98%E5%AD%90%E5%A5%B6%E8%8C%B6&Refer=top) `1.5M 🔥`
+1. [1传102病例回应频繁往返黑吉两省](https://s.weibo.com/weibo?q=1%E4%BC%A0102%E7%97%85%E4%BE%8B%E5%9B%9E%E5%BA%94%E9%A2%91%E7%B9%81%E5%BE%80%E8%BF%94%E9%BB%91%E5%90%89%E4%B8%A4%E7%9C%81&Refer=top) `1.4M 🔥`
 1. [美国凤凰城一购物中心突发枪击事件](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E5%87%A4%E5%87%B0%E5%9F%8E%E4%B8%80%E8%B4%AD%E7%89%A9%E4%B8%AD%E5%BF%83%E7%AA%81%E5%8F%91%E6%9E%AA%E5%87%BB%E4%BA%8B%E4%BB%B6%23&Refer=top) `1.4M 🔥`
+1. [栖霞救援现场已能和井下矿工通话](https://s.weibo.com/weibo?q=%23%E6%A0%96%E9%9C%9E%E6%95%91%E6%8F%B4%E7%8E%B0%E5%9C%BA%E5%B7%B2%E8%83%BD%E5%92%8C%E4%BA%95%E4%B8%8B%E7%9F%BF%E5%B7%A5%E9%80%9A%E8%AF%9D%23&Refer=top) `1.3M 🔥`
+1. [哈尔滨疫情](https://s.weibo.com/weibo?q=%E5%93%88%E5%B0%94%E6%BB%A8%E7%96%AB%E6%83%85&Refer=top) `1.2M 🔥`
 1. [汪峰](https://s.weibo.com/weibo?q=%E6%B1%AA%E5%B3%B0&Refer=top) `1.2M 🔥`
 1. [无症状感染者为什么增多了](https://s.weibo.com/weibo?q=%23%E6%97%A0%E7%97%87%E7%8A%B6%E6%84%9F%E6%9F%93%E8%80%85%E4%B8%BA%E4%BB%80%E4%B9%88%E5%A2%9E%E5%A4%9A%E4%BA%86%23&Refer=top) `1.2M 🔥`
 1. [港澳办 蓬佩奥之流不过是可笑螳螂](https://s.weibo.com/weibo?q=%E6%B8%AF%E6%BE%B3%E5%8A%9E%20%E8%93%AC%E4%BD%A9%E5%A5%A5%E4%B9%8B%E6%B5%81%E4%B8%8D%E8%BF%87%E6%98%AF%E5%8F%AF%E7%AC%91%E8%9E%B3%E8%9E%82&Refer=top) `1.2M 🔥`
 1. [未参加同事生日宴被罚当事经理发声](https://s.weibo.com/weibo?q=%23%E6%9C%AA%E5%8F%82%E5%8A%A0%E5%90%8C%E4%BA%8B%E7%94%9F%E6%97%A5%E5%AE%B4%E8%A2%AB%E7%BD%9A%E5%BD%93%E4%BA%8B%E7%BB%8F%E7%90%86%E5%8F%91%E5%A3%B0%23&Refer=top) `1.2M 🔥`
 1. [68％美国人反对特朗普自赦](https://s.weibo.com/weibo?q=%2368%EF%BC%85%E7%BE%8E%E5%9B%BD%E4%BA%BA%E5%8F%8D%E5%AF%B9%E7%89%B9%E6%9C%97%E6%99%AE%E8%87%AA%E8%B5%A6%23&Refer=top) `1.2M 🔥`
+1. [为什么要反对代孕](https://s.weibo.com/weibo?q=%E4%B8%BA%E4%BB%80%E4%B9%88%E8%A6%81%E5%8F%8D%E5%AF%B9%E4%BB%A3%E5%AD%95&Refer=top) `1.2M 🔥`
 1. [特朗普政府将撤销英特尔向华为供货许可](https://s.weibo.com/weibo?q=%23%E7%89%B9%E6%9C%97%E6%99%AE%E6%94%BF%E5%BA%9C%E5%B0%86%E6%92%A4%E9%94%80%E8%8B%B1%E7%89%B9%E5%B0%94%E5%90%91%E5%8D%8E%E4%B8%BA%E4%BE%9B%E8%B4%A7%E8%AE%B8%E5%8F%AF%23&Refer=top) `1.2M 🔥`
 1. [我国GDP总量首次突破100万亿元](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BDGDP%E6%80%BB%E9%87%8F%E9%A6%96%E6%AC%A1%E7%AA%81%E7%A0%B4100%E4%B8%87%E4%BA%BF%E5%85%83%23&Refer=top) `1.1M 🔥`
 1. [黑龙江新增81例无症状](https://s.weibo.com/weibo?q=%23%E9%BB%91%E9%BE%99%E6%B1%9F%E6%96%B0%E5%A2%9E81%E4%BE%8B%E6%97%A0%E7%97%87%E7%8A%B6%23&Refer=top) `1.1M 🔥`
@@ -50,14 +56,8 @@
 1. [我们哭着降临世界却可以笑着走向永恒](https://s.weibo.com/weibo?q=%23%E6%88%91%E4%BB%AC%E5%93%AD%E7%9D%80%E9%99%8D%E4%B8%B4%E4%B8%96%E7%95%8C%E5%8D%B4%E5%8F%AF%E4%BB%A5%E7%AC%91%E7%9D%80%E8%B5%B0%E5%90%91%E6%B0%B8%E6%81%92%23&Refer=top) `1.1M 🔥`
 1. [潘博文](https://s.weibo.com/weibo?q=%E6%BD%98%E5%8D%9A%E6%96%87&Refer=top) `1.1M 🔥`
 1. [杨洋迪丽热巴眼神好甜](https://s.weibo.com/weibo?q=%E6%9D%A8%E6%B4%8B%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E7%9C%BC%E7%A5%9E%E5%A5%BD%E7%94%9C&Refer=top) `1.0M 🔥`
-1. [荷兰首相骑自行车向国王辞职](https://s.weibo.com/weibo?q=%E8%8D%B7%E5%85%B0%E9%A6%96%E7%9B%B8%E9%AA%91%E8%87%AA%E8%A1%8C%E8%BD%A6%E5%90%91%E5%9B%BD%E7%8E%8B%E8%BE%9E%E8%81%8C&Refer=top) `1.0M 🔥`
-1. [诺安](https://s.weibo.com/weibo?q=%E8%AF%BA%E5%AE%89&Refer=top) `1.0M 🔥`
-1. [原来班级群也可以很温暖](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E7%8F%AD%E7%BA%A7%E7%BE%A4%E4%B9%9F%E5%8F%AF%E4%BB%A5%E5%BE%88%E6%B8%A9%E6%9A%96%23&Refer=top) `1.0M 🔥`
-1. [北京确诊病例曾坐地铁1号线和4号线](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E7%A1%AE%E8%AF%8A%E7%97%85%E4%BE%8B%E6%9B%BE%E5%9D%90%E5%9C%B0%E9%93%811%E5%8F%B7%E7%BA%BF%E5%92%8C4%E5%8F%B7%E7%BA%BF%23&Refer=top) `993.7K 🔥`
-1. [郑爽张恒父母录音](https://s.weibo.com/weibo?q=%E9%83%91%E7%88%BD%E5%BC%A0%E6%81%92%E7%88%B6%E6%AF%8D%E5%BD%95%E9%9F%B3&Refer=top) `992.4K 🔥`
-1. [上海公交车急刹致一女子死亡](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E5%85%AC%E4%BA%A4%E8%BD%A6%E6%80%A5%E5%88%B9%E8%87%B4%E4%B8%80%E5%A5%B3%E5%AD%90%E6%AD%BB%E4%BA%A1%23&Refer=top) `976.2K 🔥`
 
-数据更新于 2021-01-18 19:11:56
+数据更新于 2021-01-18 20:01:43
 
 <!-- END -->
 
