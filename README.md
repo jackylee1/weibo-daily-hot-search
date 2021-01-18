@@ -11,6 +11,7 @@
 1. [特朗普离任前将发布100项特赦和减刑令](https://s.weibo.com/weibo?q=%E7%89%B9%E6%9C%97%E6%99%AE%E7%A6%BB%E4%BB%BB%E5%89%8D%E5%B0%86%E5%8F%91%E5%B8%83100%E9%A1%B9%E7%89%B9%E8%B5%A6%E5%92%8C%E5%87%8F%E5%88%91%E4%BB%A4&Refer=top) `7.5M 🔥`
 1. [郑爽](https://s.weibo.com/weibo?q=%E9%83%91%E7%88%BD&Refer=top) `7.4M 🔥`
 1. [中方决定对美对等制裁](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E6%96%B9%E5%86%B3%E5%AE%9A%E5%AF%B9%E7%BE%8E%E5%AF%B9%E7%AD%89%E5%88%B6%E8%A3%81%23&Refer=top) `7.1M 🔥`
+1. [2例无症状曾乘Z216次和K262次列车](https://s.weibo.com/weibo?q=%232%E4%BE%8B%E6%97%A0%E7%97%87%E7%8A%B6%E6%9B%BE%E4%B9%98Z216%E6%AC%A1%E5%92%8CK262%E6%AC%A1%E5%88%97%E8%BD%A6%23&Refer=top) `4.6M 🔥`
 1. [林珊珊大白离婚](https://s.weibo.com/weibo?q=%23%E6%9E%97%E7%8F%8A%E7%8F%8A%E5%A4%A7%E7%99%BD%E7%A6%BB%E5%A9%9A%23&Refer=top) `4.1M 🔥`
 1. [62岁刘芸妈妈状态](https://s.weibo.com/weibo?q=%2362%E5%B2%81%E5%88%98%E8%8A%B8%E5%A6%88%E5%A6%88%E7%8A%B6%E6%80%81%23&Refer=top) `3.5M 🔥`
 1. [微信bug](https://s.weibo.com/weibo?q=%23%E5%BE%AE%E4%BF%A1bug%23&Refer=top) `3.3M 🔥`
@@ -23,7 +24,6 @@
 1. [孙怡家的小鸡被野猫给叼走了](https://s.weibo.com/weibo?q=%23%E5%AD%99%E6%80%A1%E5%AE%B6%E7%9A%84%E5%B0%8F%E9%B8%A1%E8%A2%AB%E9%87%8E%E7%8C%AB%E7%BB%99%E5%8F%BC%E8%B5%B0%E4%BA%86%23&Refer=top) `2.6M 🔥`
 1. [傅菁 我的腿不是很完美](https://s.weibo.com/weibo?q=%E5%82%85%E8%8F%81%20%E6%88%91%E7%9A%84%E8%85%BF%E4%B8%8D%E6%98%AF%E5%BE%88%E5%AE%8C%E7%BE%8E&Refer=top) `2.5M 🔥`
 1. [Prada的眼泪PradaPrada的掉](https://s.weibo.com/weibo?q=%23Prada%E7%9A%84%E7%9C%BC%E6%B3%AAPradaPrada%E7%9A%84%E6%8E%89%23&Refer=top) `2.5M 🔥`
-1. [2例无症状曾乘Z216次和K262次列车](https://s.weibo.com/weibo?q=%232%E4%BE%8B%E6%97%A0%E7%97%87%E7%8A%B6%E6%9B%BE%E4%B9%98Z216%E6%AC%A1%E5%92%8CK262%E6%AC%A1%E5%88%97%E8%BD%A6%23&Refer=top) `2.4M 🔥`
 1. [郑爽张恒父母录音](https://s.weibo.com/weibo?q=%23%E9%83%91%E7%88%BD%E5%BC%A0%E6%81%92%E7%88%B6%E6%AF%8D%E5%BD%95%E9%9F%B3%23&Refer=top) `2.3M 🔥`
 1. [基金](https://s.weibo.com/weibo?q=%E5%9F%BA%E9%87%91&Refer=top) `2.2M 🔥`
 1. [北京确诊病例曾坐地铁1号线和4号线](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E7%A1%AE%E8%AF%8A%E7%97%85%E4%BE%8B%E6%9B%BE%E5%9D%90%E5%9C%B0%E9%93%811%E5%8F%B7%E7%BA%BF%E5%92%8C4%E5%8F%B7%E7%BA%BF%23&Refer=top) `2.0M 🔥`
@@ -57,7 +57,7 @@
 1. [幼儿园3岁女童身上现29处针眼](https://s.weibo.com/weibo?q=%23%E5%B9%BC%E5%84%BF%E5%9B%AD3%E5%B2%81%E5%A5%B3%E7%AB%A5%E8%BA%AB%E4%B8%8A%E7%8E%B029%E5%A4%84%E9%92%88%E7%9C%BC%23&Refer=top) `1.1M 🔥`
 1. [我们哭着降临世界却可以笑着走向永恒](https://s.weibo.com/weibo?q=%23%E6%88%91%E4%BB%AC%E5%93%AD%E7%9D%80%E9%99%8D%E4%B8%B4%E4%B8%96%E7%95%8C%E5%8D%B4%E5%8F%AF%E4%BB%A5%E7%AC%91%E7%9D%80%E8%B5%B0%E5%90%91%E6%B0%B8%E6%81%92%23&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-01-18 20:58:24
+数据更新于 2021-01-18 22:00:36
 
 <!-- END -->
 
