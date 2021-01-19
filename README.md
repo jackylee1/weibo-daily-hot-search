@@ -17,7 +17,7 @@
 1. [世卫组织批评新冠疫苗分配不均](https://s.weibo.com/weibo?q=%23%E4%B8%96%E5%8D%AB%E7%BB%84%E7%BB%87%E6%89%B9%E8%AF%84%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E5%88%86%E9%85%8D%E4%B8%8D%E5%9D%87%23&Refer=top) `9.5M 🔥`
 1. [特朗普下令取消巴西和欧洲的旅行禁令](https://s.weibo.com/weibo?q=%E7%89%B9%E6%9C%97%E6%99%AE%E4%B8%8B%E4%BB%A4%E5%8F%96%E6%B6%88%E5%B7%B4%E8%A5%BF%E5%92%8C%E6%AC%A7%E6%B4%B2%E7%9A%84%E6%97%85%E8%A1%8C%E7%A6%81%E4%BB%A4&Refer=top) `8.0M 🔥`
 1. [董洁](https://s.weibo.com/weibo?q=%E8%91%A3%E6%B4%81&Refer=top) `5.9M 🔥`
-1. [微信bug](https://s.weibo.com/weibo?q=%E5%BE%AE%E4%BF%A1bug&Refer=top) `4.5M 🔥`
+1. [微信bug](https://s.weibo.com/weibo?q=%E5%BE%AE%E4%BF%A1bug&Refer=top) `5.2M 🔥`
 1. [山东已发现的12名被困矿工有1人昏迷](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E4%B8%9C%E5%B7%B2%E5%8F%91%E7%8E%B0%E7%9A%8412%E5%90%8D%E8%A2%AB%E5%9B%B0%E7%9F%BF%E5%B7%A5%E6%9C%891%E4%BA%BA%E6%98%8F%E8%BF%B7%23&Refer=top) `4.5M 🔥`
 1. [汇源果汁退市](https://s.weibo.com/weibo?q=%E6%B1%87%E6%BA%90%E6%9E%9C%E6%B1%81%E9%80%80%E5%B8%82&Refer=top) `4.5M 🔥`
 1. [奶茶有被腊八粥冒犯到](https://s.weibo.com/weibo?q=%23%E5%A5%B6%E8%8C%B6%E6%9C%89%E8%A2%AB%E8%85%8A%E5%85%AB%E7%B2%A5%E5%86%92%E7%8A%AF%E5%88%B0%23&Refer=top) `4.5M 🔥`
@@ -57,7 +57,7 @@
 1. [基金](https://s.weibo.com/weibo?q=%E5%9F%BA%E9%87%91&Refer=top) `2.6M 🔥`
 1. [北京下雪](https://s.weibo.com/weibo?q=%E5%8C%97%E4%BA%AC%E4%B8%8B%E9%9B%AA&Refer=top) `2.5M 🔥`
 
-数据更新于 2021-01-19 22:07:29
+数据更新于 2021-01-19 22:51:15
 
 <!-- END -->
 
