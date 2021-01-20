@@ -10,6 +10,7 @@
 1. [华鼎奖取消郑爽荣誉称号](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E9%BC%8E%E5%A5%96%E5%8F%96%E6%B6%88%E9%83%91%E7%88%BD%E8%8D%A3%E8%AA%89%E7%A7%B0%E5%8F%B7%23&Refer=top) `11.8M 🔥`
 1. [李雨桐当妈](https://s.weibo.com/weibo?q=%E6%9D%8E%E9%9B%A8%E6%A1%90%E5%BD%93%E5%A6%88&Refer=top) `9.2M 🔥`
 1. [春节返乡需持7日内核酸阴性证明](https://s.weibo.com/weibo?q=%23%E6%98%A5%E8%8A%82%E8%BF%94%E4%B9%A1%E9%9C%80%E6%8C%817%E6%97%A5%E5%86%85%E6%A0%B8%E9%85%B8%E9%98%B4%E6%80%A7%E8%AF%81%E6%98%8E%23&Refer=top) `8.6M 🔥`
+1. [农村药店发现买退烧药的患者2小时内报告](https://s.weibo.com/weibo?q=%23%E5%86%9C%E6%9D%91%E8%8D%AF%E5%BA%97%E5%8F%91%E7%8E%B0%E4%B9%B0%E9%80%80%E7%83%A7%E8%8D%AF%E7%9A%84%E6%82%A3%E8%80%852%E5%B0%8F%E6%97%B6%E5%86%85%E6%8A%A5%E5%91%8A%23&Refer=top) `7.4M 🔥`
 1. [家庭教育不得有任何形式家庭暴力](https://s.weibo.com/weibo?q=%23%E5%AE%B6%E5%BA%AD%E6%95%99%E8%82%B2%E4%B8%8D%E5%BE%97%E6%9C%89%E4%BB%BB%E4%BD%95%E5%BD%A2%E5%BC%8F%E5%AE%B6%E5%BA%AD%E6%9A%B4%E5%8A%9B%23&Refer=top) `6.7M 🔥`
 1. [外交部](https://s.weibo.com/weibo?q=%E5%A4%96%E4%BA%A4%E9%83%A8&Refer=top) `6.1M 🔥`
 1. [中央政法委评郑爽代孕弃养](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%A4%AE%E6%94%BF%E6%B3%95%E5%A7%94%E8%AF%84%E9%83%91%E7%88%BD%E4%BB%A3%E5%AD%95%E5%BC%83%E5%85%BB%23&Refer=top) `5.5M 🔥`
@@ -55,9 +56,8 @@
 1. [张豆豆于家翊终于在一起了](https://s.weibo.com/weibo?q=%E5%BC%A0%E8%B1%86%E8%B1%86%E4%BA%8E%E5%AE%B6%E7%BF%8A%E7%BB%88%E4%BA%8E%E5%9C%A8%E4%B8%80%E8%B5%B7%E4%BA%86&Refer=top) `1.7M 🔥`
 1. [廊坊新增1例无症状感染者](https://s.weibo.com/weibo?q=%E5%BB%8A%E5%9D%8A%E6%96%B0%E5%A2%9E1%E4%BE%8B%E6%97%A0%E7%97%87%E7%8A%B6%E6%84%9F%E6%9F%93%E8%80%85&Refer=top) `1.6M 🔥`
 1. [顺丰小程序和官网崩了](https://s.weibo.com/weibo?q=%E9%A1%BA%E4%B8%B0%E5%B0%8F%E7%A8%8B%E5%BA%8F%E5%92%8C%E5%AE%98%E7%BD%91%E5%B4%A9%E4%BA%86&Refer=top) `1.6M 🔥`
-1. [中疾控建议外出就餐不超过两小时](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E7%96%BE%E6%8E%A7%E5%BB%BA%E8%AE%AE%E5%A4%96%E5%87%BA%E5%B0%B1%E9%A4%90%E4%B8%8D%E8%B6%85%E8%BF%87%E4%B8%A4%E5%B0%8F%E6%97%B6%23&Refer=top) `1.5M 🔥`
 
-数据更新于 2021-01-20 22:06:30
+数据更新于 2021-01-20 22:52:29
 
 <!-- END -->
 
