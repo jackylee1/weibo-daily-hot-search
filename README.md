@@ -12,13 +12,17 @@
 1. [那英问张馨予李菲儿你俩谁啊](https://s.weibo.com/weibo?q=%23%E9%82%A3%E8%8B%B1%E9%97%AE%E5%BC%A0%E9%A6%A8%E4%BA%88%E6%9D%8E%E8%8F%B2%E5%84%BF%E4%BD%A0%E4%BF%A9%E8%B0%81%E5%95%8A%23&Refer=top) `5.7M 🔥`
 1. [张柏芝问自我介绍要不要报身份证号](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%9F%8F%E8%8A%9D%E9%97%AE%E8%87%AA%E6%88%91%E4%BB%8B%E7%BB%8D%E8%A6%81%E4%B8%8D%E8%A6%81%E6%8A%A5%E8%BA%AB%E4%BB%BD%E8%AF%81%E5%8F%B7%23&Refer=top) `3.8M 🔥`
 1. [上海新增6例本地确诊](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E6%96%B0%E5%A2%9E6%E4%BE%8B%E6%9C%AC%E5%9C%B0%E7%A1%AE%E8%AF%8A%23&Refer=top) `3.5M 🔥`
+1. [女孩狂奔上班被保安追着消毒](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%A9%E7%8B%82%E5%A5%94%E4%B8%8A%E7%8F%AD%E8%A2%AB%E4%BF%9D%E5%AE%89%E8%BF%BD%E7%9D%80%E6%B6%88%E6%AF%92%23&Refer=top) `3.5M 🔥`
+1. [杜华说容祖儿长得像吴宣仪所以给高分](https://s.weibo.com/weibo?q=%E6%9D%9C%E5%8D%8E%E8%AF%B4%E5%AE%B9%E7%A5%96%E5%84%BF%E9%95%BF%E5%BE%97%E5%83%8F%E5%90%B4%E5%AE%A3%E4%BB%AA%E6%89%80%E4%BB%A5%E7%BB%99%E9%AB%98%E5%88%86&Refer=top) `3.3M 🔥`
 1. [西藏冒险王 视频声音](https://s.weibo.com/weibo?q=%E8%A5%BF%E8%97%8F%E5%86%92%E9%99%A9%E7%8E%8B%20%E8%A7%86%E9%A2%91%E5%A3%B0%E9%9F%B3&Refer=top) `3.3M 🔥`
 1. [杨幂 只有我们看选秀的人懂](https://s.weibo.com/weibo?q=%E6%9D%A8%E5%B9%82%20%E5%8F%AA%E6%9C%89%E6%88%91%E4%BB%AC%E7%9C%8B%E9%80%89%E7%A7%80%E7%9A%84%E4%BA%BA%E6%87%82&Refer=top) `3.0M 🔥`
 1. [许晴状态](https://s.weibo.com/weibo?q=%23%E8%AE%B8%E6%99%B4%E7%8A%B6%E6%80%81%23&Refer=top) `2.8M 🔥`
+1. [警方通报杭州一医院疑似爆燃致4人受伤](https://s.weibo.com/weibo?q=%23%E8%AD%A6%E6%96%B9%E9%80%9A%E6%8A%A5%E6%9D%AD%E5%B7%9E%E4%B8%80%E5%8C%BB%E9%99%A2%E7%96%91%E4%BC%BC%E7%88%86%E7%87%83%E8%87%B44%E4%BA%BA%E5%8F%97%E4%BC%A4%23&Refer=top) `2.8M 🔥`
 1. [微信黄脸表情会动了](https://s.weibo.com/weibo?q=%23%E5%BE%AE%E4%BF%A1%E9%BB%84%E8%84%B8%E8%A1%A8%E6%83%85%E4%BC%9A%E5%8A%A8%E4%BA%86%23&Refer=top) `2.4M 🔥`
 1. [上海离异3年内住房数按离异前总套数计算](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E7%A6%BB%E5%BC%823%E5%B9%B4%E5%86%85%E4%BD%8F%E6%88%BF%E6%95%B0%E6%8C%89%E7%A6%BB%E5%BC%82%E5%89%8D%E6%80%BB%E5%A5%97%E6%95%B0%E8%AE%A1%E7%AE%97%23&Refer=top) `2.4M 🔥`
+1. [上海疫情](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E7%96%AB%E6%83%85%23&Refer=top) `2.3M 🔥`
+1. [那英跳舞 作法现场](https://s.weibo.com/weibo?q=%E9%82%A3%E8%8B%B1%E8%B7%B3%E8%88%9E%20%E4%BD%9C%E6%B3%95%E7%8E%B0%E5%9C%BA&Refer=top) `2.3M 🔥`
 1. [焉栩嘉](https://s.weibo.com/weibo?q=%E7%84%89%E6%A0%A9%E5%98%89&Refer=top) `2.2M 🔥`
-1. [上海疫情](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E7%96%AB%E6%83%85%23&Refer=top) `2.2M 🔥`
 1. [拜登承诺全面战争状态抗击疫情](https://s.weibo.com/weibo?q=%23%E6%8B%9C%E7%99%BB%E6%89%BF%E8%AF%BA%E5%85%A8%E9%9D%A2%E6%88%98%E4%BA%89%E7%8A%B6%E6%80%81%E6%8A%97%E5%87%BB%E7%96%AB%E6%83%85%23&Refer=top) `2.0M 🔥`
 1. [B站回应up主墨茶Official被曝去世](https://s.weibo.com/weibo?q=%23B%E7%AB%99%E5%9B%9E%E5%BA%94up%E4%B8%BB%E5%A2%A8%E8%8C%B6Official%E8%A2%AB%E6%9B%9D%E5%8E%BB%E4%B8%96%23&Refer=top) `1.9M 🔥`
 1. [周笔畅 打什么她都会骂你](https://s.weibo.com/weibo?q=%E5%91%A8%E7%AC%94%E7%95%85%20%E6%89%93%E4%BB%80%E4%B9%88%E5%A5%B9%E9%83%BD%E4%BC%9A%E9%AA%82%E4%BD%A0&Refer=top) `1.9M 🔥`
@@ -52,12 +56,8 @@
 1. [诺安](https://s.weibo.com/weibo?q=%E8%AF%BA%E5%AE%89&Refer=top) `1.0M 🔥`
 1. [kingdom](https://s.weibo.com/weibo?q=kingdom&Refer=top) `1.0M 🔥`
 1. [焉栩嘉否认恋情](https://s.weibo.com/weibo?q=%23%E7%84%89%E6%A0%A9%E5%98%89%E5%90%A6%E8%AE%A4%E6%81%8B%E6%83%85%23&Refer=top) `1.0M 🔥`
-1. [日本称东京奥运会不可能再次推迟](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E7%A7%B0%E4%B8%9C%E4%BA%AC%E5%A5%A5%E8%BF%90%E4%BC%9A%E4%B8%8D%E5%8F%AF%E8%83%BD%E5%86%8D%E6%AC%A1%E6%8E%A8%E8%BF%9F%23&Refer=top) `1.0M 🔥`
-1. [半导体](https://s.weibo.com/weibo?q=%E5%8D%8A%E5%AF%BC%E4%BD%93&Refer=top) `1.0M 🔥`
-1. [原来南北方洗脸也有差异](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E5%8D%97%E5%8C%97%E6%96%B9%E6%B4%97%E8%84%B8%E4%B9%9F%E6%9C%89%E5%B7%AE%E5%BC%82%23&Refer=top) `1.0M 🔥`
-1. [墨茶official](https://s.weibo.com/weibo?q=%E5%A2%A8%E8%8C%B6official&Refer=top) `989.7K 🔥`
 
-数据更新于 2021-01-22 14:12:30
+数据更新于 2021-01-22 15:08:00
 
 <!-- END -->
 
