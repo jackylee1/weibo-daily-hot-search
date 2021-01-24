@@ -29,7 +29,10 @@
 1. [江苏镇江确诊病例父亲核酸阳性](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%8B%8F%E9%95%87%E6%B1%9F%E7%A1%AE%E8%AF%8A%E7%97%85%E4%BE%8B%E7%88%B6%E4%BA%B2%E6%A0%B8%E9%85%B8%E9%98%B3%E6%80%A7%23&Refer=top) `1.8M 🔥`
 1. [微信状态还可以这样玩](https://s.weibo.com/weibo?q=%23%E5%BE%AE%E4%BF%A1%E7%8A%B6%E6%80%81%E8%BF%98%E5%8F%AF%E4%BB%A5%E8%BF%99%E6%A0%B7%E7%8E%A9%23&Refer=top) `1.8M 🔥`
 1. [泉州隔离点酒店坍塌详情](https://s.weibo.com/weibo?q=%E6%B3%89%E5%B7%9E%E9%9A%94%E7%A6%BB%E7%82%B9%E9%85%92%E5%BA%97%E5%9D%8D%E5%A1%8C%E8%AF%A6%E6%83%85&Refer=top) `1.8M 🔥`
+1. [吉林双辽重大刑案嫌疑人被抓](https://s.weibo.com/weibo?q=%23%E5%90%89%E6%9E%97%E5%8F%8C%E8%BE%BD%E9%87%8D%E5%A4%A7%E5%88%91%E6%A1%88%E5%AB%8C%E7%96%91%E4%BA%BA%E8%A2%AB%E6%8A%93%23&Refer=top) `1.6M 🔥`
 1. [30人贩卖6亿条个人信息获利800余万](https://s.weibo.com/weibo?q=%2330%E4%BA%BA%E8%B4%A9%E5%8D%966%E4%BA%BF%E6%9D%A1%E4%B8%AA%E4%BA%BA%E4%BF%A1%E6%81%AF%E8%8E%B7%E5%88%A9800%E4%BD%99%E4%B8%87%23&Refer=top) `1.6M 🔥`
+1. [张大仙年度最受欢迎主播](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%A4%A7%E4%BB%99%E5%B9%B4%E5%BA%A6%E6%9C%80%E5%8F%97%E6%AC%A2%E8%BF%8E%E4%B8%BB%E6%92%AD%23&Refer=top) `1.6M 🔥`
+1. [严书记](https://s.weibo.com/weibo?q=%E4%B8%A5%E4%B9%A6%E8%AE%B0&Refer=top) `1.6M 🔥`
 1. [滴滴回应长沙女生乘网约车后失联](https://s.weibo.com/weibo?q=%23%E6%BB%B4%E6%BB%B4%E5%9B%9E%E5%BA%94%E9%95%BF%E6%B2%99%E5%A5%B3%E7%94%9F%E4%B9%98%E7%BD%91%E7%BA%A6%E8%BD%A6%E5%90%8E%E5%A4%B1%E8%81%94%23&Refer=top) `1.4M 🔥`
 1. [英国新冠死亡率全球最高](https://s.weibo.com/weibo?q=%E8%8B%B1%E5%9B%BD%E6%96%B0%E5%86%A0%E6%AD%BB%E4%BA%A1%E7%8E%87%E5%85%A8%E7%90%83%E6%9C%80%E9%AB%98&Refer=top) `1.4M 🔥`
 1. [杭州一企业员工出境后三天核酸检测阳性](https://s.weibo.com/weibo?q=%23%E6%9D%AD%E5%B7%9E%E4%B8%80%E4%BC%81%E4%B8%9A%E5%91%98%E5%B7%A5%E5%87%BA%E5%A2%83%E5%90%8E%E4%B8%89%E5%A4%A9%E6%A0%B8%E9%85%B8%E6%A3%80%E6%B5%8B%E9%98%B3%E6%80%A7%23&Refer=top) `1.4M 🔥`
@@ -47,17 +50,14 @@
 1. [男子驾无牌新车撞行人致4死6伤](https://s.weibo.com/weibo?q=%E7%94%B7%E5%AD%90%E9%A9%BE%E6%97%A0%E7%89%8C%E6%96%B0%E8%BD%A6%E6%92%9E%E8%A1%8C%E4%BA%BA%E8%87%B44%E6%AD%BB6%E4%BC%A4&Refer=top) `1.2M 🔥`
 1. [人民日报评敦煌防护林被毁](https://s.weibo.com/weibo?q=%23%E4%BA%BA%E6%B0%91%E6%97%A5%E6%8A%A5%E8%AF%84%E6%95%A6%E7%85%8C%E9%98%B2%E6%8A%A4%E6%9E%97%E8%A2%AB%E6%AF%81%23&Refer=top) `1.2M 🔥`
 1. [遛狗拴绳入法](https://s.weibo.com/weibo?q=%23%E9%81%9B%E7%8B%97%E6%8B%B4%E7%BB%B3%E5%85%A5%E6%B3%95%23&Refer=top) `1.2M 🔥`
+1. [苏州永鼎医院一门把手核酸检测阳性](https://s.weibo.com/weibo?q=%23%E8%8B%8F%E5%B7%9E%E6%B0%B8%E9%BC%8E%E5%8C%BB%E9%99%A2%E4%B8%80%E9%97%A8%E6%8A%8A%E6%89%8B%E6%A0%B8%E9%85%B8%E6%A3%80%E6%B5%8B%E9%98%B3%E6%80%A7%23&Refer=top) `1.2M 🔥`
 1. [上海人均生产总值突破2.3万美元](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E4%BA%BA%E5%9D%87%E7%94%9F%E4%BA%A7%E6%80%BB%E5%80%BC%E7%AA%81%E7%A0%B42.3%E4%B8%87%E7%BE%8E%E5%85%83%23&Refer=top) `1.2M 🔥`
 1. [新冠病毒疫苗需要每年接种吗](https://s.weibo.com/weibo?q=%23%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E7%96%AB%E8%8B%97%E9%9C%80%E8%A6%81%E6%AF%8F%E5%B9%B4%E6%8E%A5%E7%A7%8D%E5%90%97%23&Refer=top) `1.2M 🔥`
 1. [美国网购退货量飙升](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E7%BD%91%E8%B4%AD%E9%80%80%E8%B4%A7%E9%87%8F%E9%A3%99%E5%8D%87%23&Refer=top) `1.1M 🔥`
 1. [创4制服](https://s.weibo.com/weibo?q=%23%E5%88%9B4%E5%88%B6%E6%9C%8D%23&Refer=top) `1.1M 🔥`
 1. [镇江](https://s.weibo.com/weibo?q=%E9%95%87%E6%B1%9F&Refer=top) `1.1M 🔥`
-1. [竖屏视频能取代横屏吗](https://s.weibo.com/weibo?q=%23%E7%AB%96%E5%B1%8F%E8%A7%86%E9%A2%91%E8%83%BD%E5%8F%96%E4%BB%A3%E6%A8%AA%E5%B1%8F%E5%90%97%23&Refer=top) `1.1M 🔥`
-1. [通化新增确诊2例](https://s.weibo.com/weibo?q=%23%E9%80%9A%E5%8C%96%E6%96%B0%E5%A2%9E%E7%A1%AE%E8%AF%8A2%E4%BE%8B%23&Refer=top) `1.0M 🔥`
-1. [陈钰琪林一吻戏](https://s.weibo.com/weibo?q=%23%E9%99%88%E9%92%B0%E7%90%AA%E6%9E%97%E4%B8%80%E5%90%BB%E6%88%8F%23&Refer=top) `1.0M 🔥`
-1. [张檬发长文告别我就是演员](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%AA%AC%E5%8F%91%E9%95%BF%E6%96%87%E5%91%8A%E5%88%AB%E6%88%91%E5%B0%B1%E6%98%AF%E6%BC%94%E5%91%98%23&Refer=top) `1.0M 🔥`
 
-数据更新于 2021-01-24 20:05:26
+数据更新于 2021-01-24 20:59:16
 
 <!-- END -->
 
