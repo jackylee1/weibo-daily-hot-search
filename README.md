@@ -21,6 +21,7 @@
 1. [今天是慢羊羊的生日](https://s.weibo.com/weibo?q=%23%E4%BB%8A%E5%A4%A9%E6%98%AF%E6%85%A2%E7%BE%8A%E7%BE%8A%E7%9A%84%E7%94%9F%E6%97%A5%23&Refer=top) `2.0M 🔥`
 1. [河北新增本土确诊11例](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8C%97%E6%96%B0%E5%A2%9E%E6%9C%AC%E5%9C%9F%E7%A1%AE%E8%AF%8A11%E4%BE%8B%23&Refer=top) `2.0M 🔥`
 1. [多家银行被曝暂停房贷](https://s.weibo.com/weibo?q=%23%E5%A4%9A%E5%AE%B6%E9%93%B6%E8%A1%8C%E8%A2%AB%E6%9B%9D%E6%9A%82%E5%81%9C%E6%88%BF%E8%B4%B7%23&Refer=top) `2.0M 🔥`
+1. [女员工不想跳舞被辞退](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%91%98%E5%B7%A5%E4%B8%8D%E6%83%B3%E8%B7%B3%E8%88%9E%E8%A2%AB%E8%BE%9E%E9%80%80%23&Refer=top) `1.9M 🔥`
 1. [拜登将恢复对多国旅行限制](https://s.weibo.com/weibo?q=%E6%8B%9C%E7%99%BB%E5%B0%86%E6%81%A2%E5%A4%8D%E5%AF%B9%E5%A4%9A%E5%9B%BD%E6%97%85%E8%A1%8C%E9%99%90%E5%88%B6&Refer=top) `1.9M 🔥`
 1. [黄轩连发两条微博告别山海情](https://s.weibo.com/weibo?q=%23%E9%BB%84%E8%BD%A9%E8%BF%9E%E5%8F%91%E4%B8%A4%E6%9D%A1%E5%BE%AE%E5%8D%9A%E5%91%8A%E5%88%AB%E5%B1%B1%E6%B5%B7%E6%83%85%23&Refer=top) `1.9M 🔥`
 1. [怦然再心动节目组声明](https://s.weibo.com/weibo?q=%23%E6%80%A6%E7%84%B6%E5%86%8D%E5%BF%83%E5%8A%A8%E8%8A%82%E7%9B%AE%E7%BB%84%E5%A3%B0%E6%98%8E%23&Refer=top) `1.8M 🔥`
@@ -48,16 +49,15 @@
 1. [茅台](https://s.weibo.com/weibo?q=%E8%8C%85%E5%8F%B0&Refer=top) `1.1M 🔥`
 1. [买了1月1日后生产的正大食品怎么办](https://s.weibo.com/weibo?q=%23%E4%B9%B0%E4%BA%861%E6%9C%881%E6%97%A5%E5%90%8E%E7%94%9F%E4%BA%A7%E7%9A%84%E6%AD%A3%E5%A4%A7%E9%A3%9F%E5%93%81%E6%80%8E%E4%B9%88%E5%8A%9E%23&Refer=top) `1.1M 🔥`
 1. [疫情造成法国婴儿荒](https://s.weibo.com/weibo?q=%E7%96%AB%E6%83%85%E9%80%A0%E6%88%90%E6%B3%95%E5%9B%BD%E5%A9%B4%E5%84%BF%E8%8D%92&Refer=top) `1.1M 🔥`
+1. [有9名矿工在逃生中遇难](https://s.weibo.com/weibo?q=%23%E6%9C%899%E5%90%8D%E7%9F%BF%E5%B7%A5%E5%9C%A8%E9%80%83%E7%94%9F%E4%B8%AD%E9%81%87%E9%9A%BE%23&Refer=top) `1.1M 🔥`
 1. [导游回应地震遗址怒怼嬉笑游客](https://s.weibo.com/weibo?q=%E5%AF%BC%E6%B8%B8%E5%9B%9E%E5%BA%94%E5%9C%B0%E9%9C%87%E9%81%97%E5%9D%80%E6%80%92%E6%80%BC%E5%AC%89%E7%AC%91%E6%B8%B8%E5%AE%A2&Refer=top) `1.0M 🔥`
 1. [石家庄多地调为低风险](https://s.weibo.com/weibo?q=%23%E7%9F%B3%E5%AE%B6%E5%BA%84%E5%A4%9A%E5%9C%B0%E8%B0%83%E4%B8%BA%E4%BD%8E%E9%A3%8E%E9%99%A9%23&Refer=top) `999.5K 🔥`
 1. [王者荣耀明星表演赛](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E8%80%85%E8%8D%A3%E8%80%80%E6%98%8E%E6%98%9F%E8%A1%A8%E6%BC%94%E8%B5%9B%23&Refer=top) `972.9K 🔥`
 1. [故宫](https://s.weibo.com/weibo?q=%23%E6%95%85%E5%AE%AB%23&Refer=top) `950.9K 🔥`
 1. [熊梓淇 怕你蹭我那点小流量](https://s.weibo.com/weibo?q=%E7%86%8A%E6%A2%93%E6%B7%87%20%E6%80%95%E4%BD%A0%E8%B9%AD%E6%88%91%E9%82%A3%E7%82%B9%E5%B0%8F%E6%B5%81%E9%87%8F&Refer=top) `884.7K 🔥`
 1. [GAI说杨迪妈妈的rap让人着迷](https://s.weibo.com/weibo?q=%23GAI%E8%AF%B4%E6%9D%A8%E8%BF%AA%E5%A6%88%E5%A6%88%E7%9A%84rap%E8%AE%A9%E4%BA%BA%E7%9D%80%E8%BF%B7%23&Refer=top) `868.1K 🔥`
-1. [东京奥运可能空场举办](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E4%BA%AC%E5%A5%A5%E8%BF%90%E5%8F%AF%E8%83%BD%E7%A9%BA%E5%9C%BA%E4%B8%BE%E5%8A%9E%23&Refer=top) `833.0K 🔥`
-1. [阳光之下](https://s.weibo.com/weibo?q=%E9%98%B3%E5%85%89%E4%B9%8B%E4%B8%8B&Refer=top) `830.2K 🔥`
 
-数据更新于 2021-01-25 19:55:16
+数据更新于 2021-01-25 20:23:14
 
 <!-- END -->
 
