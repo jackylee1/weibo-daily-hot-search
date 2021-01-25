@@ -19,6 +19,7 @@
 1. [李香琴追悼会](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E9%A6%99%E7%90%B4%E8%BF%BD%E6%82%BC%E4%BC%9A%23&Refer=top) `796.2K 🔥`
 1. [有9名矿工在逃生中遇难](https://s.weibo.com/weibo?q=%23%E6%9C%899%E5%90%8D%E7%9F%BF%E5%B7%A5%E5%9C%A8%E9%80%83%E7%94%9F%E4%B8%AD%E9%81%87%E9%9A%BE%23&Refer=top) `779.7K 🔥`
 1. [福和褔是同一个字吗](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%92%8C%E8%A4%94%E6%98%AF%E5%90%8C%E4%B8%80%E4%B8%AA%E5%AD%97%E5%90%97%23&Refer=top) `766.8K 🔥`
+1. [周杰伦 要黑也不去看看对象](https://s.weibo.com/weibo?q=%E5%91%A8%E6%9D%B0%E4%BC%A6%20%E8%A6%81%E9%BB%91%E4%B9%9F%E4%B8%8D%E5%8E%BB%E7%9C%8B%E7%9C%8B%E5%AF%B9%E8%B1%A1&Refer=top) `761.8K 🔥`
 1. [张杰为跳跳俏俏讲故事](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%9D%B0%E4%B8%BA%E8%B7%B3%E8%B7%B3%E4%BF%8F%E4%BF%8F%E8%AE%B2%E6%95%85%E4%BA%8B%23&Refer=top) `760.6K 🔥`
 1. [武汉大学为返乡学子免费检测核酸](https://s.weibo.com/weibo?q=%23%E6%AD%A6%E6%B1%89%E5%A4%A7%E5%AD%A6%E4%B8%BA%E8%BF%94%E4%B9%A1%E5%AD%A6%E5%AD%90%E5%85%8D%E8%B4%B9%E6%A3%80%E6%B5%8B%E6%A0%B8%E9%85%B8%23&Refer=top) `744.6K 🔥`
 1. [彭于晏 唐禹哲](https://s.weibo.com/weibo?q=%E5%BD%AD%E4%BA%8E%E6%99%8F%20%E5%94%90%E7%A6%B9%E5%93%B2&Refer=top) `737.1K 🔥`
@@ -53,11 +54,10 @@
 1. [薇娅贾玲跳舞像人间雨刷器](https://s.weibo.com/weibo?q=%23%E8%96%87%E5%A8%85%E8%B4%BE%E7%8E%B2%E8%B7%B3%E8%88%9E%E5%83%8F%E4%BA%BA%E9%97%B4%E9%9B%A8%E5%88%B7%E5%99%A8%23&Refer=top) `246.3K 🔥`
 1. [栖霞金矿10名被困矿工不幸遇难](https://s.weibo.com/weibo?q=%23%E6%A0%96%E9%9C%9E%E9%87%91%E7%9F%BF10%E5%90%8D%E8%A2%AB%E5%9B%B0%E7%9F%BF%E5%B7%A5%E4%B8%8D%E5%B9%B8%E9%81%87%E9%9A%BE%23&Refer=top) `223.7K 🔥`
 1. [正青春](https://s.weibo.com/weibo?q=%23%E6%AD%A3%E9%9D%92%E6%98%A5%23&Refer=top) `203.6K 🔥`
-1. [周杰伦 要黑也不去看看对象](https://s.weibo.com/weibo?q=%E5%91%A8%E6%9D%B0%E4%BC%A6%20%E8%A6%81%E9%BB%91%E4%B9%9F%E4%B8%8D%E5%8E%BB%E7%9C%8B%E7%9C%8B%E5%AF%B9%E8%B1%A1&Refer=top) `203.4K 🔥`
 1. [吴亦凡北京台春晚录制](https://s.weibo.com/weibo?q=%23%E5%90%B4%E4%BA%A6%E5%87%A1%E5%8C%97%E4%BA%AC%E5%8F%B0%E6%98%A5%E6%99%9A%E5%BD%95%E5%88%B6%23&Refer=top) `203.4K 🔥`
 1. [消防员结婚接亲时把窗户拆了](https://s.weibo.com/weibo?q=%23%E6%B6%88%E9%98%B2%E5%91%98%E7%BB%93%E5%A9%9A%E6%8E%A5%E4%BA%B2%E6%97%B6%E6%8A%8A%E7%AA%97%E6%88%B7%E6%8B%86%E4%BA%86%23&Refer=top) `196.6K 🔥`
 
-数据更新于 2021-01-26 06:42:28
+数据更新于 2021-01-26 07:03:59
 
 <!-- END -->
 
