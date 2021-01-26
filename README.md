@@ -32,6 +32,7 @@
 1. [女员工不想跳舞被辞退](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%91%98%E5%B7%A5%E4%B8%8D%E6%83%B3%E8%B7%B3%E8%88%9E%E8%A2%AB%E8%BE%9E%E9%80%80%23&Refer=top) `1.9M 🔥`
 1. [大连本次疫情仅剩1人在院治疗](https://s.weibo.com/weibo?q=%E5%A4%A7%E8%BF%9E%E6%9C%AC%E6%AC%A1%E7%96%AB%E6%83%85%E4%BB%85%E5%89%A91%E4%BA%BA%E5%9C%A8%E9%99%A2%E6%B2%BB%E7%96%97&Refer=top) `1.9M 🔥`
 1. [杨丞琳和潘玮柏见面了](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E4%B8%9E%E7%90%B3%E5%92%8C%E6%BD%98%E7%8E%AE%E6%9F%8F%E8%A7%81%E9%9D%A2%E4%BA%86%23&Refer=top) `1.9M 🔥`
+1. [现实版樊胜美](https://s.weibo.com/weibo?q=%23%E7%8E%B0%E5%AE%9E%E7%89%88%E6%A8%8A%E8%83%9C%E7%BE%8E%23&Refer=top) `1.9M 🔥`
 1. [我国社保卡持卡人数已达13.35亿人](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD%E7%A4%BE%E4%BF%9D%E5%8D%A1%E6%8C%81%E5%8D%A1%E4%BA%BA%E6%95%B0%E5%B7%B2%E8%BE%BE13.35%E4%BA%BF%E4%BA%BA%23&Refer=top) `1.8M 🔥`
 1. [暗恋橘生淮南](https://s.weibo.com/weibo?q=%E6%9A%97%E6%81%8B%E6%A9%98%E7%94%9F%E6%B7%AE%E5%8D%97&Refer=top) `1.8M 🔥`
 1. [你的工资有没有拖欠](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E7%9A%84%E5%B7%A5%E8%B5%84%E6%9C%89%E6%B2%A1%E6%9C%89%E6%8B%96%E6%AC%A0%23&Refer=top) `1.8M 🔥`
@@ -55,9 +56,8 @@
 1. [上海严打茅台加价销售](https://s.weibo.com/weibo?q=%E4%B8%8A%E6%B5%B7%E4%B8%A5%E6%89%93%E8%8C%85%E5%8F%B0%E5%8A%A0%E4%BB%B7%E9%94%80%E5%94%AE&Refer=top) `1.2M 🔥`
 1. [陈翔](https://s.weibo.com/weibo?q=%E9%99%88%E7%BF%94&Refer=top) `1.2M 🔥`
 1. [杭州和事佬](https://s.weibo.com/weibo?q=%E6%9D%AD%E5%B7%9E%E5%92%8C%E4%BA%8B%E4%BD%AC&Refer=top) `1.2M 🔥`
-1. [青你3训练生公式照](https://s.weibo.com/weibo?q=%E9%9D%92%E4%BD%A03%E8%AE%AD%E7%BB%83%E7%94%9F%E5%85%AC%E5%BC%8F%E7%85%A7&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-01-26 21:38:10
+数据更新于 2021-01-26 21:52:44
 
 <!-- END -->
 
