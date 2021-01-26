@@ -37,6 +37,7 @@
 1. [当父母得知你过年不回家时](https://s.weibo.com/weibo?q=%23%E5%BD%93%E7%88%B6%E6%AF%8D%E5%BE%97%E7%9F%A5%E4%BD%A0%E8%BF%87%E5%B9%B4%E4%B8%8D%E5%9B%9E%E5%AE%B6%E6%97%B6%23&Refer=top) `1.1M 🔥`
 1. [刺杀小说家最贵角色](https://s.weibo.com/weibo?q=%E5%88%BA%E6%9D%80%E5%B0%8F%E8%AF%B4%E5%AE%B6%E6%9C%80%E8%B4%B5%E8%A7%92%E8%89%B2&Refer=top) `1.0M 🔥`
 1. [甘肃庆阳跳楼女孩民事案一审判决](https://s.weibo.com/weibo?q=%23%E7%94%98%E8%82%83%E5%BA%86%E9%98%B3%E8%B7%B3%E6%A5%BC%E5%A5%B3%E5%AD%A9%E6%B0%91%E4%BA%8B%E6%A1%88%E4%B8%80%E5%AE%A1%E5%88%A4%E5%86%B3%23&Refer=top) `974.0K 🔥`
+1. [通化新增死亡病例为87岁患者](https://s.weibo.com/weibo?q=%23%E9%80%9A%E5%8C%96%E6%96%B0%E5%A2%9E%E6%AD%BB%E4%BA%A1%E7%97%85%E4%BE%8B%E4%B8%BA87%E5%B2%81%E6%82%A3%E8%80%85%23&Refer=top) `876.3K 🔥`
 1. [贾玲想关掉薇娅直播间的灯](https://s.weibo.com/weibo?q=%23%E8%B4%BE%E7%8E%B2%E6%83%B3%E5%85%B3%E6%8E%89%E8%96%87%E5%A8%85%E7%9B%B4%E6%92%AD%E9%97%B4%E7%9A%84%E7%81%AF%23&Refer=top) `849.2K 🔥`
 1. [外交部回应美方要求大陆停止对台施压](https://s.weibo.com/weibo?q=%23%E5%A4%96%E4%BA%A4%E9%83%A8%E5%9B%9E%E5%BA%94%E7%BE%8E%E6%96%B9%E8%A6%81%E6%B1%82%E5%A4%A7%E9%99%86%E5%81%9C%E6%AD%A2%E5%AF%B9%E5%8F%B0%E6%96%BD%E5%8E%8B%23&Refer=top) `827.8K 🔥`
 1. [白岩松追问通化市市长原因在哪](https://s.weibo.com/weibo?q=%23%E7%99%BD%E5%B2%A9%E6%9D%BE%E8%BF%BD%E9%97%AE%E9%80%9A%E5%8C%96%E5%B8%82%E5%B8%82%E9%95%BF%E5%8E%9F%E5%9B%A0%E5%9C%A8%E5%93%AA%23&Refer=top) `818.4K 🔥`
@@ -47,6 +48,7 @@
 1. [有9名矿工在逃生中遇难](https://s.weibo.com/weibo?q=%23%E6%9C%899%E5%90%8D%E7%9F%BF%E5%B7%A5%E5%9C%A8%E9%80%83%E7%94%9F%E4%B8%AD%E9%81%87%E9%9A%BE%23&Refer=top) `779.7K 🔥`
 1. [杨超越为吴宣仪庆生](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E8%B6%85%E8%B6%8A%E4%B8%BA%E5%90%B4%E5%AE%A3%E4%BB%AA%E5%BA%86%E7%94%9F%23&Refer=top) `775.8K 🔥`
 1. [福和褔是同一个字吗](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%92%8C%E8%A4%94%E6%98%AF%E5%90%8C%E4%B8%80%E4%B8%AA%E5%AD%97%E5%90%97%23&Refer=top) `766.8K 🔥`
+1. [武契奇直言中国疫苗是世界最好](https://s.weibo.com/weibo?q=%E6%AD%A6%E5%A5%91%E5%A5%87%E7%9B%B4%E8%A8%80%E4%B8%AD%E5%9B%BD%E7%96%AB%E8%8B%97%E6%98%AF%E4%B8%96%E7%95%8C%E6%9C%80%E5%A5%BD&Refer=top) `765.0K 🔥`
 1. [印度首都超一半人感染过新冠](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E9%A6%96%E9%83%BD%E8%B6%85%E4%B8%80%E5%8D%8A%E4%BA%BA%E6%84%9F%E6%9F%93%E8%BF%87%E6%96%B0%E5%86%A0%23&Refer=top) `761.8K 🔥`
 1. [张杰为跳跳俏俏讲故事](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%9D%B0%E4%B8%BA%E8%B7%B3%E8%B7%B3%E4%BF%8F%E4%BF%8F%E8%AE%B2%E6%95%85%E4%BA%8B%23&Refer=top) `760.6K 🔥`
 1. [营业厅看到详细上网数据](https://s.weibo.com/weibo?q=%23%E8%90%A5%E4%B8%9A%E5%8E%85%E7%9C%8B%E5%88%B0%E8%AF%A6%E7%BB%86%E4%B8%8A%E7%BD%91%E6%95%B0%E6%8D%AE%23&Refer=top) `753.0K 🔥`
@@ -54,10 +56,8 @@
 1. [go猫粮被曝猫吃后中毒甚至死亡](https://s.weibo.com/weibo?q=%23go%E7%8C%AB%E7%B2%AE%E8%A2%AB%E6%9B%9D%E7%8C%AB%E5%90%83%E5%90%8E%E4%B8%AD%E6%AF%92%E7%94%9A%E8%87%B3%E6%AD%BB%E4%BA%A1%23&Refer=top) `740.9K 🔥`
 1. [彭于晏 唐禹哲](https://s.weibo.com/weibo?q=%E5%BD%AD%E4%BA%8E%E6%99%8F%20%E5%94%90%E7%A6%B9%E5%93%B2&Refer=top) `737.1K 🔥`
 1. [中国人结婚到底要花多少钱](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E4%BA%BA%E7%BB%93%E5%A9%9A%E5%88%B0%E5%BA%95%E8%A6%81%E8%8A%B1%E5%A4%9A%E5%B0%91%E9%92%B1%23&Refer=top) `721.5K 🔥`
-1. [吐槽大会5阵容风暴大片](https://s.weibo.com/weibo?q=%23%E5%90%90%E6%A7%BD%E5%A4%A7%E4%BC%9A5%E9%98%B5%E5%AE%B9%E9%A3%8E%E6%9A%B4%E5%A4%A7%E7%89%87%23&Refer=top) `719.5K 🔥`
-1. [蓝筹](https://s.weibo.com/weibo?q=%E8%93%9D%E7%AD%B9&Refer=top) `717.9K 🔥`
 
-数据更新于 2021-01-26 13:04:13
+数据更新于 2021-01-26 13:30:22
 
 <!-- END -->
 
