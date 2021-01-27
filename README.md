@@ -57,7 +57,7 @@
 1. [比亚迪](https://s.weibo.com/weibo?q=%E6%AF%94%E4%BA%9A%E8%BF%AA&Refer=top) `573.5K 🔥`
 1. [洛洛](https://s.weibo.com/weibo?q=%E6%B4%9B%E6%B4%9B&Refer=top) `567.8K 🔥`
 
-数据更新于 2021-01-27 13:49:05
+数据更新于 2021-01-27 13:56:15
 
 <!-- END -->
 
