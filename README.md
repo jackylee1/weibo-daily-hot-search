@@ -11,11 +11,13 @@
 1. [欧舒丹美国分公司申请破产](https://s.weibo.com/weibo?q=%23%E6%AC%A7%E8%88%92%E4%B8%B9%E7%BE%8E%E5%9B%BD%E5%88%86%E5%85%AC%E5%8F%B8%E7%94%B3%E8%AF%B7%E7%A0%B4%E4%BA%A7%23&Refer=top) `876.6K 🔥`
 1. [易烊千玺工作室声明](https://s.weibo.com/weibo?q=%23%E6%98%93%E7%83%8A%E5%8D%83%E7%8E%BA%E5%B7%A5%E4%BD%9C%E5%AE%A4%E5%A3%B0%E6%98%8E%23&Refer=top) `815.5K 🔥`
 1. [现实版樊胜美家属获赔16万](https://s.weibo.com/weibo?q=%23%E7%8E%B0%E5%AE%9E%E7%89%88%E6%A8%8A%E8%83%9C%E7%BE%8E%E5%AE%B6%E5%B1%9E%E8%8E%B7%E8%B5%9416%E4%B8%87%23&Refer=top) `795.9K 🔥`
+1. [任敏 演员是可以谈恋爱的](https://s.weibo.com/weibo?q=%E4%BB%BB%E6%95%8F%20%E6%BC%94%E5%91%98%E6%98%AF%E5%8F%AF%E4%BB%A5%E8%B0%88%E6%81%8B%E7%88%B1%E7%9A%84&Refer=top) `784.0K 🔥`
 1. [风起霓裳](https://s.weibo.com/weibo?q=%E9%A3%8E%E8%B5%B7%E9%9C%93%E8%A3%B3&Refer=top) `760.9K 🔥`
-1. [任敏 演员是可以谈恋爱的](https://s.weibo.com/weibo?q=%E4%BB%BB%E6%95%8F%20%E6%BC%94%E5%91%98%E6%98%AF%E5%8F%AF%E4%BB%A5%E8%B0%88%E6%81%8B%E7%88%B1%E7%9A%84&Refer=top) `740.5K 🔥`
+1. [为什么昆仑被称为万山之祖](https://s.weibo.com/weibo?q=%23%E4%B8%BA%E4%BB%80%E4%B9%88%E6%98%86%E4%BB%91%E8%A2%AB%E7%A7%B0%E4%B8%BA%E4%B8%87%E5%B1%B1%E4%B9%8B%E7%A5%96%23&Refer=top) `735.3K 🔥`
 1. [持核酸检阴性结果到目的地后不需隔离](https://s.weibo.com/weibo?q=%23%E6%8C%81%E6%A0%B8%E9%85%B8%E6%A3%80%E9%98%B4%E6%80%A7%E7%BB%93%E6%9E%9C%E5%88%B0%E7%9B%AE%E7%9A%84%E5%9C%B0%E5%90%8E%E4%B8%8D%E9%9C%80%E9%9A%94%E7%A6%BB%23&Refer=top) `675.6K 🔥`
 1. [车厘子和海鲜还能放心买吗](https://s.weibo.com/weibo?q=%23%E8%BD%A6%E5%8E%98%E5%AD%90%E5%92%8C%E6%B5%B7%E9%B2%9C%E8%BF%98%E8%83%BD%E6%94%BE%E5%BF%83%E4%B9%B0%E5%90%97%23&Refer=top) `674.3K 🔥`
 1. [取快递女子被造谣出轨案已结束侦查](https://s.weibo.com/weibo?q=%23%E5%8F%96%E5%BF%AB%E9%80%92%E5%A5%B3%E5%AD%90%E8%A2%AB%E9%80%A0%E8%B0%A3%E5%87%BA%E8%BD%A8%E6%A1%88%E5%B7%B2%E7%BB%93%E6%9D%9F%E4%BE%A6%E6%9F%A5%23&Refer=top) `666.5K 🔥`
+1. [江苏溧阳通报水泥厂职工死亡事故](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%8B%8F%E6%BA%A7%E9%98%B3%E9%80%9A%E6%8A%A5%E6%B0%B4%E6%B3%A5%E5%8E%82%E8%81%8C%E5%B7%A5%E6%AD%BB%E4%BA%A1%E4%BA%8B%E6%95%85%23&Refer=top) `661.0K 🔥`
 1. [张碧晨律师声明](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E7%A2%A7%E6%99%A8%E5%BE%8B%E5%B8%88%E5%A3%B0%E6%98%8E%23&Refer=top) `657.5K 🔥`
 1. [明日起泸州老窖全面全国停货](https://s.weibo.com/weibo?q=%23%E6%98%8E%E6%97%A5%E8%B5%B7%E6%B3%B8%E5%B7%9E%E8%80%81%E7%AA%96%E5%85%A8%E9%9D%A2%E5%85%A8%E5%9B%BD%E5%81%9C%E8%B4%A7%23&Refer=top) `651.8K 🔥`
 1. [多家电商平台下架网红血吊坠](https://s.weibo.com/weibo?q=%23%E5%A4%9A%E5%AE%B6%E7%94%B5%E5%95%86%E5%B9%B3%E5%8F%B0%E4%B8%8B%E6%9E%B6%E7%BD%91%E7%BA%A2%E8%A1%80%E5%90%8A%E5%9D%A0%23&Refer=top) `643.8K 🔥`
@@ -26,10 +28,8 @@
 1. [寒王 法克儿](https://s.weibo.com/weibo?q=%E5%AF%92%E7%8E%8B%20%E6%B3%95%E5%85%8B%E5%84%BF&Refer=top) `605.7K 🔥`
 1. [王鸥公开姐姐2行李箱](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E9%B8%A5%E5%85%AC%E5%BC%80%E5%A7%90%E5%A7%902%E8%A1%8C%E6%9D%8E%E7%AE%B1%23&Refer=top) `577.9K 🔥`
 1. [王俊凯工作室律师声明](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E4%BF%8A%E5%87%AF%E5%B7%A5%E4%BD%9C%E5%AE%A4%E5%BE%8B%E5%B8%88%E5%A3%B0%E6%98%8E%23&Refer=top) `570.3K 🔥`
-1. [江苏溧阳通报水泥厂职工死亡事故](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%8B%8F%E6%BA%A7%E9%98%B3%E9%80%9A%E6%8A%A5%E6%B0%B4%E6%B3%A5%E5%8E%82%E8%81%8C%E5%B7%A5%E6%AD%BB%E4%BA%A1%E4%BA%8B%E6%95%85%23&Refer=top) `562.1K 🔥`
 1. [娜扎夸小琉璃好可爱](https://s.weibo.com/weibo?q=%23%E5%A8%9C%E6%89%8E%E5%A4%B8%E5%B0%8F%E7%90%89%E7%92%83%E5%A5%BD%E5%8F%AF%E7%88%B1%23&Refer=top) `550.5K 🔥`
 1. [许魏洲演的是百里守约原型](https://s.weibo.com/weibo?q=%23%E8%AE%B8%E9%AD%8F%E6%B4%B2%E6%BC%94%E7%9A%84%E6%98%AF%E7%99%BE%E9%87%8C%E5%AE%88%E7%BA%A6%E5%8E%9F%E5%9E%8B%23&Refer=top) `533.0K 🔥`
-1. [为什么昆仑被称为万山之祖](https://s.weibo.com/weibo?q=%23%E4%B8%BA%E4%BB%80%E4%B9%88%E6%98%86%E4%BB%91%E8%A2%AB%E7%A7%B0%E4%B8%BA%E4%B8%87%E5%B1%B1%E4%B9%8B%E7%A5%96%23&Refer=top) `521.2K 🔥`
 1. [公交司机猝死不被认定工伤](https://s.weibo.com/weibo?q=%E5%85%AC%E4%BA%A4%E5%8F%B8%E6%9C%BA%E7%8C%9D%E6%AD%BB%E4%B8%8D%E8%A2%AB%E8%AE%A4%E5%AE%9A%E5%B7%A5%E4%BC%A4&Refer=top) `514.0K 🔥`
 1. [女神降临](https://s.weibo.com/weibo?q=%E5%A5%B3%E7%A5%9E%E9%99%8D%E4%B8%B4&Refer=top) `478.9K 🔥`
 1. [赵丽颖国风造型](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E4%B8%BD%E9%A2%96%E5%9B%BD%E9%A3%8E%E9%80%A0%E5%9E%8B%23&Refer=top) `454.6K 🔥`
@@ -37,11 +37,12 @@
 1. [班婳婚前协议](https://s.weibo.com/weibo?q=%23%E7%8F%AD%E5%A9%B3%E5%A9%9A%E5%89%8D%E5%8D%8F%E8%AE%AE%23&Refer=top) `372.3K 🔥`
 1. [南昌伤医者所持针管含有毒除草剂](https://s.weibo.com/weibo?q=%23%E5%8D%97%E6%98%8C%E4%BC%A4%E5%8C%BB%E8%80%85%E6%89%80%E6%8C%81%E9%92%88%E7%AE%A1%E5%90%AB%E6%9C%89%E6%AF%92%E9%99%A4%E8%8D%89%E5%89%82%23&Refer=top) `348.6K 🔥`
 1. [国家卫健委回应江西吉水恶性伤医案](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E5%AE%B6%E5%8D%AB%E5%81%A5%E5%A7%94%E5%9B%9E%E5%BA%94%E6%B1%9F%E8%A5%BF%E5%90%89%E6%B0%B4%E6%81%B6%E6%80%A7%E4%BC%A4%E5%8C%BB%E6%A1%88%23&Refer=top) `327.8K 🔥`
+1. [黑龙江新增28例确诊](https://s.weibo.com/weibo?q=%23%E9%BB%91%E9%BE%99%E6%B1%9F%E6%96%B0%E5%A2%9E28%E4%BE%8B%E7%A1%AE%E8%AF%8A%23&Refer=top) `319.4K 🔥`
 1. [美股](https://s.weibo.com/weibo?q=%E7%BE%8E%E8%82%A1&Refer=top) `304.1K 🔥`
 1. [iOS14.4](https://s.weibo.com/weibo?q=iOS14.4&Refer=top) `303.5K 🔥`
 1. [公司回应公交司机猝死不被认定工伤](https://s.weibo.com/weibo?q=%E5%85%AC%E5%8F%B8%E5%9B%9E%E5%BA%94%E5%85%AC%E4%BA%A4%E5%8F%B8%E6%9C%BA%E7%8C%9D%E6%AD%BB%E4%B8%8D%E8%A2%AB%E8%AE%A4%E5%AE%9A%E5%B7%A5%E4%BC%A4&Refer=top) `303.4K 🔥`
-1. [美国新冠肺炎超2554万例](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E6%96%B0%E5%86%A0%E8%82%BA%E7%82%8E%E8%B6%852554%E4%B8%87%E4%BE%8B%23&Refer=top) `269.1K 🔥`
-1. [黑龙江新增28例确诊](https://s.weibo.com/weibo?q=%23%E9%BB%91%E9%BE%99%E6%B1%9F%E6%96%B0%E5%A2%9E28%E4%BE%8B%E7%A1%AE%E8%AF%8A%23&Refer=top) `263.0K 🔥`
+1. [美国新冠肺炎超2554万例](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E6%96%B0%E5%86%A0%E8%82%BA%E7%82%8E%E8%B6%852554%E4%B8%87%E4%BE%8B%23&Refer=top) `295.2K 🔥`
+1. [高嘉朗对粉丝说抱歉](https://s.weibo.com/weibo?q=%E9%AB%98%E5%98%89%E6%9C%97%E5%AF%B9%E7%B2%89%E4%B8%9D%E8%AF%B4%E6%8A%B1%E6%AD%89&Refer=top) `278.3K 🔥`
 1. [范丞丞方声明](https://s.weibo.com/weibo?q=%23%E8%8C%83%E4%B8%9E%E4%B8%9E%E6%96%B9%E5%A3%B0%E6%98%8E%23&Refer=top) `262.7K 🔥`
 1. [联邦法官叫停拜登政府移民新规](https://s.weibo.com/weibo?q=%23%E8%81%94%E9%82%A6%E6%B3%95%E5%AE%98%E5%8F%AB%E5%81%9C%E6%8B%9C%E7%99%BB%E6%94%BF%E5%BA%9C%E7%A7%BB%E6%B0%91%E6%96%B0%E8%A7%84%23&Refer=top) `262.5K 🔥`
 1. [吴磊工作室声明](https://s.weibo.com/weibo?q=%23%E5%90%B4%E7%A3%8A%E5%B7%A5%E4%BD%9C%E5%AE%A4%E5%A3%B0%E6%98%8E%23&Refer=top) `262.2K 🔥`
@@ -55,9 +56,8 @@
 1. [北京每个手机号春节可免费领20G流量](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E6%AF%8F%E4%B8%AA%E6%89%8B%E6%9C%BA%E5%8F%B7%E6%98%A5%E8%8A%82%E5%8F%AF%E5%85%8D%E8%B4%B9%E9%A2%8620G%E6%B5%81%E9%87%8F%23&Refer=top) `212.4K 🔥`
 1. [百变大咖秀](https://s.weibo.com/weibo?q=%E7%99%BE%E5%8F%98%E5%A4%A7%E5%92%96%E7%A7%80&Refer=top) `207.2K 🔥`
 1. [刘宇宁唱让酒](https://s.weibo.com/weibo?q=%23%E5%88%98%E5%AE%87%E5%AE%81%E5%94%B1%E8%AE%A9%E9%85%92%23&Refer=top) `202.4K 🔥`
-1. [上阳赋](https://s.weibo.com/weibo?q=%E4%B8%8A%E9%98%B3%E8%B5%8B&Refer=top) `201.9K 🔥`
 
-数据更新于 2021-01-28 07:54:20
+数据更新于 2021-01-28 08:03:23
 
 <!-- END -->
 
