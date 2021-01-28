@@ -9,7 +9,7 @@
 1. [马可宣布结婚](https://s.weibo.com/weibo?q=%E9%A9%AC%E5%8F%AF%E5%AE%A3%E5%B8%83%E7%BB%93%E5%A9%9A&Refer=top) `13.2M 🔥`
 1. [郎朗吉娜得子](https://s.weibo.com/weibo?q=%E9%83%8E%E6%9C%97%E5%90%89%E5%A8%9C%E5%BE%97%E5%AD%90&Refer=top) `6.9M 🔥`
 1. [孟佳新歌封面 抄袭](https://s.weibo.com/weibo?q=%E5%AD%9F%E4%BD%B3%E6%96%B0%E6%AD%8C%E5%B0%81%E9%9D%A2%20%E6%8A%84%E8%A2%AD&Refer=top) `6.3M 🔥`
-1. [赵立坚连说3遍中国没有种族灭绝](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E7%AB%8B%E5%9D%9A%E8%BF%9E%E8%AF%B43%E9%81%8D%E4%B8%AD%E5%9B%BD%E6%B2%A1%E6%9C%89%E7%A7%8D%E6%97%8F%E7%81%AD%E7%BB%9D%23&Refer=top) `5.6M 🔥`
+1. [赵立坚连说3遍中国没有种族灭绝](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E7%AB%8B%E5%9D%9A%E8%BF%9E%E8%AF%B43%E9%81%8D%E4%B8%AD%E5%9B%BD%E6%B2%A1%E6%9C%89%E7%A7%8D%E6%97%8F%E7%81%AD%E7%BB%9D%23&Refer=top) `5.8M 🔥`
 1. [新iPhone在中国创下历史最高纪录](https://s.weibo.com/weibo?q=%23%E6%96%B0iPhone%E5%9C%A8%E4%B8%AD%E5%9B%BD%E5%88%9B%E4%B8%8B%E5%8E%86%E5%8F%B2%E6%9C%80%E9%AB%98%E7%BA%AA%E5%BD%95%23&Refer=top) `4.1M 🔥`
 1. [霍建华为林心如庆生照](https://s.weibo.com/weibo?q=%23%E9%9C%8D%E5%BB%BA%E5%8D%8E%E4%B8%BA%E6%9E%97%E5%BF%83%E5%A6%82%E5%BA%86%E7%94%9F%E7%85%A7%23&Refer=top) `3.8M 🔥`
 1. [老年人刷身份证可核验健康码](https://s.weibo.com/weibo?q=%23%E8%80%81%E5%B9%B4%E4%BA%BA%E5%88%B7%E8%BA%AB%E4%BB%BD%E8%AF%81%E5%8F%AF%E6%A0%B8%E9%AA%8C%E5%81%A5%E5%BA%B7%E7%A0%81%23&Refer=top) `3.7M 🔥`
@@ -52,12 +52,12 @@
 1. [玲珑定档](https://s.weibo.com/weibo?q=%23%E7%8E%B2%E7%8F%91%E5%AE%9A%E6%A1%A3%23&Refer=top) `987.5K 🔥`
 1. [进口的车厘子还能吃吗](https://s.weibo.com/weibo?q=%23%E8%BF%9B%E5%8F%A3%E7%9A%84%E8%BD%A6%E5%8E%98%E5%AD%90%E8%BF%98%E8%83%BD%E5%90%83%E5%90%97%23&Refer=top) `985.0K 🔥`
 1. [詹姆斯恶意犯规](https://s.weibo.com/weibo?q=%E8%A9%B9%E5%A7%86%E6%96%AF%E6%81%B6%E6%84%8F%E7%8A%AF%E8%A7%84&Refer=top) `963.9K 🔥`
+1. [奇葩说](https://s.weibo.com/weibo?q=%E5%A5%87%E8%91%A9%E8%AF%B4&Refer=top) `950.3K 🔥`
 1. [为什么昆仑被称为万山之祖](https://s.weibo.com/weibo?q=%23%E4%B8%BA%E4%BB%80%E4%B9%88%E6%98%86%E4%BB%91%E8%A2%AB%E7%A7%B0%E4%B8%BA%E4%B8%87%E5%B1%B1%E4%B9%8B%E7%A5%96%23&Refer=top) `933.0K 🔥`
 1. [基金](https://s.weibo.com/weibo?q=%E5%9F%BA%E9%87%91&Refer=top) `916.5K 🔥`
 1. [部分国家恐将辉瑞告上法庭](https://s.weibo.com/weibo?q=%23%E9%83%A8%E5%88%86%E5%9B%BD%E5%AE%B6%E6%81%90%E5%B0%86%E8%BE%89%E7%91%9E%E5%91%8A%E4%B8%8A%E6%B3%95%E5%BA%AD%23&Refer=top) `911.2K 🔥`
-1. [通化疫情0号传染源](https://s.weibo.com/weibo?q=%23%E9%80%9A%E5%8C%96%E7%96%AB%E6%83%850%E5%8F%B7%E4%BC%A0%E6%9F%93%E6%BA%90%23&Refer=top) `909.6K 🔥`
 
-数据更新于 2021-01-28 22:44:21
+数据更新于 2021-01-28 22:56:49
 
 <!-- END -->
 
