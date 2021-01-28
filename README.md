@@ -17,7 +17,7 @@
 1. [白宇姚晨吻戏](https://s.weibo.com/weibo?q=%E7%99%BD%E5%AE%87%E5%A7%9A%E6%99%A8%E5%90%BB%E6%88%8F&Refer=top) `3.1M 🔥`
 1. [孟佳半裸封面](https://s.weibo.com/weibo?q=%23%E5%AD%9F%E4%BD%B3%E5%8D%8A%E8%A3%B8%E5%B0%81%E9%9D%A2%23&Refer=top) `3.1M 🔥`
 1. [Halsey怀孕](https://s.weibo.com/weibo?q=Halsey%E6%80%80%E5%AD%95&Refer=top) `3.1M 🔥`
-1. [赵立坚连说3遍中国没有种族灭绝](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E7%AB%8B%E5%9D%9A%E8%BF%9E%E8%AF%B43%E9%81%8D%E4%B8%AD%E5%9B%BD%E6%B2%A1%E6%9C%89%E7%A7%8D%E6%97%8F%E7%81%AD%E7%BB%9D%23&Refer=top) `3.0M 🔥`
+1. [赵立坚连说3遍中国没有种族灭绝](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E7%AB%8B%E5%9D%9A%E8%BF%9E%E8%AF%B43%E9%81%8D%E4%B8%AD%E5%9B%BD%E6%B2%A1%E6%9C%89%E7%A7%8D%E6%97%8F%E7%81%AD%E7%BB%9D%23&Refer=top) `3.1M 🔥`
 1. [日政府不认为中国在新疆实施种族灭绝](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%94%BF%E5%BA%9C%E4%B8%8D%E8%AE%A4%E4%B8%BA%E4%B8%AD%E5%9B%BD%E5%9C%A8%E6%96%B0%E7%96%86%E5%AE%9E%E6%96%BD%E7%A7%8D%E6%97%8F%E7%81%AD%E7%BB%9D%23&Refer=top) `2.9M 🔥`
 1. [一千年前小朋友写的字](https://s.weibo.com/weibo?q=%23%E4%B8%80%E5%8D%83%E5%B9%B4%E5%89%8D%E5%B0%8F%E6%9C%8B%E5%8F%8B%E5%86%99%E7%9A%84%E5%AD%97%23&Refer=top) `2.7M 🔥`
 1. [中纪委评女子称支书草包被行拘](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E7%BA%AA%E5%A7%94%E8%AF%84%E5%A5%B3%E5%AD%90%E7%A7%B0%E6%94%AF%E4%B9%A6%E8%8D%89%E5%8C%85%E8%A2%AB%E8%A1%8C%E6%8B%98%23&Refer=top) `2.6M 🔥`
@@ -43,10 +43,11 @@
 1. [央视网络春晚阵容官宣](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E7%BD%91%E7%BB%9C%E6%98%A5%E6%99%9A%E9%98%B5%E5%AE%B9%E5%AE%98%E5%AE%A3%23&Refer=top) `1.1M 🔥`
 1. [阳光之下](https://s.weibo.com/weibo?q=%E9%98%B3%E5%85%89%E4%B9%8B%E4%B8%8B&Refer=top) `1.0M 🔥`
 1. [陈伟霆舒畅自拍合影](https://s.weibo.com/weibo?q=%23%E9%99%88%E4%BC%9F%E9%9C%86%E8%88%92%E7%95%85%E8%87%AA%E6%8B%8D%E5%90%88%E5%BD%B1%23&Refer=top) `1.0M 🔥`
+1. [老婆年薪百万要不要当全职爸爸](https://s.weibo.com/weibo?q=%E8%80%81%E5%A9%86%E5%B9%B4%E8%96%AA%E7%99%BE%E4%B8%87%E8%A6%81%E4%B8%8D%E8%A6%81%E5%BD%93%E5%85%A8%E8%81%8C%E7%88%B8%E7%88%B8&Refer=top) `1.0M 🔥`
 1. [家庭摄像头隐私保护存漏洞](https://s.weibo.com/weibo?q=%23%E5%AE%B6%E5%BA%AD%E6%91%84%E5%83%8F%E5%A4%B4%E9%9A%90%E7%A7%81%E4%BF%9D%E6%8A%A4%E5%AD%98%E6%BC%8F%E6%B4%9E%23&Refer=top) `1.0M 🔥`
 1. [范丞丞方声明](https://s.weibo.com/weibo?q=%23%E8%8C%83%E4%B8%9E%E4%B8%9E%E6%96%B9%E5%A3%B0%E6%98%8E%23&Refer=top) `1.0M 🔥`
 1. [迪丽热巴无台词表演](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E6%97%A0%E5%8F%B0%E8%AF%8D%E8%A1%A8%E6%BC%94%23&Refer=top) `1.0M 🔥`
-1. [玲珑定档](https://s.weibo.com/weibo?q=%23%E7%8E%B2%E7%8F%91%E5%AE%9A%E6%A1%A3%23&Refer=top) `967.8K 🔥`
+1. [玲珑定档](https://s.weibo.com/weibo?q=%23%E7%8E%B2%E7%8F%91%E5%AE%9A%E6%A1%A3%23&Refer=top) `987.5K 🔥`
 1. [詹姆斯恶意犯规](https://s.weibo.com/weibo?q=%E8%A9%B9%E5%A7%86%E6%96%AF%E6%81%B6%E6%84%8F%E7%8A%AF%E8%A7%84&Refer=top) `963.9K 🔥`
 1. [为什么昆仑被称为万山之祖](https://s.weibo.com/weibo?q=%23%E4%B8%BA%E4%BB%80%E4%B9%88%E6%98%86%E4%BB%91%E8%A2%AB%E7%A7%B0%E4%B8%BA%E4%B8%87%E5%B1%B1%E4%B9%8B%E7%A5%96%23&Refer=top) `933.0K 🔥`
 1. [基金](https://s.weibo.com/weibo?q=%E5%9F%BA%E9%87%91&Refer=top) `916.5K 🔥`
@@ -55,9 +56,8 @@
 1. [李嗣镕](https://s.weibo.com/weibo?q=%E6%9D%8E%E5%97%A3%E9%95%95&Refer=top) `896.8K 🔥`
 1. [创造营发起人团成员Amber](https://s.weibo.com/weibo?q=%23%E5%88%9B%E9%80%A0%E8%90%A5%E5%8F%91%E8%B5%B7%E4%BA%BA%E5%9B%A2%E6%88%90%E5%91%98Amber%23&Refer=top) `891.4K 🔥`
 1. [欧舒丹美国分公司申请破产](https://s.weibo.com/weibo?q=%23%E6%AC%A7%E8%88%92%E4%B8%B9%E7%BE%8E%E5%9B%BD%E5%88%86%E5%85%AC%E5%8F%B8%E7%94%B3%E8%AF%B7%E7%A0%B4%E4%BA%A7%23&Refer=top) `876.6K 🔥`
-1. [中高风险地区停止一切线下校外培训](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E9%AB%98%E9%A3%8E%E9%99%A9%E5%9C%B0%E5%8C%BA%E5%81%9C%E6%AD%A2%E4%B8%80%E5%88%87%E7%BA%BF%E4%B8%8B%E6%A0%A1%E5%A4%96%E5%9F%B9%E8%AE%AD%23&Refer=top) `836.8K 🔥`
 
-数据更新于 2021-01-28 21:37:31
+数据更新于 2021-01-28 21:53:22
 
 <!-- END -->
 
