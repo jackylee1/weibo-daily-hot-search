@@ -41,6 +41,7 @@
 1. [核酸检测必知注意事项](https://s.weibo.com/weibo?q=%23%E6%A0%B8%E9%85%B8%E6%A3%80%E6%B5%8B%E5%BF%85%E7%9F%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%23&Refer=top) `713.7K 🔥`
 1. [女神降临预告 林周京李修浩分手](https://s.weibo.com/weibo?q=%E5%A5%B3%E7%A5%9E%E9%99%8D%E4%B8%B4%E9%A2%84%E5%91%8A%20%E6%9E%97%E5%91%A8%E4%BA%AC%E6%9D%8E%E4%BF%AE%E6%B5%A9%E5%88%86%E6%89%8B&Refer=top) `700.6K 🔥`
 1. [车银优的笑眼](https://s.weibo.com/weibo?q=%23%E8%BD%A6%E9%93%B6%E4%BC%98%E7%9A%84%E7%AC%91%E7%9C%BC%23&Refer=top) `697.3K 🔥`
+1. [福建猝死公交司机被认定为工伤](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E7%8C%9D%E6%AD%BB%E5%85%AC%E4%BA%A4%E5%8F%B8%E6%9C%BA%E8%A2%AB%E8%AE%A4%E5%AE%9A%E4%B8%BA%E5%B7%A5%E4%BC%A4%23&Refer=top) `680.2K 🔥`
 1. [持核酸检阴性结果到目的地后不需隔离](https://s.weibo.com/weibo?q=%23%E6%8C%81%E6%A0%B8%E9%85%B8%E6%A3%80%E9%98%B4%E6%80%A7%E7%BB%93%E6%9E%9C%E5%88%B0%E7%9B%AE%E7%9A%84%E5%9C%B0%E5%90%8E%E4%B8%8D%E9%9C%80%E9%9A%94%E7%A6%BB%23&Refer=top) `675.6K 🔥`
 1. [车厘子和海鲜还能放心买吗](https://s.weibo.com/weibo?q=%23%E8%BD%A6%E5%8E%98%E5%AD%90%E5%92%8C%E6%B5%B7%E9%B2%9C%E8%BF%98%E8%83%BD%E6%94%BE%E5%BF%83%E4%B9%B0%E5%90%97%23&Refer=top) `674.3K 🔥`
 1. [取快递女子被造谣出轨案已结束侦查](https://s.weibo.com/weibo?q=%23%E5%8F%96%E5%BF%AB%E9%80%92%E5%A5%B3%E5%AD%90%E8%A2%AB%E9%80%A0%E8%B0%A3%E5%87%BA%E8%BD%A8%E6%A1%88%E5%B7%B2%E7%BB%93%E6%9D%9F%E4%BE%A6%E6%9F%A5%23&Refer=top) `666.5K 🔥`
@@ -55,9 +56,8 @@
 1. [黄子韬 娱乐圈门槛真的越来越低](https://s.weibo.com/weibo?q=%E9%BB%84%E5%AD%90%E9%9F%AC%20%E5%A8%B1%E4%B9%90%E5%9C%88%E9%97%A8%E6%A7%9B%E7%9C%9F%E7%9A%84%E8%B6%8A%E6%9D%A5%E8%B6%8A%E4%BD%8E&Refer=top) `622.3K 🔥`
 1. [Dunk](https://s.weibo.com/weibo?q=Dunk&Refer=top) `616.9K 🔥`
 1. [寒王 法克儿](https://s.weibo.com/weibo?q=%E5%AF%92%E7%8E%8B%20%E6%B3%95%E5%85%8B%E5%84%BF&Refer=top) `605.7K 🔥`
-1. [春运第一天](https://s.weibo.com/weibo?q=%E6%98%A5%E8%BF%90%E7%AC%AC%E4%B8%80%E5%A4%A9&Refer=top) `600.0K 🔥`
 
-数据更新于 2021-01-28 15:14:56
+数据更新于 2021-01-28 15:24:23
 
 <!-- END -->
 
