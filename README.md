@@ -57,7 +57,7 @@
 1. [Angelababy方辟谣与古天乐结婚](https://s.weibo.com/weibo?q=%23Angelababy%E6%96%B9%E8%BE%9F%E8%B0%A3%E4%B8%8E%E5%8F%A4%E5%A4%A9%E4%B9%90%E7%BB%93%E5%A9%9A%23&Refer=top) `697.3K 🔥`
 1. [GME再度暴涨](https://s.weibo.com/weibo?q=GME%E5%86%8D%E5%BA%A6%E6%9A%B4%E6%B6%A8&Refer=top) `678.3K 🔥`
 
-数据更新于 2021-01-30 13:32:40
+数据更新于 2021-01-30 13:51:30
 
 <!-- END -->
 
