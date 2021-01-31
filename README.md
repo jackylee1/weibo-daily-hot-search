@@ -24,6 +24,7 @@
 1. [河南林州](https://s.weibo.com/weibo?q=%E6%B2%B3%E5%8D%97%E6%9E%97%E5%B7%9E&Refer=top) `2.4M 🔥`
 1. [中国为什么加快推进数字人民币](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E4%B8%BA%E4%BB%80%E4%B9%88%E5%8A%A0%E5%BF%AB%E6%8E%A8%E8%BF%9B%E6%95%B0%E5%AD%97%E4%BA%BA%E6%B0%91%E5%B8%81%23&Refer=top) `2.4M 🔥`
 1. [杨超越侯明昊亲吻](https://s.weibo.com/weibo?q=%E6%9D%A8%E8%B6%85%E8%B6%8A%E4%BE%AF%E6%98%8E%E6%98%8A%E4%BA%B2%E5%90%BB&Refer=top) `2.4M 🔥`
+1. [洪世贤家烛台上插的是火腿肠](https://s.weibo.com/weibo?q=%23%E6%B4%AA%E4%B8%96%E8%B4%A4%E5%AE%B6%E7%83%9B%E5%8F%B0%E4%B8%8A%E6%8F%92%E7%9A%84%E6%98%AF%E7%81%AB%E8%85%BF%E8%82%A0%23&Refer=top) `2.3M 🔥`
 1. [山东涉疫奶枣流入多省](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E4%B8%9C%E6%B6%89%E7%96%AB%E5%A5%B6%E6%9E%A3%E6%B5%81%E5%85%A5%E5%A4%9A%E7%9C%81%23&Refer=top) `2.3M 🔥`
 1. [多地明确出行原则和范围](https://s.weibo.com/weibo?q=%23%E5%A4%9A%E5%9C%B0%E6%98%8E%E7%A1%AE%E5%87%BA%E8%A1%8C%E5%8E%9F%E5%88%99%E5%92%8C%E8%8C%83%E5%9B%B4%23&Refer=top) `2.2M 🔥`
 1. [BLACKPINK线上演唱会](https://s.weibo.com/weibo?q=%23BLACKPINK%E7%BA%BF%E4%B8%8A%E6%BC%94%E5%94%B1%E4%BC%9A%23&Refer=top) `2.2M 🔥`
@@ -31,12 +32,13 @@
 1. [陈翔朋友提供的聊天截图](https://s.weibo.com/weibo?q=%23%E9%99%88%E7%BF%94%E6%9C%8B%E5%8F%8B%E6%8F%90%E4%BE%9B%E7%9A%84%E8%81%8A%E5%A4%A9%E6%88%AA%E5%9B%BE%23&Refer=top) `2.1M 🔥`
 1. [李佳航给儿子看自己演的动画片](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E4%BD%B3%E8%88%AA%E7%BB%99%E5%84%BF%E5%AD%90%E7%9C%8B%E8%87%AA%E5%B7%B1%E6%BC%94%E7%9A%84%E5%8A%A8%E7%94%BB%E7%89%87%23&Refer=top) `2.0M 🔥`
 1. [吉林疫情](https://s.weibo.com/weibo?q=%E5%90%89%E6%9E%97%E7%96%AB%E6%83%85&Refer=top) `2.0M 🔥`
-1. [洪世贤家烛台上插的是火腿肠](https://s.weibo.com/weibo?q=%23%E6%B4%AA%E4%B8%96%E8%B4%A4%E5%AE%B6%E7%83%9B%E5%8F%B0%E4%B8%8A%E6%8F%92%E7%9A%84%E6%98%AF%E7%81%AB%E8%85%BF%E8%82%A0%23&Refer=top) `1.9M 🔥`
 1. [牛年纪念币比鼠年少1亿枚](https://s.weibo.com/weibo?q=%23%E7%89%9B%E5%B9%B4%E7%BA%AA%E5%BF%B5%E5%B8%81%E6%AF%94%E9%BC%A0%E5%B9%B4%E5%B0%911%E4%BA%BF%E6%9E%9A%23&Refer=top) `1.8M 🔥`
 1. [王子文约会对象是唐汉霄](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E5%AD%90%E6%96%87%E7%BA%A6%E4%BC%9A%E5%AF%B9%E8%B1%A1%E6%98%AF%E5%94%90%E6%B1%89%E9%9C%84%23&Refer=top) `1.6M 🔥`
 1. [英国将申请加入CPTPP](https://s.weibo.com/weibo?q=%23%E8%8B%B1%E5%9B%BD%E5%B0%86%E7%94%B3%E8%AF%B7%E5%8A%A0%E5%85%A5CPTPP%23&Refer=top) `1.3M 🔥`
 1. [江苏新增俄罗斯输入确诊1例](https://s.weibo.com/weibo?q=%E6%B1%9F%E8%8B%8F%E6%96%B0%E5%A2%9E%E4%BF%84%E7%BD%97%E6%96%AF%E8%BE%93%E5%85%A5%E7%A1%AE%E8%AF%8A1%E4%BE%8B&Refer=top) `1.3M 🔥`
+1. [Rose新歌](https://s.weibo.com/weibo?q=%23Rose%E6%96%B0%E6%AD%8C%23&Refer=top) `1.2M 🔥`
 1. [前5天后5天无症状但有明显传染性](https://s.weibo.com/weibo?q=%23%E5%89%8D5%E5%A4%A9%E5%90%8E5%E5%A4%A9%E6%97%A0%E7%97%87%E7%8A%B6%E4%BD%86%E6%9C%89%E6%98%8E%E6%98%BE%E4%BC%A0%E6%9F%93%E6%80%A7%23&Refer=top) `1.2M 🔥`
+1. [白岩松说等着辞退奔丧员工的公司道歉](https://s.weibo.com/weibo?q=%23%E7%99%BD%E5%B2%A9%E6%9D%BE%E8%AF%B4%E7%AD%89%E7%9D%80%E8%BE%9E%E9%80%80%E5%A5%94%E4%B8%A7%E5%91%98%E5%B7%A5%E7%9A%84%E5%85%AC%E5%8F%B8%E9%81%93%E6%AD%89%23&Refer=top) `1.1M 🔥`
 1. [章子怡 老公明天要发歌](https://s.weibo.com/weibo?q=%E7%AB%A0%E5%AD%90%E6%80%A1%20%E8%80%81%E5%85%AC%E6%98%8E%E5%A4%A9%E8%A6%81%E5%8F%91%E6%AD%8C&Refer=top) `1.0M 🔥`
 1. [央视评为人父母别把孩子逼成樊胜美](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E8%AF%84%E4%B8%BA%E4%BA%BA%E7%88%B6%E6%AF%8D%E5%88%AB%E6%8A%8A%E5%AD%A9%E5%AD%90%E9%80%BC%E6%88%90%E6%A8%8A%E8%83%9C%E7%BE%8E%23&Refer=top) `1.0M 🔥`
 1. [合成大西瓜](https://s.weibo.com/weibo?q=%E5%90%88%E6%88%90%E5%A4%A7%E8%A5%BF%E7%93%9C&Refer=top) `993.4K 🔥`
@@ -51,13 +53,11 @@
 1. [新华社评学生模仿奥特曼被劝退](https://s.weibo.com/weibo?q=%23%E6%96%B0%E5%8D%8E%E7%A4%BE%E8%AF%84%E5%AD%A6%E7%94%9F%E6%A8%A1%E4%BB%BF%E5%A5%A5%E7%89%B9%E6%9B%BC%E8%A2%AB%E5%8A%9D%E9%80%80%23&Refer=top) `862.8K 🔥`
 1. [华为再公布折叠屏新专利](https://s.weibo.com/weibo?q=%E5%8D%8E%E4%B8%BA%E5%86%8D%E5%85%AC%E5%B8%83%E6%8A%98%E5%8F%A0%E5%B1%8F%E6%96%B0%E4%B8%93%E5%88%A9&Refer=top) `798.1K 🔥`
 1. [林州市核酸检测发现1例阳性病例](https://s.weibo.com/weibo?q=%23%E6%9E%97%E5%B7%9E%E5%B8%82%E6%A0%B8%E9%85%B8%E6%A3%80%E6%B5%8B%E5%8F%91%E7%8E%B01%E4%BE%8B%E9%98%B3%E6%80%A7%E7%97%85%E4%BE%8B%23&Refer=top) `766.6K 🔥`
-1. [白岩松说等着辞退奔丧员工的公司道歉](https://s.weibo.com/weibo?q=%23%E7%99%BD%E5%B2%A9%E6%9D%BE%E8%AF%B4%E7%AD%89%E7%9D%80%E8%BE%9E%E9%80%80%E5%A5%94%E4%B8%A7%E5%91%98%E5%B7%A5%E7%9A%84%E5%85%AC%E5%8F%B8%E9%81%93%E6%AD%89%23&Refer=top) `689.5K 🔥`
+1. [Jennie红玫瑰造型](https://s.weibo.com/weibo?q=%23Jennie%E7%BA%A2%E7%8E%AB%E7%91%B0%E9%80%A0%E5%9E%8B%23&Refer=top) `743.0K 🔥`
+1. [钟南山说农村防疫要做到三点](https://s.weibo.com/weibo?q=%23%E9%92%9F%E5%8D%97%E5%B1%B1%E8%AF%B4%E5%86%9C%E6%9D%91%E9%98%B2%E7%96%AB%E8%A6%81%E5%81%9A%E5%88%B0%E4%B8%89%E7%82%B9%23&Refer=top) `682.5K 🔥`
 1. [贵州都匀提示不要网购食品](https://s.weibo.com/weibo?q=%23%E8%B4%B5%E5%B7%9E%E9%83%BD%E5%8C%80%E6%8F%90%E7%A4%BA%E4%B8%8D%E8%A6%81%E7%BD%91%E8%B4%AD%E9%A3%9F%E5%93%81%23&Refer=top) `675.9K 🔥`
-1. [山东涉疫奶枣进口原料为天津雪糕同批](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E4%B8%9C%E6%B6%89%E7%96%AB%E5%A5%B6%E6%9E%A3%E8%BF%9B%E5%8F%A3%E5%8E%9F%E6%96%99%E4%B8%BA%E5%A4%A9%E6%B4%A5%E9%9B%AA%E7%B3%95%E5%90%8C%E6%89%B9%23&Refer=top) `668.6K 🔥`
-1. [重疾险](https://s.weibo.com/weibo?q=%E9%87%8D%E7%96%BE%E9%99%A9&Refer=top) `646.5K 🔥`
-1. [这也太上镜了吧](https://s.weibo.com/weibo?q=%23%E8%BF%99%E4%B9%9F%E5%A4%AA%E4%B8%8A%E9%95%9C%E4%BA%86%E5%90%A7%23&Refer=top) `638.7K 🔥`
 
-数据更新于 2021-01-31 14:23:11
+数据更新于 2021-01-31 14:46:05
 
 <!-- END -->
 
