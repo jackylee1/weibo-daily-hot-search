@@ -17,11 +17,11 @@
 1. [驻缅甸大使馆紧急提醒在缅中国公民](https://s.weibo.com/weibo?q=%23%E9%A9%BB%E7%BC%85%E7%94%B8%E5%A4%A7%E4%BD%BF%E9%A6%86%E7%B4%A7%E6%80%A5%E6%8F%90%E9%86%92%E5%9C%A8%E7%BC%85%E4%B8%AD%E5%9B%BD%E5%85%AC%E6%B0%91%23&Refer=top) `2.0M 🔥`
 1. [张雨绮 我没想到自己这么famous](https://s.weibo.com/weibo?q=%E5%BC%A0%E9%9B%A8%E7%BB%AE%20%E6%88%91%E6%B2%A1%E6%83%B3%E5%88%B0%E8%87%AA%E5%B7%B1%E8%BF%99%E4%B9%88famous&Refer=top) `2.0M 🔥`
 1. [饿了么](https://s.weibo.com/weibo?q=%E9%A5%BF%E4%BA%86%E4%B9%88&Refer=top) `1.9M 🔥`
+1. [打新冠疫苗后不要带走按压棉签](https://s.weibo.com/weibo?q=%23%E6%89%93%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E5%90%8E%E4%B8%8D%E8%A6%81%E5%B8%A6%E8%B5%B0%E6%8C%89%E5%8E%8B%E6%A3%89%E7%AD%BE%23&Refer=top) `1.8M 🔥`
 1. [贾平凹女儿发表的诗歌引质疑](https://s.weibo.com/weibo?q=%23%E8%B4%BE%E5%B9%B3%E5%87%B9%E5%A5%B3%E5%84%BF%E5%8F%91%E8%A1%A8%E7%9A%84%E8%AF%97%E6%AD%8C%E5%BC%95%E8%B4%A8%E7%96%91%23&Refer=top) `1.7M 🔥`
 1. [电梯内反打猥亵者女子发声](https://s.weibo.com/weibo?q=%23%E7%94%B5%E6%A2%AF%E5%86%85%E5%8F%8D%E6%89%93%E7%8C%A5%E4%BA%B5%E8%80%85%E5%A5%B3%E5%AD%90%E5%8F%91%E5%A3%B0%23&Refer=top) `1.7M 🔥`
 1. [孟美岐方否认当导师点评周传雄](https://s.weibo.com/weibo?q=%23%E5%AD%9F%E7%BE%8E%E5%B2%90%E6%96%B9%E5%90%A6%E8%AE%A4%E5%BD%93%E5%AF%BC%E5%B8%88%E7%82%B9%E8%AF%84%E5%91%A8%E4%BC%A0%E9%9B%84%23&Refer=top) `1.6M 🔥`
 1. [央视揭假活佛10年骗了2亿](https://s.weibo.com/weibo?q=%E5%A4%AE%E8%A7%86%E6%8F%AD%E5%81%87%E6%B4%BB%E4%BD%9B10%E5%B9%B4%E9%AA%97%E4%BA%862%E4%BA%BF&Refer=top) `1.6M 🔥`
-1. [打新冠疫苗后不要带走按压棉签](https://s.weibo.com/weibo?q=%23%E6%89%93%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E5%90%8E%E4%B8%8D%E8%A6%81%E5%B8%A6%E8%B5%B0%E6%8C%89%E5%8E%8B%E6%A3%89%E7%AD%BE%23&Refer=top) `1.6M 🔥`
 1. [假疫苗](https://s.weibo.com/weibo?q=%E5%81%87%E7%96%AB%E8%8B%97&Refer=top) `1.5M 🔥`
 1. [网易云音乐称酷狗抄袭](https://s.weibo.com/weibo?q=%23%E7%BD%91%E6%98%93%E4%BA%91%E9%9F%B3%E4%B9%90%E7%A7%B0%E9%85%B7%E7%8B%97%E6%8A%84%E8%A2%AD%23&Refer=top) `1.4M 🔥`
 1. [缅甸军方宣布对政府进行大规模改组](https://s.weibo.com/weibo?q=%E7%BC%85%E7%94%B8%E5%86%9B%E6%96%B9%E5%AE%A3%E5%B8%83%E5%AF%B9%E6%94%BF%E5%BA%9C%E8%BF%9B%E8%A1%8C%E5%A4%A7%E8%A7%84%E6%A8%A1%E6%94%B9%E7%BB%84&Refer=top) `1.4M 🔥`
@@ -42,6 +42,7 @@
 1. [这周日上班](https://s.weibo.com/weibo?q=%23%E8%BF%99%E5%91%A8%E6%97%A5%E4%B8%8A%E7%8F%AD%23&Refer=top) `733.9K 🔥`
 1. [封潇声强吻柯滢两次](https://s.weibo.com/weibo?q=%23%E5%B0%81%E6%BD%87%E5%A3%B0%E5%BC%BA%E5%90%BB%E6%9F%AF%E6%BB%A2%E4%B8%A4%E6%AC%A1%23&Refer=top) `730.8K 🔥`
 1. [韩国一车祸致中国公民6死4伤](https://s.weibo.com/weibo?q=%23%E9%9F%A9%E5%9B%BD%E4%B8%80%E8%BD%A6%E7%A5%B8%E8%87%B4%E4%B8%AD%E5%9B%BD%E5%85%AC%E6%B0%916%E6%AD%BB4%E4%BC%A4%23&Refer=top) `723.0K 🔥`
+1. [现在的足浴城很会做生意](https://s.weibo.com/weibo?q=%23%E7%8E%B0%E5%9C%A8%E7%9A%84%E8%B6%B3%E6%B5%B4%E5%9F%8E%E5%BE%88%E4%BC%9A%E5%81%9A%E7%94%9F%E6%84%8F%23&Refer=top) `712.9K 🔥`
 1. [迪丽热巴宇航服造型](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E5%AE%87%E8%88%AA%E6%9C%8D%E9%80%A0%E5%9E%8B%23&Refer=top) `708.0K 🔥`
 1. [王一博用化妆刷扫喉结](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E4%B8%80%E5%8D%9A%E7%94%A8%E5%8C%96%E5%A6%86%E5%88%B7%E6%89%AB%E5%96%89%E7%BB%93%23&Refer=top) `703.2K 🔥`
 1. [中国疫苗在海外有多受欢迎](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E7%96%AB%E8%8B%97%E5%9C%A8%E6%B5%B7%E5%A4%96%E6%9C%89%E5%A4%9A%E5%8F%97%E6%AC%A2%E8%BF%8E%23&Refer=top) `689.0K 🔥`
@@ -55,9 +56,8 @@
 1. [基金](https://s.weibo.com/weibo?q=%E5%9F%BA%E9%87%91&Refer=top) `631.5K 🔥`
 1. [全球新冠新增病例数连续三周下降](https://s.weibo.com/weibo?q=%E5%85%A8%E7%90%83%E6%96%B0%E5%86%A0%E6%96%B0%E5%A2%9E%E7%97%85%E4%BE%8B%E6%95%B0%E8%BF%9E%E7%BB%AD%E4%B8%89%E5%91%A8%E4%B8%8B%E9%99%8D&Refer=top) `622.0K 🔥`
 1. [王冰冰采访蔡徐坤](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E5%86%B0%E5%86%B0%E9%87%87%E8%AE%BF%E8%94%A1%E5%BE%90%E5%9D%A4%23&Refer=top) `594.9K 🔥`
-1. [首届电竞专业的毕业生怎么样了](https://s.weibo.com/weibo?q=%23%E9%A6%96%E5%B1%8A%E7%94%B5%E7%AB%9E%E4%B8%93%E4%B8%9A%E7%9A%84%E6%AF%95%E4%B8%9A%E7%94%9F%E6%80%8E%E4%B9%88%E6%A0%B7%E4%BA%86%23&Refer=top) `588.1K 🔥`
 
-数据更新于 2021-02-02 13:57:06
+数据更新于 2021-02-02 14:18:40
 
 <!-- END -->
 
