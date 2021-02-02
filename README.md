@@ -57,7 +57,7 @@
 1. [高中生模仿奥特曼被劝退涉事学校致歉](https://s.weibo.com/weibo?q=%23%E9%AB%98%E4%B8%AD%E7%94%9F%E6%A8%A1%E4%BB%BF%E5%A5%A5%E7%89%B9%E6%9B%BC%E8%A2%AB%E5%8A%9D%E9%80%80%E6%B6%89%E4%BA%8B%E5%AD%A6%E6%A0%A1%E8%87%B4%E6%AD%89%23&Refer=top) `654.9K 🔥`
 1. [美国最大公墓下葬需排队等几个月](https://s.weibo.com/weibo?q=%E7%BE%8E%E5%9B%BD%E6%9C%80%E5%A4%A7%E5%85%AC%E5%A2%93%E4%B8%8B%E8%91%AC%E9%9C%80%E6%8E%92%E9%98%9F%E7%AD%89%E5%87%A0%E4%B8%AA%E6%9C%88&Refer=top) `640.9K 🔥`
 
-数据更新于 2021-02-02 15:51:38
+数据更新于 2021-02-02 15:57:41
 
 <!-- END -->
 
