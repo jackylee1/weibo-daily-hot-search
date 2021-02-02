@@ -27,12 +27,12 @@
 1. [驻缅甸大使馆紧急提醒在缅中国公民](https://s.weibo.com/weibo?q=%23%E9%A9%BB%E7%BC%85%E7%94%B8%E5%A4%A7%E4%BD%BF%E9%A6%86%E7%B4%A7%E6%80%A5%E6%8F%90%E9%86%92%E5%9C%A8%E7%BC%85%E4%B8%AD%E5%9B%BD%E5%85%AC%E6%B0%91%23&Refer=top) `2.0M 🔥`
 1. [张雨绮 我没想到自己这么famous](https://s.weibo.com/weibo?q=%E5%BC%A0%E9%9B%A8%E7%BB%AE%20%E6%88%91%E6%B2%A1%E6%83%B3%E5%88%B0%E8%87%AA%E5%B7%B1%E8%BF%99%E4%B9%88famous&Refer=top) `2.0M 🔥`
 1. [饿了么](https://s.weibo.com/weibo?q=%E9%A5%BF%E4%BA%86%E4%B9%88&Refer=top) `1.9M 🔥`
+1. [政法委副书记酒驾致4死获刑7年](https://s.weibo.com/weibo?q=%23%E6%94%BF%E6%B3%95%E5%A7%94%E5%89%AF%E4%B9%A6%E8%AE%B0%E9%85%92%E9%A9%BE%E8%87%B44%E6%AD%BB%E8%8E%B7%E5%88%917%E5%B9%B4%23&Refer=top) `1.9M 🔥`
 1. [打新冠疫苗后不要带走按压棉签](https://s.weibo.com/weibo?q=%23%E6%89%93%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E5%90%8E%E4%B8%8D%E8%A6%81%E5%B8%A6%E8%B5%B0%E6%8C%89%E5%8E%8B%E6%A3%89%E7%AD%BE%23&Refer=top) `1.8M 🔥`
 1. [上海婚姻管理师年薪百万](https://s.weibo.com/weibo?q=%E4%B8%8A%E6%B5%B7%E5%A9%9A%E5%A7%BB%E7%AE%A1%E7%90%86%E5%B8%88%E5%B9%B4%E8%96%AA%E7%99%BE%E4%B8%87&Refer=top) `1.8M 🔥`
 1. [点外卖给差评遭威胁女子搬家](https://s.weibo.com/weibo?q=%23%E7%82%B9%E5%A4%96%E5%8D%96%E7%BB%99%E5%B7%AE%E8%AF%84%E9%81%AD%E5%A8%81%E8%83%81%E5%A5%B3%E5%AD%90%E6%90%AC%E5%AE%B6%23&Refer=top) `1.8M 🔥`
 1. [贾平凹女儿发表的诗歌引质疑](https://s.weibo.com/weibo?q=%23%E8%B4%BE%E5%B9%B3%E5%87%B9%E5%A5%B3%E5%84%BF%E5%8F%91%E8%A1%A8%E7%9A%84%E8%AF%97%E6%AD%8C%E5%BC%95%E8%B4%A8%E7%96%91%23&Refer=top) `1.7M 🔥`
 1. [电梯内反打猥亵者女子发声](https://s.weibo.com/weibo?q=%23%E7%94%B5%E6%A2%AF%E5%86%85%E5%8F%8D%E6%89%93%E7%8C%A5%E4%BA%B5%E8%80%85%E5%A5%B3%E5%AD%90%E5%8F%91%E5%A3%B0%23&Refer=top) `1.7M 🔥`
-1. [政法委副书记酒驾致4死获刑7年](https://s.weibo.com/weibo?q=%23%E6%94%BF%E6%B3%95%E5%A7%94%E5%89%AF%E4%B9%A6%E8%AE%B0%E9%85%92%E9%A9%BE%E8%87%B44%E6%AD%BB%E8%8E%B7%E5%88%917%E5%B9%B4%23&Refer=top) `1.6M 🔥`
 1. [孟美岐方否认当导师点评周传雄](https://s.weibo.com/weibo?q=%23%E5%AD%9F%E7%BE%8E%E5%B2%90%E6%96%B9%E5%90%A6%E8%AE%A4%E5%BD%93%E5%AF%BC%E5%B8%88%E7%82%B9%E8%AF%84%E5%91%A8%E4%BC%A0%E9%9B%84%23&Refer=top) `1.6M 🔥`
 1. [央视揭假活佛10年骗了2亿](https://s.weibo.com/weibo?q=%E5%A4%AE%E8%A7%86%E6%8F%AD%E5%81%87%E6%B4%BB%E4%BD%9B10%E5%B9%B4%E9%AA%97%E4%BA%862%E4%BA%BF&Refer=top) `1.6M 🔥`
 1. [假疫苗](https://s.weibo.com/weibo?q=%E5%81%87%E7%96%AB%E8%8B%97&Refer=top) `1.5M 🔥`
@@ -57,7 +57,7 @@
 1. [黄强当选四川省省长](https://s.weibo.com/weibo?q=%23%E9%BB%84%E5%BC%BA%E5%BD%93%E9%80%89%E5%9B%9B%E5%B7%9D%E7%9C%81%E7%9C%81%E9%95%BF%23&Refer=top) `1.0M 🔥`
 1. [襄阳通报女大学生举报公职父亲](https://s.weibo.com/weibo?q=%23%E8%A5%84%E9%98%B3%E9%80%9A%E6%8A%A5%E5%A5%B3%E5%A4%A7%E5%AD%A6%E7%94%9F%E4%B8%BE%E6%8A%A5%E5%85%AC%E8%81%8C%E7%88%B6%E4%BA%B2%23&Refer=top) `967.9K 🔥`
 
-数据更新于 2021-02-02 21:52:06
+数据更新于 2021-02-02 21:57:56
 
 <!-- END -->
 
