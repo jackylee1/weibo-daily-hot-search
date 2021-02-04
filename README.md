@@ -55,9 +55,9 @@
 1. [德勤](https://s.weibo.com/weibo?q=%E5%BE%B7%E5%8B%A4&Refer=top) `1.2M 🔥`
 1. [云南小山村发现国家一级保护动物熊猴](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E5%B0%8F%E5%B1%B1%E6%9D%91%E5%8F%91%E7%8E%B0%E5%9B%BD%E5%AE%B6%E4%B8%80%E7%BA%A7%E4%BF%9D%E6%8A%A4%E5%8A%A8%E7%89%A9%E7%86%8A%E7%8C%B4%23&Refer=top) `1.2M 🔥`
 1. [庚子鼠年为何有两个立春](https://s.weibo.com/weibo?q=%23%E5%BA%9A%E5%AD%90%E9%BC%A0%E5%B9%B4%E4%B8%BA%E4%BD%95%E6%9C%89%E4%B8%A4%E4%B8%AA%E7%AB%8B%E6%98%A5%23&Refer=top) `1.2M 🔥`
-1. [死亡宣告发自拍艾特余霜](https://s.weibo.com/weibo?q=%23%E6%AD%BB%E4%BA%A1%E5%AE%A3%E5%91%8A%E5%8F%91%E8%87%AA%E6%8B%8D%E8%89%BE%E7%89%B9%E4%BD%99%E9%9C%9C%23&Refer=top) `1.2M 🔥`
+1. [美国说唱歌手在额头安装11克拉粉钻](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E8%AF%B4%E5%94%B1%E6%AD%8C%E6%89%8B%E5%9C%A8%E9%A2%9D%E5%A4%B4%E5%AE%89%E8%A3%8511%E5%85%8B%E6%8B%89%E7%B2%89%E9%92%BB%23&Refer=top) `1.2M 🔥`
 
-数据更新于 2021-02-04 21:22:27
+数据更新于 2021-02-04 21:30:41
 
 <!-- END -->
 
