@@ -22,7 +22,7 @@
 1. [黄龄假唱](https://s.weibo.com/weibo?q=%E9%BB%84%E9%BE%84%E5%81%87%E5%94%B1&Refer=top) `3.2M 🔥`
 1. [周杰伦瘦了](https://s.weibo.com/weibo?q=%E5%91%A8%E6%9D%B0%E4%BC%A6%E7%98%A6%E4%BA%86&Refer=top) `3.1M 🔥`
 1. [那英听到张柏芝要选她的反应](https://s.weibo.com/weibo?q=%23%E9%82%A3%E8%8B%B1%E5%90%AC%E5%88%B0%E5%BC%A0%E6%9F%8F%E8%8A%9D%E8%A6%81%E9%80%89%E5%A5%B9%E7%9A%84%E5%8F%8D%E5%BA%94%23&Refer=top) `2.9M 🔥`
-1. [劣迹艺人惩戒复出程序业内首次明确](https://s.weibo.com/weibo?q=%23%E5%8A%A3%E8%BF%B9%E8%89%BA%E4%BA%BA%E6%83%A9%E6%88%92%E5%A4%8D%E5%87%BA%E7%A8%8B%E5%BA%8F%E4%B8%9A%E5%86%85%E9%A6%96%E6%AC%A1%E6%98%8E%E7%A1%AE%23&Refer=top) `2.8M 🔥`
+1. [劣迹艺人惩戒复出程序业内首次明确](https://s.weibo.com/weibo?q=%E5%8A%A3%E8%BF%B9%E8%89%BA%E4%BA%BA%E6%83%A9%E6%88%92%E5%A4%8D%E5%87%BA%E7%A8%8B%E5%BA%8F%E4%B8%9A%E5%86%85%E9%A6%96%E6%AC%A1%E6%98%8E%E7%A1%AE&Refer=top) `2.9M 🔥`
 1. [青岛困难户](https://s.weibo.com/weibo?q=%E9%9D%92%E5%B2%9B%E5%9B%B0%E9%9A%BE%E6%88%B7&Refer=top) `2.8M 🔥`
 1. [吕一票数](https://s.weibo.com/weibo?q=%E5%90%95%E4%B8%80%E7%A5%A8%E6%95%B0&Refer=top) `2.7M 🔥`
 1. [程莉莎对黄晓明讲明学](https://s.weibo.com/weibo?q=%23%E7%A8%8B%E8%8E%89%E8%8E%8E%E5%AF%B9%E9%BB%84%E6%99%93%E6%98%8E%E8%AE%B2%E6%98%8E%E5%AD%A6%23&Refer=top) `2.7M 🔥`
@@ -44,6 +44,7 @@
 1. [教育部发布2021年第1号留学预警](https://s.weibo.com/weibo?q=%23%E6%95%99%E8%82%B2%E9%83%A8%E5%8F%91%E5%B8%832021%E5%B9%B4%E7%AC%AC1%E5%8F%B7%E7%95%99%E5%AD%A6%E9%A2%84%E8%AD%A6%23&Refer=top) `1.7M 🔥`
 1. [网易云再发长文怼酷狗](https://s.weibo.com/weibo?q=%23%E7%BD%91%E6%98%93%E4%BA%91%E5%86%8D%E5%8F%91%E9%95%BF%E6%96%87%E6%80%BC%E9%85%B7%E7%8B%97%23&Refer=top) `1.7M 🔥`
 1. [杭州就地过年补贴已兑付6.66亿](https://s.weibo.com/weibo?q=%23%E6%9D%AD%E5%B7%9E%E5%B0%B1%E5%9C%B0%E8%BF%87%E5%B9%B4%E8%A1%A5%E8%B4%B4%E5%B7%B2%E5%85%91%E4%BB%986.66%E4%BA%BF%23&Refer=top) `1.6M 🔥`
+1. [演艺人员不得在营业性演出假唱](https://s.weibo.com/weibo?q=%23%E6%BC%94%E8%89%BA%E4%BA%BA%E5%91%98%E4%B8%8D%E5%BE%97%E5%9C%A8%E8%90%A5%E4%B8%9A%E6%80%A7%E6%BC%94%E5%87%BA%E5%81%87%E5%94%B1%23&Refer=top) `1.6M 🔥`
 1. [胡一天吹奶茶吹出泡泡](https://s.weibo.com/weibo?q=%23%E8%83%A1%E4%B8%80%E5%A4%A9%E5%90%B9%E5%A5%B6%E8%8C%B6%E5%90%B9%E5%87%BA%E6%B3%A1%E6%B3%A1%23&Refer=top) `1.6M 🔥`
 1. [杨丽萍作品将上云南春晚](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E4%B8%BD%E8%90%8D%E4%BD%9C%E5%93%81%E5%B0%86%E4%B8%8A%E4%BA%91%E5%8D%97%E6%98%A5%E6%99%9A%23&Refer=top) `1.5M 🔥`
 1. [3.6万辆进口特斯拉被召回](https://s.weibo.com/weibo?q=3.6%E4%B8%87%E8%BE%86%E8%BF%9B%E5%8F%A3%E7%89%B9%E6%96%AF%E6%8B%89%E8%A2%AB%E5%8F%AC%E5%9B%9E&Refer=top) `1.5M 🔥`
@@ -54,10 +55,9 @@
 1. [湖南卫视春晚](https://s.weibo.com/weibo?q=%E6%B9%96%E5%8D%97%E5%8D%AB%E8%A7%86%E6%98%A5%E6%99%9A&Refer=top) `1.3M 🔥`
 1. [央视网络春晚](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E7%BD%91%E7%BB%9C%E6%98%A5%E6%99%9A%23&Refer=top) `1.3M 🔥`
 1. [陕西新人结婚当天出现小龙卷风](https://s.weibo.com/weibo?q=%E9%99%95%E8%A5%BF%E6%96%B0%E4%BA%BA%E7%BB%93%E5%A9%9A%E5%BD%93%E5%A4%A9%E5%87%BA%E7%8E%B0%E5%B0%8F%E9%BE%99%E5%8D%B7%E9%A3%8E&Refer=top) `1.2M 🔥`
-1. [汪文斌拿照片点名涉疆谎言制造者](https://s.weibo.com/weibo?q=%23%E6%B1%AA%E6%96%87%E6%96%8C%E6%8B%BF%E7%85%A7%E7%89%87%E7%82%B9%E5%90%8D%E6%B6%89%E7%96%86%E8%B0%8E%E8%A8%80%E5%88%B6%E9%80%A0%E8%80%85%23&Refer=top) `1.2M 🔥`
-1. [李一桐看过胡一天头顶](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E4%B8%80%E6%A1%90%E7%9C%8B%E8%BF%87%E8%83%A1%E4%B8%80%E5%A4%A9%E5%A4%B4%E9%A1%B6%23&Refer=top) `1.2M 🔥`
+1. [lex](https://s.weibo.com/weibo?q=lex&Refer=top) `1.2M 🔥`
 
-数据更新于 2021-02-05 18:58:21
+数据更新于 2021-02-05 19:19:01
 
 <!-- END -->
 
