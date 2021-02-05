@@ -45,6 +45,7 @@
 1. [教育部发布2021年第1号留学预警](https://s.weibo.com/weibo?q=%23%E6%95%99%E8%82%B2%E9%83%A8%E5%8F%91%E5%B8%832021%E5%B9%B4%E7%AC%AC1%E5%8F%B7%E7%95%99%E5%AD%A6%E9%A2%84%E8%AD%A6%23&Refer=top) `1.7M 🔥`
 1. [网易云再发长文怼酷狗](https://s.weibo.com/weibo?q=%23%E7%BD%91%E6%98%93%E4%BA%91%E5%86%8D%E5%8F%91%E9%95%BF%E6%96%87%E6%80%BC%E9%85%B7%E7%8B%97%23&Refer=top) `1.7M 🔥`
 1. [杭州就地过年补贴已兑付6.66亿](https://s.weibo.com/weibo?q=%23%E6%9D%AD%E5%B7%9E%E5%B0%B1%E5%9C%B0%E8%BF%87%E5%B9%B4%E8%A1%A5%E8%B4%B4%E5%B7%B2%E5%85%91%E4%BB%986.66%E4%BA%BF%23&Refer=top) `1.6M 🔥`
+1. [央视评劣迹艺人想复出没那么容易](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E8%AF%84%E5%8A%A3%E8%BF%B9%E8%89%BA%E4%BA%BA%E6%83%B3%E5%A4%8D%E5%87%BA%E6%B2%A1%E9%82%A3%E4%B9%88%E5%AE%B9%E6%98%93%23&Refer=top) `1.6M 🔥`
 1. [胡一天吹奶茶吹出泡泡](https://s.weibo.com/weibo?q=%23%E8%83%A1%E4%B8%80%E5%A4%A9%E5%90%B9%E5%A5%B6%E8%8C%B6%E5%90%B9%E5%87%BA%E6%B3%A1%E6%B3%A1%23&Refer=top) `1.6M 🔥`
 1. [杨丽萍作品将上云南春晚](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E4%B8%BD%E8%90%8D%E4%BD%9C%E5%93%81%E5%B0%86%E4%B8%8A%E4%BA%91%E5%8D%97%E6%98%A5%E6%99%9A%23&Refer=top) `1.5M 🔥`
 1. [3.6万辆进口特斯拉被召回](https://s.weibo.com/weibo?q=3.6%E4%B8%87%E8%BE%86%E8%BF%9B%E5%8F%A3%E7%89%B9%E6%96%AF%E6%8B%89%E8%A2%AB%E5%8F%AC%E5%9B%9E&Refer=top) `1.5M 🔥`
@@ -55,9 +56,8 @@
 1. [湖南卫视春晚](https://s.weibo.com/weibo?q=%E6%B9%96%E5%8D%97%E5%8D%AB%E8%A7%86%E6%98%A5%E6%99%9A&Refer=top) `1.3M 🔥`
 1. [央视网络春晚](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E7%BD%91%E7%BB%9C%E6%98%A5%E6%99%9A%23&Refer=top) `1.3M 🔥`
 1. [陕西新人结婚当天出现小龙卷风](https://s.weibo.com/weibo?q=%E9%99%95%E8%A5%BF%E6%96%B0%E4%BA%BA%E7%BB%93%E5%A9%9A%E5%BD%93%E5%A4%A9%E5%87%BA%E7%8E%B0%E5%B0%8F%E9%BE%99%E5%8D%B7%E9%A3%8E&Refer=top) `1.2M 🔥`
-1. [lex](https://s.weibo.com/weibo?q=lex&Refer=top) `1.2M 🔥`
 
-数据更新于 2021-02-05 19:30:24
+数据更新于 2021-02-05 19:40:54
 
 <!-- END -->
 
