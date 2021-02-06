@@ -7,13 +7,13 @@
 <!-- BEGIN -->
 
 1. [鞠婧祎毛衣](https://s.weibo.com/weibo?q=%23%E9%9E%A0%E5%A9%A7%E7%A5%8E%E6%AF%9B%E8%A1%A3%23&Refer=top) `2.3M 🔥`
+1. [台湾地震](https://s.weibo.com/weibo?q=%E5%8F%B0%E6%B9%BE%E5%9C%B0%E9%9C%87&Refer=top) `1.8M 🔥`
 1. [奶茶消费者吐槽纸吸管](https://s.weibo.com/weibo?q=%23%E5%A5%B6%E8%8C%B6%E6%B6%88%E8%B4%B9%E8%80%85%E5%90%90%E6%A7%BD%E7%BA%B8%E5%90%B8%E7%AE%A1%23&Refer=top) `1.8M 🔥`
 1. [伊能静感谢被淘汰](https://s.weibo.com/weibo?q=%23%E4%BC%8A%E8%83%BD%E9%9D%99%E6%84%9F%E8%B0%A2%E8%A2%AB%E6%B7%98%E6%B1%B0%23&Refer=top) `1.8M 🔥`
 1. [乐视 欠122亿](https://s.weibo.com/weibo?q=%E4%B9%90%E8%A7%86%20%E6%AC%A0122%E4%BA%BF&Refer=top) `1.7M 🔥`
 1. [秦奋](https://s.weibo.com/weibo?q=%E7%A7%A6%E5%A5%8B&Refer=top) `1.7M 🔥`
-1. [台湾地震](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E6%B9%BE%E5%9C%B0%E9%9C%87%23&Refer=top) `1.6M 🔥`
+1. [北京发放5万个数字人民币红包](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E5%8F%91%E6%94%BE5%E4%B8%87%E4%B8%AA%E6%95%B0%E5%AD%97%E4%BA%BA%E6%B0%91%E5%B8%81%E7%BA%A2%E5%8C%85%23&Refer=top) `1.0M 🔥`
 1. [中央政法委评金瑜被家暴](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%A4%AE%E6%94%BF%E6%B3%95%E5%A7%94%E8%AF%84%E9%87%91%E7%91%9C%E8%A2%AB%E5%AE%B6%E6%9A%B4&Refer=top) `1.0M 🔥`
-1. [北京发放5万个数字人民币红包](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E5%8F%91%E6%94%BE5%E4%B8%87%E4%B8%AA%E6%95%B0%E5%AD%97%E4%BA%BA%E6%B0%91%E5%B8%81%E7%BA%A2%E5%8C%85%23&Refer=top) `902.4K 🔥`
 1. [王者荣耀](https://s.weibo.com/weibo?q=%E7%8E%8B%E8%80%85%E8%8D%A3%E8%80%80&Refer=top) `899.2K 🔥`
 1. [协和等知名医院字号不得擅自使用](https://s.weibo.com/weibo?q=%23%E5%8D%8F%E5%92%8C%E7%AD%89%E7%9F%A5%E5%90%8D%E5%8C%BB%E9%99%A2%E5%AD%97%E5%8F%B7%E4%B8%8D%E5%BE%97%E6%93%85%E8%87%AA%E4%BD%BF%E7%94%A8%23&Refer=top) `875.1K 🔥`
 1. [四大名著里的未解之谜](https://s.weibo.com/weibo?q=%23%E5%9B%9B%E5%A4%A7%E5%90%8D%E8%91%97%E9%87%8C%E7%9A%84%E6%9C%AA%E8%A7%A3%E4%B9%8B%E8%B0%9C%23&Refer=top) `870.1K 🔥`
@@ -51,13 +51,13 @@
 1. [用客服的语气回复客服](https://s.weibo.com/weibo?q=%23%E7%94%A8%E5%AE%A2%E6%9C%8D%E7%9A%84%E8%AF%AD%E6%B0%94%E5%9B%9E%E5%A4%8D%E5%AE%A2%E6%9C%8D%23&Refer=top) `230.9K 🔥`
 1. [唐三没吃过红烧肉](https://s.weibo.com/weibo?q=%E5%94%90%E4%B8%89%E6%B2%A1%E5%90%83%E8%BF%87%E7%BA%A2%E7%83%A7%E8%82%89&Refer=top) `230.0K 🔥`
 1. [快乐大本营](https://s.weibo.com/weibo?q=%E5%BF%AB%E4%B9%90%E5%A4%A7%E6%9C%AC%E8%90%A5&Refer=top) `226.8K 🔥`
+1. [斗罗大陆片头制作公司致歉](https://s.weibo.com/weibo?q=%23%E6%96%97%E7%BD%97%E5%A4%A7%E9%99%86%E7%89%87%E5%A4%B4%E5%88%B6%E4%BD%9C%E5%85%AC%E5%8F%B8%E8%87%B4%E6%AD%89%23&Refer=top) `226.7K 🔥`
+1. [柯蓝发文退出我就是演员](https://s.weibo.com/weibo?q=%23%E6%9F%AF%E8%93%9D%E5%8F%91%E6%96%87%E9%80%80%E5%87%BA%E6%88%91%E5%B0%B1%E6%98%AF%E6%BC%94%E5%91%98%23&Refer=top) `221.1K 🔥`
 1. [奇葩说](https://s.weibo.com/weibo?q=%E5%A5%87%E8%91%A9%E8%AF%B4&Refer=top) `218.5K 🔥`
+1. [贾玲问水瓶你刚干嘛去了](https://s.weibo.com/weibo?q=%23%E8%B4%BE%E7%8E%B2%E9%97%AE%E6%B0%B4%E7%93%B6%E4%BD%A0%E5%88%9A%E5%B9%B2%E5%98%9B%E5%8E%BB%E4%BA%86%23&Refer=top) `210.7K 🔥`
 1. [女特警休假外出救下落水父子](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E7%89%B9%E8%AD%A6%E4%BC%91%E5%81%87%E5%A4%96%E5%87%BA%E6%95%91%E4%B8%8B%E8%90%BD%E6%B0%B4%E7%88%B6%E5%AD%90%23&Refer=top) `210.6K 🔥`
-1. [蔡文静柯滢独白](https://s.weibo.com/weibo?q=%23%E8%94%A1%E6%96%87%E9%9D%99%E6%9F%AF%E6%BB%A2%E7%8B%AC%E7%99%BD%23&Refer=top) `208.7K 🔥`
-1. [柯蓝发文退出我就是演员](https://s.weibo.com/weibo?q=%23%E6%9F%AF%E8%93%9D%E5%8F%91%E6%96%87%E9%80%80%E5%87%BA%E6%88%91%E5%B0%B1%E6%98%AF%E6%BC%94%E5%91%98%23&Refer=top) `203.2K 🔥`
-1. [贾玲问水瓶你刚干嘛去了](https://s.weibo.com/weibo?q=%23%E8%B4%BE%E7%8E%B2%E9%97%AE%E6%B0%B4%E7%93%B6%E4%BD%A0%E5%88%9A%E5%B9%B2%E5%98%9B%E5%8E%BB%E4%BA%86%23&Refer=top) `203.1K 🔥`
 
-数据更新于 2021-02-07 07:52:24
+数据更新于 2021-02-07 07:58:18
 
 <!-- END -->
 
