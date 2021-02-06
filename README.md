@@ -24,10 +24,10 @@
 1. [央视评劣迹艺人想复出没那么容易](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E8%AF%84%E5%8A%A3%E8%BF%B9%E8%89%BA%E4%BA%BA%E6%83%B3%E5%A4%8D%E5%87%BA%E6%B2%A1%E9%82%A3%E4%B9%88%E5%AE%B9%E6%98%93%23&Refer=top) `1.6M 🔥`
 1. [关晓彤马丽宋亚轩跳爱你](https://s.weibo.com/weibo?q=%23%E5%85%B3%E6%99%93%E5%BD%A4%E9%A9%AC%E4%B8%BD%E5%AE%8B%E4%BA%9A%E8%BD%A9%E8%B7%B3%E7%88%B1%E4%BD%A0%23&Refer=top) `1.6M 🔥`
 1. [王牌对王牌贾玲哭了](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E7%89%8C%E5%AF%B9%E7%8E%8B%E7%89%8C%E8%B4%BE%E7%8E%B2%E5%93%AD%E4%BA%86%23&Refer=top) `1.6M 🔥`
+1. [西藏冒险王父亲抵达儿子落水现场](https://s.weibo.com/weibo?q=%E8%A5%BF%E8%97%8F%E5%86%92%E9%99%A9%E7%8E%8B%E7%88%B6%E4%BA%B2%E6%8A%B5%E8%BE%BE%E5%84%BF%E5%AD%90%E8%90%BD%E6%B0%B4%E7%8E%B0%E5%9C%BA&Refer=top) `1.6M 🔥`
 1. [男子酒驾致朋友死亡同桌7人被判](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E9%85%92%E9%A9%BE%E8%87%B4%E6%9C%8B%E5%8F%8B%E6%AD%BB%E4%BA%A1%E5%90%8C%E6%A1%8C7%E4%BA%BA%E8%A2%AB%E5%88%A4%23&Refer=top) `1.6M 🔥`
 1. [张柏芝 划水](https://s.weibo.com/weibo?q=%E5%BC%A0%E6%9F%8F%E8%8A%9D%20%E5%88%92%E6%B0%B4&Refer=top) `1.6M 🔥`
 1. [郭艾伦脑震荡](https://s.weibo.com/weibo?q=%E9%83%AD%E8%89%BE%E4%BC%A6%E8%84%91%E9%9C%87%E8%8D%A1&Refer=top) `1.5M 🔥`
-1. [西藏冒险王父亲抵达儿子落水现场](https://s.weibo.com/weibo?q=%E8%A5%BF%E8%97%8F%E5%86%92%E9%99%A9%E7%8E%8B%E7%88%B6%E4%BA%B2%E6%8A%B5%E8%BE%BE%E5%84%BF%E5%AD%90%E8%90%BD%E6%B0%B4%E7%8E%B0%E5%9C%BA&Refer=top) `1.4M 🔥`
 1. [江西一批阳性进口樱桃已售空](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%A5%BF%E4%B8%80%E6%89%B9%E9%98%B3%E6%80%A7%E8%BF%9B%E5%8F%A3%E6%A8%B1%E6%A1%83%E5%B7%B2%E5%94%AE%E7%A9%BA%23&Refer=top) `1.4M 🔥`
 1. [Cindy模仿的岳云鹏撞脸龚琳娜](https://s.weibo.com/weibo?q=%23Cindy%E6%A8%A1%E4%BB%BF%E7%9A%84%E5%B2%B3%E4%BA%91%E9%B9%8F%E6%92%9E%E8%84%B8%E9%BE%9A%E7%90%B3%E5%A8%9C%23&Refer=top) `1.4M 🔥`
 1. [金瑜](https://s.weibo.com/weibo?q=%E9%87%91%E7%91%9C&Refer=top) `1.4M 🔥`
@@ -57,7 +57,7 @@
 1. [徐杰受伤](https://s.weibo.com/weibo?q=%E5%BE%90%E6%9D%B0%E5%8F%97%E4%BC%A4&Refer=top) `729.7K 🔥`
 1. [Amber唱跳赤子](https://s.weibo.com/weibo?q=Amber%E5%94%B1%E8%B7%B3%E8%B5%A4%E5%AD%90&Refer=top) `723.2K 🔥`
 
-数据更新于 2021-02-06 16:59:27
+数据更新于 2021-02-06 17:23:20
 
 <!-- END -->
 
