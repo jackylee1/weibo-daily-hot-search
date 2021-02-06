@@ -57,7 +57,7 @@
 1. [徐杰受伤](https://s.weibo.com/weibo?q=%E5%BE%90%E6%9D%B0%E5%8F%97%E4%BC%A4&Refer=top) `729.7K 🔥`
 1. [Amber唱跳赤子](https://s.weibo.com/weibo?q=Amber%E5%94%B1%E8%B7%B3%E8%B5%A4%E5%AD%90&Refer=top) `723.2K 🔥`
 
-数据更新于 2021-02-06 16:53:27
+数据更新于 2021-02-06 16:59:27
 
 <!-- END -->
 
