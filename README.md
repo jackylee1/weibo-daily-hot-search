@@ -23,6 +23,7 @@
 1. [近视发生年龄提前至3到7岁](https://s.weibo.com/weibo?q=%23%E8%BF%91%E8%A7%86%E5%8F%91%E7%94%9F%E5%B9%B4%E9%BE%84%E6%8F%90%E5%89%8D%E8%87%B33%E5%88%B07%E5%B2%81%23&Refer=top) `2.0M 🔥`
 1. [假日暖洋洋道歉](https://s.weibo.com/weibo?q=%E5%81%87%E6%97%A5%E6%9A%96%E6%B4%8B%E6%B4%8B%E9%81%93%E6%AD%89&Refer=top) `2.0M 🔥`
 1. [意大利现新冠病毒变种感染聚集性疫情](https://s.weibo.com/weibo?q=%23%E6%84%8F%E5%A4%A7%E5%88%A9%E7%8E%B0%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E5%8F%98%E7%A7%8D%E6%84%9F%E6%9F%93%E8%81%9A%E9%9B%86%E6%80%A7%E7%96%AB%E6%83%85%23&Refer=top) `2.0M 🔥`
+1. [自述遭家暴前女记者再发声](https://s.weibo.com/weibo?q=%23%E8%87%AA%E8%BF%B0%E9%81%AD%E5%AE%B6%E6%9A%B4%E5%89%8D%E5%A5%B3%E8%AE%B0%E8%80%85%E5%86%8D%E5%8F%91%E5%A3%B0%23&Refer=top) `2.0M 🔥`
 1. [北京发放5万个数字人民币红包](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E5%8F%91%E6%94%BE5%E4%B8%87%E4%B8%AA%E6%95%B0%E5%AD%97%E4%BA%BA%E6%B0%91%E5%B8%81%E7%BA%A2%E5%8C%85%23&Refer=top) `1.9M 🔥`
 1. [台湾地震](https://s.weibo.com/weibo?q=%E5%8F%B0%E6%B9%BE%E5%9C%B0%E9%9C%87&Refer=top) `1.8M 🔥`
 1. [奶茶消费者吐槽纸吸管](https://s.weibo.com/weibo?q=%23%E5%A5%B6%E8%8C%B6%E6%B6%88%E8%B4%B9%E8%80%85%E5%90%90%E6%A7%BD%E7%BA%B8%E5%90%B8%E7%AE%A1%23&Refer=top) `1.8M 🔥`
@@ -55,9 +56,8 @@
 1. [Clubhouse](https://s.weibo.com/weibo?q=Clubhouse&Refer=top) `760.8K 🔥`
 1. [旅客乘火车进京须持7日内核酸检测证明](https://s.weibo.com/weibo?q=%23%E6%97%85%E5%AE%A2%E4%B9%98%E7%81%AB%E8%BD%A6%E8%BF%9B%E4%BA%AC%E9%A1%BB%E6%8C%817%E6%97%A5%E5%86%85%E6%A0%B8%E9%85%B8%E6%A3%80%E6%B5%8B%E8%AF%81%E6%98%8E%23&Refer=top) `751.3K 🔥`
 1. [斗罗大陆](https://s.weibo.com/weibo?q=%E6%96%97%E7%BD%97%E5%A4%A7%E9%99%86&Refer=top) `713.2K 🔥`
-1. [金毛小心翼翼给金鱼换水](https://s.weibo.com/weibo?q=%23%E9%87%91%E6%AF%9B%E5%B0%8F%E5%BF%83%E7%BF%BC%E7%BF%BC%E7%BB%99%E9%87%91%E9%B1%BC%E6%8D%A2%E6%B0%B4%23&Refer=top) `708.9K 🔥`
 
-数据更新于 2021-02-07 16:27:43
+数据更新于 2021-02-07 16:44:09
 
 <!-- END -->
 
