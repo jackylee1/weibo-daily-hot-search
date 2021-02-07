@@ -50,14 +50,14 @@
 1. [2021央视春晚发布会](https://s.weibo.com/weibo?q=2021%E5%A4%AE%E8%A7%86%E6%98%A5%E6%99%9A%E5%8F%91%E5%B8%83%E4%BC%9A&Refer=top) `206.2K 🔥`
 1. [印度北部冰川断裂已致3人死亡](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E5%8C%97%E9%83%A8%E5%86%B0%E5%B7%9D%E6%96%AD%E8%A3%82%E5%B7%B2%E8%87%B43%E4%BA%BA%E6%AD%BB%E4%BA%A1%23&Refer=top) `205.6K 🔥`
 1. [RNG战胜iG](https://s.weibo.com/weibo?q=%23RNG%E6%88%98%E8%83%9CiG%23&Refer=top) `204.9K 🔥`
-1. [R1SE唱跳玫瑰少年](https://s.weibo.com/weibo?q=%23R1SE%E5%94%B1%E8%B7%B3%E7%8E%AB%E7%91%B0%E5%B0%91%E5%B9%B4%23&Refer=top) `182.6K 🔥`
+1. [R1SE唱跳玫瑰少年](https://s.weibo.com/weibo?q=%23R1SE%E5%94%B1%E8%B7%B3%E7%8E%AB%E7%91%B0%E5%B0%91%E5%B9%B4%23&Refer=top) `186.7K 🔥`
 1. [斗罗大陆](https://s.weibo.com/weibo?q=%E6%96%97%E7%BD%97%E5%A4%A7%E9%99%86&Refer=top) `180.2K 🔥`
 1. [Rookie辛德拉](https://s.weibo.com/weibo?q=Rookie%E8%BE%9B%E5%BE%B7%E6%8B%89&Refer=top) `146.0K 🔥`
 1. [王者荣耀春节贺岁片](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E8%80%85%E8%8D%A3%E8%80%80%E6%98%A5%E8%8A%82%E8%B4%BA%E5%B2%81%E7%89%87%23&Refer=top) `133.3K 🔥`
 1. [中国军队向柬埔寨军队提供新冠疫苗](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E5%86%9B%E9%98%9F%E5%90%91%E6%9F%AC%E5%9F%94%E5%AF%A8%E5%86%9B%E9%98%9F%E6%8F%90%E4%BE%9B%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97&Refer=top) `126.2K 🔥`
 1. [余霜主持电竞春晚](https://s.weibo.com/weibo?q=%E4%BD%99%E9%9C%9C%E4%B8%BB%E6%8C%81%E7%94%B5%E7%AB%9E%E6%98%A5%E6%99%9A&Refer=top) `124.0K 🔥`
 
-数据更新于 2021-02-08 01:10:23
+数据更新于 2021-02-08 01:34:10
 
 <!-- END -->
 
