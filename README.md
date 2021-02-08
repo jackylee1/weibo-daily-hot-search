@@ -57,7 +57,7 @@
 1. [教育部严禁以任何形式公布高考状元](https://s.weibo.com/weibo?q=%23%E6%95%99%E8%82%B2%E9%83%A8%E4%B8%A5%E7%A6%81%E4%BB%A5%E4%BB%BB%E4%BD%95%E5%BD%A2%E5%BC%8F%E5%85%AC%E5%B8%83%E9%AB%98%E8%80%83%E7%8A%B6%E5%85%83%23&Refer=top) `1.0M 🔥`
 1. [去年超15亿只废弃口罩流入海洋](https://s.weibo.com/weibo?q=%23%E5%8E%BB%E5%B9%B4%E8%B6%8515%E4%BA%BF%E5%8F%AA%E5%BA%9F%E5%BC%83%E5%8F%A3%E7%BD%A9%E6%B5%81%E5%85%A5%E6%B5%B7%E6%B4%8B%23&Refer=top) `971.5K 🔥`
 
-数据更新于 2021-02-08 23:47:54
+数据更新于 2021-02-08 23:54:51
 
 <!-- END -->
 
