@@ -57,7 +57,7 @@
 1. [吴尊和同学合照像两辈人](https://s.weibo.com/weibo?q=%23%E5%90%B4%E5%B0%8A%E5%92%8C%E5%90%8C%E5%AD%A6%E5%90%88%E7%85%A7%E5%83%8F%E4%B8%A4%E8%BE%88%E4%BA%BA%23&Refer=top) `648.7K 🔥`
 1. [印度人仍追捧中国手机](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E4%BA%BA%E4%BB%8D%E8%BF%BD%E6%8D%A7%E4%B8%AD%E5%9B%BD%E6%89%8B%E6%9C%BA%23&Refer=top) `646.8K 🔥`
 
-数据更新于 2021-02-08 13:06:04
+数据更新于 2021-02-08 13:25:27
 
 <!-- END -->
 
