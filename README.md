@@ -57,7 +57,7 @@
 1. [刚果东部暴发新一轮埃博拉疫情](https://s.weibo.com/weibo?q=%23%E5%88%9A%E6%9E%9C%E4%B8%9C%E9%83%A8%E6%9A%B4%E5%8F%91%E6%96%B0%E4%B8%80%E8%BD%AE%E5%9F%83%E5%8D%9A%E6%8B%89%E7%96%AB%E6%83%85%23&Refer=top) `967.5K 🔥`
 1. [江西赣州一货车撞小轿车致6人死亡](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%A5%BF%E8%B5%A3%E5%B7%9E%E4%B8%80%E8%B4%A7%E8%BD%A6%E6%92%9E%E5%B0%8F%E8%BD%BF%E8%BD%A6%E8%87%B46%E4%BA%BA%E6%AD%BB%E4%BA%A1%23&Refer=top) `954.4K 🔥`
 
-数据更新于 2021-02-08 22:14:14
+数据更新于 2021-02-08 22:30:17
 
 <!-- END -->
 
