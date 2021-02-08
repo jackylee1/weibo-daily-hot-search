@@ -30,6 +30,7 @@
 1. [超级碗](https://s.weibo.com/weibo?q=%E8%B6%85%E7%BA%A7%E7%A2%97&Refer=top) `1.3M 🔥`
 1. [无职转生下架](https://s.weibo.com/weibo?q=%E6%97%A0%E8%81%8C%E8%BD%AC%E7%94%9F%E4%B8%8B%E6%9E%B6&Refer=top) `1.1M 🔥`
 1. [王一博时尚芭莎封面](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E4%B8%80%E5%8D%9A%E6%97%B6%E5%B0%9A%E8%8A%AD%E8%8E%8E%E5%B0%81%E9%9D%A2%23&Refer=top) `1.1M 🔥`
+1. [累丑](https://s.weibo.com/weibo?q=%23%E7%B4%AF%E4%B8%91%23&Refer=top) `1.1M 🔥`
 1. [宋茜古装](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E8%8C%9C%E5%8F%A4%E8%A3%85%23&Refer=top) `1.1M 🔥`
 1. [最新百家姓排名](https://s.weibo.com/weibo?q=%23%E6%9C%80%E6%96%B0%E7%99%BE%E5%AE%B6%E5%A7%93%E6%8E%92%E5%90%8D%23&Refer=top) `1.1M 🔥`
 1. [火锅店称洗碗工赢40万大奖是游戏](https://s.weibo.com/weibo?q=%23%E7%81%AB%E9%94%85%E5%BA%97%E7%A7%B0%E6%B4%97%E7%A2%97%E5%B7%A5%E8%B5%A240%E4%B8%87%E5%A4%A7%E5%A5%96%E6%98%AF%E6%B8%B8%E6%88%8F%23&Refer=top) `1.0M 🔥`
@@ -55,9 +56,8 @@
 1. [中国天眼10%观测时间将对全球开放](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%A4%A9%E7%9C%BC10%25%E8%A7%82%E6%B5%8B%E6%97%B6%E9%97%B4%E5%B0%86%E5%AF%B9%E5%85%A8%E7%90%83%E5%BC%80%E6%94%BE%23&Refer=top) `661.0K 🔥`
 1. [张碧晨点赞华晨宇生日微博](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E7%A2%A7%E6%99%A8%E7%82%B9%E8%B5%9E%E5%8D%8E%E6%99%A8%E5%AE%87%E7%94%9F%E6%97%A5%E5%BE%AE%E5%8D%9A%23&Refer=top) `660.8K 🔥`
 1. [杨笠 女性也可以很多样](https://s.weibo.com/weibo?q=%E6%9D%A8%E7%AC%A0%20%E5%A5%B3%E6%80%A7%E4%B9%9F%E5%8F%AF%E4%BB%A5%E5%BE%88%E5%A4%9A%E6%A0%B7&Refer=top) `657.1K 🔥`
-1. [吴尊和同学合照像两辈人](https://s.weibo.com/weibo?q=%23%E5%90%B4%E5%B0%8A%E5%92%8C%E5%90%8C%E5%AD%A6%E5%90%88%E7%85%A7%E5%83%8F%E4%B8%A4%E8%BE%88%E4%BA%BA%23&Refer=top) `648.7K 🔥`
 
-数据更新于 2021-02-08 14:27:24
+数据更新于 2021-02-08 14:44:15
 
 <!-- END -->
 
