@@ -57,7 +57,7 @@
 1. [THE9Dumb Dumb Bomb](https://s.weibo.com/weibo?q=THE9Dumb%20Dumb%20Bomb&Refer=top) `590.5K 🔥`
 1. [黄景瑜假唱](https://s.weibo.com/weibo?q=%23%E9%BB%84%E6%99%AF%E7%91%9C%E5%81%87%E5%94%B1%23&Refer=top) `586.5K 🔥`
 
-数据更新于 2021-02-11 15:48:48
+数据更新于 2021-02-11 15:54:55
 
 <!-- END -->
 
