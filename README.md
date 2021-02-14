@@ -11,8 +11,9 @@
 1. [日本修改震级为7.3级](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E4%BF%AE%E6%94%B9%E9%9C%87%E7%BA%A7%E4%B8%BA7.3%E7%BA%A7%23&Refer=top) `3.4M 🔥`
 1. [贾玲张小斐的神仙友谊](https://s.weibo.com/weibo?q=%E8%B4%BE%E7%8E%B2%E5%BC%A0%E5%B0%8F%E6%96%90%E7%9A%84%E7%A5%9E%E4%BB%99%E5%8F%8B%E8%B0%8A&Refer=top) `3.2M 🔥`
 1. [张碧晨猜歌猜了斗牛](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E7%A2%A7%E6%99%A8%E7%8C%9C%E6%AD%8C%E7%8C%9C%E4%BA%86%E6%96%97%E7%89%9B%23&Refer=top) `2.7M 🔥`
-1. [陈思诚打造唐探宇宙的野心](https://s.weibo.com/weibo?q=%E9%99%88%E6%80%9D%E8%AF%9A%E6%89%93%E9%80%A0%E5%94%90%E6%8E%A2%E5%AE%87%E5%AE%99%E7%9A%84%E9%87%8E%E5%BF%83&Refer=top) `2.1M 🔥`
+1. [陈思诚打造唐探宇宙的野心](https://s.weibo.com/weibo?q=%E9%99%88%E6%80%9D%E8%AF%9A%E6%89%93%E9%80%A0%E5%94%90%E6%8E%A2%E5%AE%87%E5%AE%99%E7%9A%84%E9%87%8E%E5%BF%83&Refer=top) `2.6M 🔥`
 1. [日本7.1级地震](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC7.1%E7%BA%A7%E5%9C%B0%E9%9C%87%23&Refer=top) `2.0M 🔥`
+1. [李焕英结尾给妈妈买了敞篷车](https://s.weibo.com/weibo?q=%E6%9D%8E%E7%84%95%E8%8B%B1%E7%BB%93%E5%B0%BE%E7%BB%99%E5%A6%88%E5%A6%88%E4%B9%B0%E4%BA%86%E6%95%9E%E7%AF%B7%E8%BD%A6&Refer=top) `1.9M 🔥`
 1. [贾玲妈妈](https://s.weibo.com/weibo?q=%E8%B4%BE%E7%8E%B2%E5%A6%88%E5%A6%88&Refer=top) `1.8M 🔥`
 1. [大年初三安睡迟起](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%B9%B4%E5%88%9D%E4%B8%89%E5%AE%89%E7%9D%A1%E8%BF%9F%E8%B5%B7%23&Refer=top) `1.7M 🔥`
 1. [看你好李焕英后遗症](https://s.weibo.com/weibo?q=%23%E7%9C%8B%E4%BD%A0%E5%A5%BD%E6%9D%8E%E7%84%95%E8%8B%B1%E5%90%8E%E9%81%97%E7%97%87%23&Refer=top) `1.5M 🔥`
@@ -55,9 +56,8 @@
 1. [情人节别人家的男朋友](https://s.weibo.com/weibo?q=%23%E6%83%85%E4%BA%BA%E8%8A%82%E5%88%AB%E4%BA%BA%E5%AE%B6%E7%9A%84%E7%94%B7%E6%9C%8B%E5%8F%8B%23&Refer=top) `637.7K 🔥`
 1. [徐圣恩](https://s.weibo.com/weibo?q=%E5%BE%90%E5%9C%A3%E6%81%A9&Refer=top) `626.2K 🔥`
 1. [张芷陌声明与徐圣恩分手](https://s.weibo.com/weibo?q=%E5%BC%A0%E8%8A%B7%E9%99%8C%E5%A3%B0%E6%98%8E%E4%B8%8E%E5%BE%90%E5%9C%A3%E6%81%A9%E5%88%86%E6%89%8B&Refer=top) `623.9K 🔥`
-1. [詹姆斯战斧劈扣](https://s.weibo.com/weibo?q=%23%E8%A9%B9%E5%A7%86%E6%96%AF%E6%88%98%E6%96%A7%E5%8A%88%E6%89%A3%23&Refer=top) `606.0K 🔥`
 
-数据更新于 2021-02-14 13:25:18
+数据更新于 2021-02-14 13:37:25
 
 <!-- END -->
 
