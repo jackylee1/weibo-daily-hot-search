@@ -7,7 +7,7 @@
 <!-- BEGIN -->
 
 1. [河南春晚总导演回应节目出圈](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8D%97%E6%98%A5%E6%99%9A%E6%80%BB%E5%AF%BC%E6%BC%94%E5%9B%9E%E5%BA%94%E8%8A%82%E7%9B%AE%E5%87%BA%E5%9C%88%23&Refer=top) `4.3M 🔥`
-1. [日本修改震级为7.3级](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E4%BF%AE%E6%94%B9%E9%9C%87%E7%BA%A7%E4%B8%BA7.3%E7%BA%A7%23&Refer=top) `3.3M 🔥`
+1. [日本修改震级为7.3级](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E4%BF%AE%E6%94%B9%E9%9C%87%E7%BA%A7%E4%B8%BA7.3%E7%BA%A7%23&Refer=top) `3.4M 🔥`
 1. [贾玲张小斐的神仙友谊](https://s.weibo.com/weibo?q=%E8%B4%BE%E7%8E%B2%E5%BC%A0%E5%B0%8F%E6%96%90%E7%9A%84%E7%A5%9E%E4%BB%99%E5%8F%8B%E8%B0%8A&Refer=top) `3.2M 🔥`
 1. [张碧晨猜歌猜了斗牛](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E7%A2%A7%E6%99%A8%E7%8C%9C%E6%AD%8C%E7%8C%9C%E4%BA%86%E6%96%97%E7%89%9B%23&Refer=top) `2.7M 🔥`
 1. [日本7.1级地震](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC7.1%E7%BA%A7%E5%9C%B0%E9%9C%87%23&Refer=top) `2.0M 🔥`
@@ -29,22 +29,23 @@
 1. [白冰约会喝了好多茶](https://s.weibo.com/weibo?q=%23%E7%99%BD%E5%86%B0%E7%BA%A6%E4%BC%9A%E5%96%9D%E4%BA%86%E5%A5%BD%E5%A4%9A%E8%8C%B6%23&Refer=top) `811.0K 🔥`
 1. [沈腾春晚小品合集](https://s.weibo.com/weibo?q=%E6%B2%88%E8%85%BE%E6%98%A5%E6%99%9A%E5%B0%8F%E5%93%81%E5%90%88%E9%9B%86&Refer=top) `794.0K 🔥`
 1. [字节跳动或将出售TikTok印度业务](https://s.weibo.com/weibo?q=%E5%AD%97%E8%8A%82%E8%B7%B3%E5%8A%A8%E6%88%96%E5%B0%86%E5%87%BA%E5%94%AETikTok%E5%8D%B0%E5%BA%A6%E4%B8%9A%E5%8A%A1&Refer=top) `771.5K 🔥`
+1. [唐探3票房破18亿](https://s.weibo.com/weibo?q=%23%E5%94%90%E6%8E%A23%E7%A5%A8%E6%88%BF%E7%A0%B418%E4%BA%BF%23&Refer=top) `769.2K 🔥`
 1. [无人机放牛](https://s.weibo.com/weibo?q=%E6%97%A0%E4%BA%BA%E6%9C%BA%E6%94%BE%E7%89%9B&Refer=top) `764.4K 🔥`
-1. [唐探3票房破18亿](https://s.weibo.com/weibo?q=%23%E5%94%90%E6%8E%A23%E7%A5%A8%E6%88%BF%E7%A0%B418%E4%BA%BF%23&Refer=top) `764.1K 🔥`
 1. [蔡卓宜 陈越](https://s.weibo.com/weibo?q=%E8%94%A1%E5%8D%93%E5%AE%9C%20%E9%99%88%E8%B6%8A&Refer=top) `755.6K 🔥`
-1. [留学生录下日本地震惊险一幕](https://s.weibo.com/weibo?q=%23%E7%95%99%E5%AD%A6%E7%94%9F%E5%BD%95%E4%B8%8B%E6%97%A5%E6%9C%AC%E5%9C%B0%E9%9C%87%E6%83%8A%E9%99%A9%E4%B8%80%E5%B9%95%23&Refer=top) `730.7K 🔥`
-1. [唐探3笑点](https://s.weibo.com/weibo?q=%E5%94%90%E6%8E%A23%E7%AC%91%E7%82%B9&Refer=top) `690.3K 🔥`
+1. [留学生录下日本地震惊险一幕](https://s.weibo.com/weibo?q=%23%E7%95%99%E5%AD%A6%E7%94%9F%E5%BD%95%E4%B8%8B%E6%97%A5%E6%9C%AC%E5%9C%B0%E9%9C%87%E6%83%8A%E9%99%A9%E4%B8%80%E5%B9%95%23&Refer=top) `736.8K 🔥`
+1. [唐探3笑点](https://s.weibo.com/weibo?q=%E5%94%90%E6%8E%A23%E7%AC%91%E7%82%B9&Refer=top) `721.7K 🔥`
+1. [拜仁道歉](https://s.weibo.com/weibo?q=%23%E6%8B%9C%E4%BB%81%E9%81%93%E6%AD%89%23&Refer=top) `708.0K 🔥`
 1. [日本福岛核电站目前未见异常](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E7%A6%8F%E5%B2%9B%E6%A0%B8%E7%94%B5%E7%AB%99%E7%9B%AE%E5%89%8D%E6%9C%AA%E8%A7%81%E5%BC%82%E5%B8%B8%23&Refer=top) `688.9K 🔥`
+1. [你好李焕英票房](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E5%A5%BD%E6%9D%8E%E7%84%95%E8%8B%B1%E7%A5%A8%E6%88%BF%23&Refer=top) `686.1K 🔥`
 1. [90后女孩辞职拍摄菌类](https://s.weibo.com/weibo?q=%2390%E5%90%8E%E5%A5%B3%E5%AD%A9%E8%BE%9E%E8%81%8C%E6%8B%8D%E6%91%84%E8%8F%8C%E7%B1%BB%23&Refer=top) `677.3K 🔥`
 1. [肖骁发长文回应](https://s.weibo.com/weibo?q=%23%E8%82%96%E9%AA%81%E5%8F%91%E9%95%BF%E6%96%87%E5%9B%9E%E5%BA%94%23&Refer=top) `675.4K 🔥`
 1. [人潮汹涌导演发声求排片](https://s.weibo.com/weibo?q=%23%E4%BA%BA%E6%BD%AE%E6%B1%B9%E6%B6%8C%E5%AF%BC%E6%BC%94%E5%8F%91%E5%A3%B0%E6%B1%82%E6%8E%92%E7%89%87%23&Refer=top) `672.2K 🔥`
-1. [拜仁道歉](https://s.weibo.com/weibo?q=%23%E6%8B%9C%E4%BB%81%E9%81%93%E6%AD%89%23&Refer=top) `671.9K 🔥`
-1. [你好李焕英票房](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E5%A5%BD%E6%9D%8E%E7%84%95%E8%8B%B1%E7%A5%A8%E6%88%BF%23&Refer=top) `662.0K 🔥`
+1. [孙坚哭戏来源真实经历](https://s.weibo.com/weibo?q=%23%E5%AD%99%E5%9D%9A%E5%93%AD%E6%88%8F%E6%9D%A5%E6%BA%90%E7%9C%9F%E5%AE%9E%E7%BB%8F%E5%8E%86%23&Refer=top) `670.1K 🔥`
 1. [赘婿](https://s.weibo.com/weibo?q=%E8%B5%98%E5%A9%BF&Refer=top) `655.0K 🔥`
 1. [人潮汹涌](https://s.weibo.com/weibo?q=%E4%BA%BA%E6%BD%AE%E6%B1%B9%E6%B6%8C&Refer=top) `649.4K 🔥`
 1. [唐探3豆瓣评分](https://s.weibo.com/weibo?q=%23%E5%94%90%E6%8E%A23%E8%B1%86%E7%93%A3%E8%AF%84%E5%88%86%23&Refer=top) `637.9K 🔥`
 1. [情人节别人家的男朋友](https://s.weibo.com/weibo?q=%23%E6%83%85%E4%BA%BA%E8%8A%82%E5%88%AB%E4%BA%BA%E5%AE%B6%E7%9A%84%E7%94%B7%E6%9C%8B%E5%8F%8B%23&Refer=top) `637.7K 🔥`
-1. [孙坚哭戏来源真实经历](https://s.weibo.com/weibo?q=%23%E5%AD%99%E5%9D%9A%E5%93%AD%E6%88%8F%E6%9D%A5%E6%BA%90%E7%9C%9F%E5%AE%9E%E7%BB%8F%E5%8E%86%23&Refer=top) `634.8K 🔥`
+1. [王子文吴永恩约会好甜](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E5%AD%90%E6%96%87%E5%90%B4%E6%B0%B8%E6%81%A9%E7%BA%A6%E4%BC%9A%E5%A5%BD%E7%94%9C%23&Refer=top) `636.6K 🔥`
 1. [徐圣恩](https://s.weibo.com/weibo?q=%E5%BE%90%E5%9C%A3%E6%81%A9&Refer=top) `626.2K 🔥`
 1. [张芷陌声明与徐圣恩分手](https://s.weibo.com/weibo?q=%E5%BC%A0%E8%8A%B7%E9%99%8C%E5%A3%B0%E6%98%8E%E4%B8%8E%E5%BE%90%E5%9C%A3%E6%81%A9%E5%88%86%E6%89%8B&Refer=top) `623.9K 🔥`
 1. [詹姆斯战斧劈扣](https://s.weibo.com/weibo?q=%23%E8%A9%B9%E5%A7%86%E6%96%AF%E6%88%98%E6%96%A7%E5%8A%88%E6%89%A3%23&Refer=top) `606.0K 🔥`
@@ -54,10 +55,9 @@
 1. [唐宫夜宴](https://s.weibo.com/weibo?q=%E5%94%90%E5%AE%AB%E5%A4%9C%E5%AE%B4&Refer=top) `576.2K 🔥`
 1. [宋亚轩反拍私生](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E4%BA%9A%E8%BD%A9%E5%8F%8D%E6%8B%8D%E7%A7%81%E7%94%9F%23&Refer=top) `567.0K 🔥`
 1. [染谷将太](https://s.weibo.com/weibo?q=%E6%9F%93%E8%B0%B7%E5%B0%86%E5%A4%AA&Refer=top) `539.8K 🔥`
-1. [新疆民警徒手挖雪洞躲风雪](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%96%86%E6%B0%91%E8%AD%A6%E5%BE%92%E6%89%8B%E6%8C%96%E9%9B%AA%E6%B4%9E%E8%BA%B2%E9%A3%8E%E9%9B%AA%23&Refer=top) `516.1K 🔥`
-1. [瓜子吃太多会得瓜子病](https://s.weibo.com/weibo?q=%23%E7%93%9C%E5%AD%90%E5%90%83%E5%A4%AA%E5%A4%9A%E4%BC%9A%E5%BE%97%E7%93%9C%E5%AD%90%E7%97%85%23&Refer=top) `512.1K 🔥`
+1. [新疆民警徒手挖雪洞躲风雪](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%96%86%E6%B0%91%E8%AD%A6%E5%BE%92%E6%89%8B%E6%8C%96%E9%9B%AA%E6%B4%9E%E8%BA%B2%E9%A3%8E%E9%9B%AA%23&Refer=top) `519.8K 🔥`
 
-数据更新于 2021-02-14 11:35:52
+数据更新于 2021-02-14 11:48:35
 
 <!-- END -->
 
