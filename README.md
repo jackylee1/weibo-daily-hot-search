@@ -6,7 +6,7 @@
 
 <!-- BEGIN -->
 
-1. [河南春晚总导演回应节目出圈](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8D%97%E6%98%A5%E6%99%9A%E6%80%BB%E5%AF%BC%E6%BC%94%E5%9B%9E%E5%BA%94%E8%8A%82%E7%9B%AE%E5%87%BA%E5%9C%88%23&Refer=top) `2.9M 🔥`
+1. [河南春晚总导演回应节目出圈](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8D%97%E6%98%A5%E6%99%9A%E6%80%BB%E5%AF%BC%E6%BC%94%E5%9B%9E%E5%BA%94%E8%8A%82%E7%9B%AE%E5%87%BA%E5%9C%88%23&Refer=top) `3.0M 🔥`
 1. [张碧晨猜歌猜了斗牛](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E7%A2%A7%E6%99%A8%E7%8C%9C%E6%AD%8C%E7%8C%9C%E4%BA%86%E6%96%97%E7%89%9B%23&Refer=top) `2.7M 🔥`
 1. [日本修改震级为7.3级](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E4%BF%AE%E6%94%B9%E9%9C%87%E7%BA%A7%E4%B8%BA7.3%E7%BA%A7%23&Refer=top) `2.1M 🔥`
 1. [日本7.1级地震](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC7.1%E7%BA%A7%E5%9C%B0%E9%9C%87%23&Refer=top) `2.0M 🔥`
@@ -18,10 +18,11 @@
 1. [回村听到最劲爆的八卦](https://s.weibo.com/weibo?q=%23%E5%9B%9E%E6%9D%91%E5%90%AC%E5%88%B0%E6%9C%80%E5%8A%B2%E7%88%86%E7%9A%84%E5%85%AB%E5%8D%A6%23&Refer=top) `1.1M 🔥`
 1. [唐探3广告植入](https://s.weibo.com/weibo?q=%23%E5%94%90%E6%8E%A23%E5%B9%BF%E5%91%8A%E6%A4%8D%E5%85%A5%23&Refer=top) `1.1M 🔥`
 1. [过年时外地女婿的统一姿势](https://s.weibo.com/weibo?q=%23%E8%BF%87%E5%B9%B4%E6%97%B6%E5%A4%96%E5%9C%B0%E5%A5%B3%E5%A9%BF%E7%9A%84%E7%BB%9F%E4%B8%80%E5%A7%BF%E5%8A%BF%23&Refer=top) `994.3K 🔥`
-1. [妈妈原来什么都知道](https://s.weibo.com/weibo?q=%E5%A6%88%E5%A6%88%E5%8E%9F%E6%9D%A5%E4%BB%80%E4%B9%88%E9%83%BD%E7%9F%A5%E9%81%93&Refer=top) `900.2K 🔥`
+1. [贾玲张小斐的神仙友谊](https://s.weibo.com/weibo?q=%E8%B4%BE%E7%8E%B2%E5%BC%A0%E5%B0%8F%E6%96%90%E7%9A%84%E7%A5%9E%E4%BB%99%E5%8F%8B%E8%B0%8A&Refer=top) `940.0K 🔥`
+1. [世卫组织将发布病毒溯源报告摘要](https://s.weibo.com/weibo?q=%23%E4%B8%96%E5%8D%AB%E7%BB%84%E7%BB%87%E5%B0%86%E5%8F%91%E5%B8%83%E7%97%85%E6%AF%92%E6%BA%AF%E6%BA%90%E6%8A%A5%E5%91%8A%E6%91%98%E8%A6%81%23&Refer=top) `937.5K 🔥`
+1. [妈妈原来什么都知道](https://s.weibo.com/weibo?q=%E5%A6%88%E5%A6%88%E5%8E%9F%E6%9D%A5%E4%BB%80%E4%B9%88%E9%83%BD%E7%9F%A5%E9%81%93&Refer=top) `936.5K 🔥`
 1. [情人节](https://s.weibo.com/weibo?q=%E6%83%85%E4%BA%BA%E8%8A%82&Refer=top) `866.7K 🔥`
 1. [日本地震造成大范围停电](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E5%9C%B0%E9%9C%87%E9%80%A0%E6%88%90%E5%A4%A7%E8%8C%83%E5%9B%B4%E5%81%9C%E7%94%B5%23&Refer=top) `862.1K 🔥`
-1. [世卫组织将发布病毒溯源报告摘要](https://s.weibo.com/weibo?q=%23%E4%B8%96%E5%8D%AB%E7%BB%84%E7%BB%87%E5%B0%86%E5%8F%91%E5%B8%83%E7%97%85%E6%AF%92%E6%BA%AF%E6%BA%90%E6%8A%A5%E5%91%8A%E6%91%98%E8%A6%81%23&Refer=top) `849.3K 🔥`
 1. [看李焕英把口罩哭湿](https://s.weibo.com/weibo?q=%23%E7%9C%8B%E6%9D%8E%E7%84%95%E8%8B%B1%E6%8A%8A%E5%8F%A3%E7%BD%A9%E5%93%AD%E6%B9%BF%23&Refer=top) `846.4K 🔥`
 1. [山东核酸检测不再收挂号费和门诊诊察费](https://s.weibo.com/weibo?q=%E5%B1%B1%E4%B8%9C%E6%A0%B8%E9%85%B8%E6%A3%80%E6%B5%8B%E4%B8%8D%E5%86%8D%E6%94%B6%E6%8C%82%E5%8F%B7%E8%B4%B9%E5%92%8C%E9%97%A8%E8%AF%8A%E8%AF%8A%E5%AF%9F%E8%B4%B9&Refer=top) `832.7K 🔥`
 1. [官方回应游乐场飞椅坠落](https://s.weibo.com/weibo?q=%23%E5%AE%98%E6%96%B9%E5%9B%9E%E5%BA%94%E6%B8%B8%E4%B9%90%E5%9C%BA%E9%A3%9E%E6%A4%85%E5%9D%A0%E8%90%BD%23&Refer=top) `817.9K 🔥`
@@ -45,19 +46,18 @@
 1. [江疏影发红包不如转账](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E7%96%8F%E5%BD%B1%E5%8F%91%E7%BA%A2%E5%8C%85%E4%B8%8D%E5%A6%82%E8%BD%AC%E8%B4%A6%23&Refer=top) `578.3K 🔥`
 1. [宋亚轩反拍私生](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E4%BA%9A%E8%BD%A9%E5%8F%8D%E6%8B%8D%E7%A7%81%E7%94%9F%23&Refer=top) `567.0K 🔥`
 1. [染谷将太](https://s.weibo.com/weibo?q=%E6%9F%93%E8%B0%B7%E5%B0%86%E5%A4%AA&Refer=top) `539.8K 🔥`
+1. [唐探3笑点](https://s.weibo.com/weibo?q=%E5%94%90%E6%8E%A23%E7%AC%91%E7%82%B9&Refer=top) `530.4K 🔥`
 1. [瓜子吃太多会得瓜子病](https://s.weibo.com/weibo?q=%23%E7%93%9C%E5%AD%90%E5%90%83%E5%A4%AA%E5%A4%9A%E4%BC%9A%E5%BE%97%E7%93%9C%E5%AD%90%E7%97%85%23&Refer=top) `512.1K 🔥`
-1. [拜仁道歉](https://s.weibo.com/weibo?q=%23%E6%8B%9C%E4%BB%81%E9%81%93%E6%AD%89%23&Refer=top) `499.4K 🔥`
+1. [留学生录下日本地震惊险一幕](https://s.weibo.com/weibo?q=%23%E7%95%99%E5%AD%A6%E7%94%9F%E5%BD%95%E4%B8%8B%E6%97%A5%E6%9C%AC%E5%9C%B0%E9%9C%87%E6%83%8A%E9%99%A9%E4%B8%80%E5%B9%95%23&Refer=top) `507.7K 🔥`
+1. [拜仁道歉](https://s.weibo.com/weibo?q=%23%E6%8B%9C%E4%BB%81%E9%81%93%E6%AD%89%23&Refer=top) `504.0K 🔥`
 1. [岳云鹏一天看了6部电影](https://s.weibo.com/weibo?q=%23%E5%B2%B3%E4%BA%91%E9%B9%8F%E4%B8%80%E5%A4%A9%E7%9C%8B%E4%BA%866%E9%83%A8%E7%94%B5%E5%BD%B1%23&Refer=top) `485.2K 🔥`
 1. [特朗普回应第二次弹劾案审判结果](https://s.weibo.com/weibo?q=%E7%89%B9%E6%9C%97%E6%99%AE%E5%9B%9E%E5%BA%94%E7%AC%AC%E4%BA%8C%E6%AC%A1%E5%BC%B9%E5%8A%BE%E6%A1%88%E5%AE%A1%E5%88%A4%E7%BB%93%E6%9E%9C&Refer=top) `481.0K 🔥`
-1. [留学生录下日本地震惊险一幕](https://s.weibo.com/weibo?q=%23%E7%95%99%E5%AD%A6%E7%94%9F%E5%BD%95%E4%B8%8B%E6%97%A5%E6%9C%AC%E5%9C%B0%E9%9C%87%E6%83%8A%E9%99%A9%E4%B8%80%E5%B9%95%23&Refer=top) `464.7K 🔥`
+1. [唐探3票房破18亿](https://s.weibo.com/weibo?q=%23%E5%94%90%E6%8E%A23%E7%A5%A8%E6%88%BF%E7%A0%B418%E4%BA%BF%23&Refer=top) `477.0K 🔥`
+1. [你好李焕英票房](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E5%A5%BD%E6%9D%8E%E7%84%95%E8%8B%B1%E7%A5%A8%E6%88%BF%23&Refer=top) `476.2K 🔥`
 1. [当爷爷知道我对象上电视后](https://s.weibo.com/weibo?q=%23%E5%BD%93%E7%88%B7%E7%88%B7%E7%9F%A5%E9%81%93%E6%88%91%E5%AF%B9%E8%B1%A1%E4%B8%8A%E7%94%B5%E8%A7%86%E5%90%8E%23&Refer=top) `455.5K 🔥`
 1. [边防军人让国旗飘扬在边境线上](https://s.weibo.com/weibo?q=%E8%BE%B9%E9%98%B2%E5%86%9B%E4%BA%BA%E8%AE%A9%E5%9B%BD%E6%97%97%E9%A3%98%E6%89%AC%E5%9C%A8%E8%BE%B9%E5%A2%83%E7%BA%BF%E4%B8%8A&Refer=top) `454.9K 🔥`
-1. [15副省级城市GDP](https://s.weibo.com/weibo?q=%2315%E5%89%AF%E7%9C%81%E7%BA%A7%E5%9F%8E%E5%B8%82GDP%23&Refer=top) `453.0K 🔥`
-1. [马克龙用四国语言拜年](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E5%85%8B%E9%BE%99%E7%94%A8%E5%9B%9B%E5%9B%BD%E8%AF%AD%E8%A8%80%E6%8B%9C%E5%B9%B4%23&Refer=top) `452.1K 🔥`
-1. [江苏人在日本亲历地震](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%8B%8F%E4%BA%BA%E5%9C%A8%E6%97%A5%E6%9C%AC%E4%BA%B2%E5%8E%86%E5%9C%B0%E9%9C%87%23&Refer=top) `450.9K 🔥`
-1. [李宇春说青你3有出乎意料的选手](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E5%AE%87%E6%98%A5%E8%AF%B4%E9%9D%92%E4%BD%A03%E6%9C%89%E5%87%BA%E4%B9%8E%E6%84%8F%E6%96%99%E7%9A%84%E9%80%89%E6%89%8B%23&Refer=top) `450.5K 🔥`
 
-数据更新于 2021-02-14 10:53:17
+数据更新于 2021-02-14 10:59:01
 
 <!-- END -->
 
