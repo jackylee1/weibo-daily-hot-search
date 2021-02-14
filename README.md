@@ -7,16 +7,17 @@
 <!-- BEGIN -->
 
 1. [河南春晚总导演回应节目出圈](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8D%97%E6%98%A5%E6%99%9A%E6%80%BB%E5%AF%BC%E6%BC%94%E5%9B%9E%E5%BA%94%E8%8A%82%E7%9B%AE%E5%87%BA%E5%9C%88%23&Refer=top) `4.3M 🔥`
+1. [霍思燕说春晚的牛好像杜江](https://s.weibo.com/weibo?q=%23%E9%9C%8D%E6%80%9D%E7%87%95%E8%AF%B4%E6%98%A5%E6%99%9A%E7%9A%84%E7%89%9B%E5%A5%BD%E5%83%8F%E6%9D%9C%E6%B1%9F%23&Refer=top) `4.2M 🔥`
 1. [向佐郭碧婷一家三口合照](https://s.weibo.com/weibo?q=%23%E5%90%91%E4%BD%90%E9%83%AD%E7%A2%A7%E5%A9%B7%E4%B8%80%E5%AE%B6%E4%B8%89%E5%8F%A3%E5%90%88%E7%85%A7%23&Refer=top) `4.1M 🔥`
 1. [陈法拉生女](https://s.weibo.com/weibo?q=%23%E9%99%88%E6%B3%95%E6%8B%89%E7%94%9F%E5%A5%B3%23&Refer=top) `3.9M 🔥`
+1. [全球7成新冠疫苗已被富裕国家抢购](https://s.weibo.com/weibo?q=%23%E5%85%A8%E7%90%837%E6%88%90%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E5%B7%B2%E8%A2%AB%E5%AF%8C%E8%A3%95%E5%9B%BD%E5%AE%B6%E6%8A%A2%E8%B4%AD%23&Refer=top) `3.4M 🔥`
 1. [日本修改震级为7.3级](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E4%BF%AE%E6%94%B9%E9%9C%87%E7%BA%A7%E4%B8%BA7.3%E7%BA%A7%23&Refer=top) `3.4M 🔥`
-1. [全球7成新冠疫苗已被富裕国家抢购](https://s.weibo.com/weibo?q=%23%E5%85%A8%E7%90%837%E6%88%90%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E5%B7%B2%E8%A2%AB%E5%AF%8C%E8%A3%95%E5%9B%BD%E5%AE%B6%E6%8A%A2%E8%B4%AD%23&Refer=top) `3.3M 🔥`
 1. [贾玲张小斐的神仙友谊](https://s.weibo.com/weibo?q=%E8%B4%BE%E7%8E%B2%E5%BC%A0%E5%B0%8F%E6%96%90%E7%9A%84%E7%A5%9E%E4%BB%99%E5%8F%8B%E8%B0%8A&Refer=top) `3.2M 🔥`
 1. [谭松韵眼神](https://s.weibo.com/weibo?q=%23%E8%B0%AD%E6%9D%BE%E9%9F%B5%E7%9C%BC%E7%A5%9E%23&Refer=top) `2.9M 🔥`
 1. [张碧晨猜歌猜了斗牛](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E7%A2%A7%E6%99%A8%E7%8C%9C%E6%AD%8C%E7%8C%9C%E4%BA%86%E6%96%97%E7%89%9B%23&Refer=top) `2.7M 🔥`
 1. [陈思诚打造唐探宇宙的野心](https://s.weibo.com/weibo?q=%E9%99%88%E6%80%9D%E8%AF%9A%E6%89%93%E9%80%A0%E5%94%90%E6%8E%A2%E5%AE%87%E5%AE%99%E7%9A%84%E9%87%8E%E5%BF%83&Refer=top) `2.7M 🔥`
+1. [唐仁 人设](https://s.weibo.com/weibo?q=%E5%94%90%E4%BB%81%20%E4%BA%BA%E8%AE%BE&Refer=top) `2.6M 🔥`
 1. [男朋友抠不出来](https://s.weibo.com/weibo?q=%23%E7%94%B7%E6%9C%8B%E5%8F%8B%E6%8A%A0%E4%B8%8D%E5%87%BA%E6%9D%A5%23&Refer=top) `2.4M 🔥`
-1. [唐仁 人设](https://s.weibo.com/weibo?q=%E5%94%90%E4%BB%81%20%E4%BA%BA%E8%AE%BE&Refer=top) `2.4M 🔥`
 1. [李焕英结尾给妈妈买了敞篷车](https://s.weibo.com/weibo?q=%E6%9D%8E%E7%84%95%E8%8B%B1%E7%BB%93%E5%B0%BE%E7%BB%99%E5%A6%88%E5%A6%88%E4%B9%B0%E4%BA%86%E6%95%9E%E7%AF%B7%E8%BD%A6&Refer=top) `2.4M 🔥`
 1. [日本7.1级地震](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC7.1%E7%BA%A7%E5%9C%B0%E9%9C%87%23&Refer=top) `2.0M 🔥`
 1. [贾玲妈妈](https://s.weibo.com/weibo?q=%E8%B4%BE%E7%8E%B2%E5%A6%88%E5%A6%88&Refer=top) `1.8M 🔥`
@@ -32,7 +33,6 @@
 1. [唐探3广告植入](https://s.weibo.com/weibo?q=%23%E5%94%90%E6%8E%A23%E5%B9%BF%E5%91%8A%E6%A4%8D%E5%85%A5%23&Refer=top) `1.1M 🔥`
 1. [佛首是2020年回归第100件流失文物](https://s.weibo.com/weibo?q=%E4%BD%9B%E9%A6%96%E6%98%AF2020%E5%B9%B4%E5%9B%9E%E5%BD%92%E7%AC%AC100%E4%BB%B6%E6%B5%81%E5%A4%B1%E6%96%87%E7%89%A9&Refer=top) `1.0M 🔥`
 1. [唐探3票房破18亿](https://s.weibo.com/weibo?q=%23%E5%94%90%E6%8E%A23%E7%A5%A8%E6%88%BF%E7%A0%B418%E4%BA%BF%23&Refer=top) `980.1K 🔥`
-1. [霍思燕说春晚的牛好像杜江](https://s.weibo.com/weibo?q=%E9%9C%8D%E6%80%9D%E7%87%95%E8%AF%B4%E6%98%A5%E6%99%9A%E7%9A%84%E7%89%9B%E5%A5%BD%E5%83%8F%E6%9D%9C%E6%B1%9F&Refer=top) `979.8K 🔥`
 1. [情人节](https://s.weibo.com/weibo?q=%E6%83%85%E4%BA%BA%E8%8A%82&Refer=top) `969.7K 🔥`
 1. [留学生录下日本地震惊险一幕](https://s.weibo.com/weibo?q=%23%E7%95%99%E5%AD%A6%E7%94%9F%E5%BD%95%E4%B8%8B%E6%97%A5%E6%9C%AC%E5%9C%B0%E9%9C%87%E6%83%8A%E9%99%A9%E4%B8%80%E5%B9%95%23&Refer=top) `963.8K 🔥`
 1. [唐探3笑点](https://s.weibo.com/weibo?q=%E5%94%90%E6%8E%A23%E7%AC%91%E7%82%B9&Refer=top) `955.6K 🔥`
@@ -50,14 +50,14 @@
 1. [官方回应游乐场飞椅坠落](https://s.weibo.com/weibo?q=%23%E5%AE%98%E6%96%B9%E5%9B%9E%E5%BA%94%E6%B8%B8%E4%B9%90%E5%9C%BA%E9%A3%9E%E6%A4%85%E5%9D%A0%E8%90%BD%23&Refer=top) `817.9K 🔥`
 1. [无人机放牛](https://s.weibo.com/weibo?q=%E6%97%A0%E4%BA%BA%E6%9C%BA%E6%94%BE%E7%89%9B&Refer=top) `817.8K 🔥`
 1. [白冰约会喝了好多茶](https://s.weibo.com/weibo?q=%23%E7%99%BD%E5%86%B0%E7%BA%A6%E4%BC%9A%E5%96%9D%E4%BA%86%E5%A5%BD%E5%A4%9A%E8%8C%B6%23&Refer=top) `811.0K 🔥`
+1. [美国99%儿童生活在新冠高度传播地区](https://s.weibo.com/weibo?q=%E7%BE%8E%E5%9B%BD99%25%E5%84%BF%E7%AB%A5%E7%94%9F%E6%B4%BB%E5%9C%A8%E6%96%B0%E5%86%A0%E9%AB%98%E5%BA%A6%E4%BC%A0%E6%92%AD%E5%9C%B0%E5%8C%BA&Refer=top) `797.9K 🔥`
 1. [沈腾春晚小品合集](https://s.weibo.com/weibo?q=%E6%B2%88%E8%85%BE%E6%98%A5%E6%99%9A%E5%B0%8F%E5%93%81%E5%90%88%E9%9B%86&Refer=top) `794.0K 🔥`
 1. [孙坚哭戏来源真实经历](https://s.weibo.com/weibo?q=%23%E5%AD%99%E5%9D%9A%E5%93%AD%E6%88%8F%E6%9D%A5%E6%BA%90%E7%9C%9F%E5%AE%9E%E7%BB%8F%E5%8E%86%23&Refer=top) `781.0K 🔥`
 1. [佛首捐赠者收400余条祝福信息](https://s.weibo.com/weibo?q=%E4%BD%9B%E9%A6%96%E6%8D%90%E8%B5%A0%E8%80%85%E6%94%B6400%E4%BD%99%E6%9D%A1%E7%A5%9D%E7%A6%8F%E4%BF%A1%E6%81%AF&Refer=top) `773.9K 🔥`
 1. [字节跳动或将出售TikTok印度业务](https://s.weibo.com/weibo?q=%E5%AD%97%E8%8A%82%E8%B7%B3%E5%8A%A8%E6%88%96%E5%B0%86%E5%87%BA%E5%94%AETikTok%E5%8D%B0%E5%BA%A6%E4%B8%9A%E5%8A%A1&Refer=top) `771.5K 🔥`
 1. [蔡卓宜 陈越](https://s.weibo.com/weibo?q=%E8%94%A1%E5%8D%93%E5%AE%9C%20%E9%99%88%E8%B6%8A&Refer=top) `755.6K 🔥`
-1. [舒淇叫林熙蕾老婆](https://s.weibo.com/weibo?q=%E8%88%92%E6%B7%87%E5%8F%AB%E6%9E%97%E7%86%99%E8%95%BE%E8%80%81%E5%A9%86&Refer=top) `710.5K 🔥`
 
-数据更新于 2021-02-14 18:28:16
+数据更新于 2021-02-14 18:41:49
 
 <!-- END -->
 
