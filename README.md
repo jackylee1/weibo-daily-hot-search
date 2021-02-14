@@ -20,8 +20,9 @@
 1. [男朋友抠不出来](https://s.weibo.com/weibo?q=%23%E7%94%B7%E6%9C%8B%E5%8F%8B%E6%8A%A0%E4%B8%8D%E5%87%BA%E6%9D%A5%23&Refer=top) `2.4M 🔥`
 1. [李焕英结尾给妈妈买了敞篷车](https://s.weibo.com/weibo?q=%E6%9D%8E%E7%84%95%E8%8B%B1%E7%BB%93%E5%B0%BE%E7%BB%99%E5%A6%88%E5%A6%88%E4%B9%B0%E4%BA%86%E6%95%9E%E7%AF%B7%E8%BD%A6&Refer=top) `2.4M 🔥`
 1. [被文咏珊惊艳到](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E6%96%87%E5%92%8F%E7%8F%8A%E6%83%8A%E8%89%B3%E5%88%B0%23&Refer=top) `2.3M 🔥`
+1. [几内亚出现5年来首批埃博拉死亡病例](https://s.weibo.com/weibo?q=%23%E5%87%A0%E5%86%85%E4%BA%9A%E5%87%BA%E7%8E%B05%E5%B9%B4%E6%9D%A5%E9%A6%96%E6%89%B9%E5%9F%83%E5%8D%9A%E6%8B%89%E6%AD%BB%E4%BA%A1%E7%97%85%E4%BE%8B%23&Refer=top) `2.2M 🔥`
+1. [赘婿](https://s.weibo.com/weibo?q=%E8%B5%98%E5%A9%BF&Refer=top) `2.0M 🔥`
 1. [日本7.1级地震](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC7.1%E7%BA%A7%E5%9C%B0%E9%9C%87%23&Refer=top) `2.0M 🔥`
-1. [赘婿](https://s.weibo.com/weibo?q=%E8%B5%98%E5%A9%BF&Refer=top) `1.9M 🔥`
 1. [贾玲妈妈](https://s.weibo.com/weibo?q=%E8%B4%BE%E7%8E%B2%E5%A6%88%E5%A6%88&Refer=top) `1.8M 🔥`
 1. [湖北一网红吊桥侧翻多人掉落茶园](https://s.weibo.com/weibo?q=%23%E6%B9%96%E5%8C%97%E4%B8%80%E7%BD%91%E7%BA%A2%E5%90%8A%E6%A1%A5%E4%BE%A7%E7%BF%BB%E5%A4%9A%E4%BA%BA%E6%8E%89%E8%90%BD%E8%8C%B6%E5%9B%AD%23&Refer=top) `1.7M 🔥`
 1. [大年初三安睡迟起](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%B9%B4%E5%88%9D%E4%B8%89%E5%AE%89%E7%9D%A1%E8%BF%9F%E8%B5%B7%23&Refer=top) `1.7M 🔥`
@@ -55,9 +56,8 @@
 1. [美国99%儿童生活在新冠高度传播地区](https://s.weibo.com/weibo?q=%E7%BE%8E%E5%9B%BD99%25%E5%84%BF%E7%AB%A5%E7%94%9F%E6%B4%BB%E5%9C%A8%E6%96%B0%E5%86%A0%E9%AB%98%E5%BA%A6%E4%BC%A0%E6%92%AD%E5%9C%B0%E5%8C%BA&Refer=top) `816.8K 🔥`
 1. [白冰约会喝了好多茶](https://s.weibo.com/weibo?q=%23%E7%99%BD%E5%86%B0%E7%BA%A6%E4%BC%9A%E5%96%9D%E4%BA%86%E5%A5%BD%E5%A4%9A%E8%8C%B6%23&Refer=top) `811.0K 🔥`
 1. [沈腾春晚小品合集](https://s.weibo.com/weibo?q=%E6%B2%88%E8%85%BE%E6%98%A5%E6%99%9A%E5%B0%8F%E5%93%81%E5%90%88%E9%9B%86&Refer=top) `794.0K 🔥`
-1. [吐槽大会](https://s.weibo.com/weibo?q=%E5%90%90%E6%A7%BD%E5%A4%A7%E4%BC%9A&Refer=top) `781.2K 🔥`
 
-数据更新于 2021-02-14 21:39:48
+数据更新于 2021-02-14 21:45:48
 
 <!-- END -->
 
