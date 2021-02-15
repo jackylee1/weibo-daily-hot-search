@@ -57,7 +57,7 @@
 1. [河北新增确诊病例详情](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8C%97%E6%96%B0%E5%A2%9E%E7%A1%AE%E8%AF%8A%E7%97%85%E4%BE%8B%E8%AF%A6%E6%83%85%23&Refer=top) `794.5K 🔥`
 1. [Girls help girls](https://s.weibo.com/weibo?q=Girls%20help%20girls&Refer=top) `786.8K 🔥`
 
-数据更新于 2021-02-15 18:26:13
+数据更新于 2021-02-15 18:38:06
 
 <!-- END -->
 
