@@ -50,14 +50,14 @@
 1. [明星大侦探](https://s.weibo.com/weibo?q=%E6%98%8E%E6%98%9F%E5%A4%A7%E4%BE%A6%E6%8E%A2&Refer=top) `842.1K 🔥`
 1. [纽约州长回应瞒报养老院新冠死亡数](https://s.weibo.com/weibo?q=%23%E7%BA%BD%E7%BA%A6%E5%B7%9E%E9%95%BF%E5%9B%9E%E5%BA%94%E7%9E%92%E6%8A%A5%E5%85%BB%E8%80%81%E9%99%A2%E6%96%B0%E5%86%A0%E6%AD%BB%E4%BA%A1%E6%95%B0%23&Refer=top) `833.7K 🔥`
 1. [林更新 不普通而又那么自信](https://s.weibo.com/weibo?q=%E6%9E%97%E6%9B%B4%E6%96%B0%20%E4%B8%8D%E6%99%AE%E9%80%9A%E8%80%8C%E5%8F%88%E9%82%A3%E4%B9%88%E8%87%AA%E4%BF%A1&Refer=top) `782.4K 🔥`
+1. [4种劝酒出事要负法律责任](https://s.weibo.com/weibo?q=%234%E7%A7%8D%E5%8A%9D%E9%85%92%E5%87%BA%E4%BA%8B%E8%A6%81%E8%B4%9F%E6%B3%95%E5%BE%8B%E8%B4%A3%E4%BB%BB%23&Refer=top) `777.5K 🔥`
 1. [火星上到底有没有水](https://s.weibo.com/weibo?q=%23%E7%81%AB%E6%98%9F%E4%B8%8A%E5%88%B0%E5%BA%95%E6%9C%89%E6%B2%A1%E6%9C%89%E6%B0%B4%23&Refer=top) `770.0K 🔥`
 1. [黑龙江高校中小学正常开学](https://s.weibo.com/weibo?q=%23%E9%BB%91%E9%BE%99%E6%B1%9F%E9%AB%98%E6%A0%A1%E4%B8%AD%E5%B0%8F%E5%AD%A6%E6%AD%A3%E5%B8%B8%E5%BC%80%E5%AD%A6%23&Refer=top) `762.1K 🔥`
 1. [林书豪17分](https://s.weibo.com/weibo?q=%E6%9E%97%E4%B9%A6%E8%B1%AA17%E5%88%86&Refer=top) `756.6K 🔥`
 1. [哈登欧文合砍69分](https://s.weibo.com/weibo?q=%E5%93%88%E7%99%BB%E6%AC%A7%E6%96%87%E5%90%88%E7%A0%8D69%E5%88%86&Refer=top) `753.4K 🔥`
 1. [尴尬到换个城市生活](https://s.weibo.com/weibo?q=%23%E5%B0%B4%E5%B0%AC%E5%88%B0%E6%8D%A2%E4%B8%AA%E5%9F%8E%E5%B8%82%E7%94%9F%E6%B4%BB%23&Refer=top) `744.7K 🔥`
-1. [刺杀小说家票房破4亿](https://s.weibo.com/weibo?q=%23%E5%88%BA%E6%9D%80%E5%B0%8F%E8%AF%B4%E5%AE%B6%E7%A5%A8%E6%88%BF%E7%A0%B44%E4%BA%BF%23&Refer=top) `738.9K 🔥`
 
-数据更新于 2021-02-16 18:28:40
+数据更新于 2021-02-16 18:42:54
 
 <!-- END -->
 
