@@ -25,8 +25,11 @@
 1. [黄子韬叫林更新野王哥哥](https://s.weibo.com/weibo?q=%23%E9%BB%84%E5%AD%90%E9%9F%AC%E5%8F%AB%E6%9E%97%E6%9B%B4%E6%96%B0%E9%87%8E%E7%8E%8B%E5%93%A5%E5%93%A5%23&Refer=top) `2.1M 🔥`
 1. [Zard](https://s.weibo.com/weibo?q=Zard&Refer=top) `1.8M 🔥`
 1. [宋亚轩用锅蒸虾片问咋没反应](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E4%BA%9A%E8%BD%A9%E7%94%A8%E9%94%85%E8%92%B8%E8%99%BE%E7%89%87%E9%97%AE%E5%92%8B%E6%B2%A1%E5%8F%8D%E5%BA%94%23&Refer=top) `1.7M 🔥`
+1. [虞书欣化妆师](https://s.weibo.com/weibo?q=%23%E8%99%9E%E4%B9%A6%E6%AC%A3%E5%8C%96%E5%A6%86%E5%B8%88%23&Refer=top) `1.6M 🔥`
 1. [刺杀小说家原著作者发文](https://s.weibo.com/weibo?q=%E5%88%BA%E6%9D%80%E5%B0%8F%E8%AF%B4%E5%AE%B6%E5%8E%9F%E8%91%97%E4%BD%9C%E8%80%85%E5%8F%91%E6%96%87&Refer=top) `1.6M 🔥`
+1. [韩国教授要求将朝鲜族诗人国籍改成韩国](https://s.weibo.com/weibo?q=%23%E9%9F%A9%E5%9B%BD%E6%95%99%E6%8E%88%E8%A6%81%E6%B1%82%E5%B0%86%E6%9C%9D%E9%B2%9C%E6%97%8F%E8%AF%97%E4%BA%BA%E5%9B%BD%E7%B1%8D%E6%94%B9%E6%88%90%E9%9F%A9%E5%9B%BD%23&Refer=top) `1.5M 🔥`
 1. [斗罗大陆豆瓣开分](https://s.weibo.com/weibo?q=%23%E6%96%97%E7%BD%97%E5%A4%A7%E9%99%86%E8%B1%86%E7%93%A3%E5%BC%80%E5%88%86%23&Refer=top) `1.5M 🔥`
+1. [无效化妆 有效化妆](https://s.weibo.com/weibo?q=%E6%97%A0%E6%95%88%E5%8C%96%E5%A6%86%20%E6%9C%89%E6%95%88%E5%8C%96%E5%A6%86&Refer=top) `1.4M 🔥`
 1. [奶奶遗物上的代码](https://s.weibo.com/weibo?q=%E5%A5%B6%E5%A5%B6%E9%81%97%E7%89%A9%E4%B8%8A%E7%9A%84%E4%BB%A3%E7%A0%81&Refer=top) `1.4M 🔥`
 1. [臧鸿飞晒与王菲李嫣合照](https://s.weibo.com/weibo?q=%E8%87%A7%E9%B8%BF%E9%A3%9E%E6%99%92%E4%B8%8E%E7%8E%8B%E8%8F%B2%E6%9D%8E%E5%AB%A3%E5%90%88%E7%85%A7&Refer=top) `1.4M 🔥`
 1. [原班人马或可回归刺杀小说家续集](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E7%8F%AD%E4%BA%BA%E9%A9%AC%E6%88%96%E5%8F%AF%E5%9B%9E%E5%BD%92%E5%88%BA%E6%9D%80%E5%B0%8F%E8%AF%B4%E5%AE%B6%E7%BB%AD%E9%9B%86%23&Refer=top) `1.4M 🔥`
@@ -52,12 +55,9 @@
 1. [纽约州长回应瞒报养老院新冠死亡数](https://s.weibo.com/weibo?q=%23%E7%BA%BD%E7%BA%A6%E5%B7%9E%E9%95%BF%E5%9B%9E%E5%BA%94%E7%9E%92%E6%8A%A5%E5%85%BB%E8%80%81%E9%99%A2%E6%96%B0%E5%86%A0%E6%AD%BB%E4%BA%A1%E6%95%B0%23&Refer=top) `833.7K 🔥`
 1. [林更新 不普通而又那么自信](https://s.weibo.com/weibo?q=%E6%9E%97%E6%9B%B4%E6%96%B0%20%E4%B8%8D%E6%99%AE%E9%80%9A%E8%80%8C%E5%8F%88%E9%82%A3%E4%B9%88%E8%87%AA%E4%BF%A1&Refer=top) `782.4K 🔥`
 1. [火星上到底有没有水](https://s.weibo.com/weibo?q=%23%E7%81%AB%E6%98%9F%E4%B8%8A%E5%88%B0%E5%BA%95%E6%9C%89%E6%B2%A1%E6%9C%89%E6%B0%B4%23&Refer=top) `770.0K 🔥`
-1. [韩国教授要求将朝鲜族诗人国籍改成韩国](https://s.weibo.com/weibo?q=%23%E9%9F%A9%E5%9B%BD%E6%95%99%E6%8E%88%E8%A6%81%E6%B1%82%E5%B0%86%E6%9C%9D%E9%B2%9C%E6%97%8F%E8%AF%97%E4%BA%BA%E5%9B%BD%E7%B1%8D%E6%94%B9%E6%88%90%E9%9F%A9%E5%9B%BD%23&Refer=top) `765.6K 🔥`
 1. [黑龙江高校中小学正常开学](https://s.weibo.com/weibo?q=%23%E9%BB%91%E9%BE%99%E6%B1%9F%E9%AB%98%E6%A0%A1%E4%B8%AD%E5%B0%8F%E5%AD%A6%E6%AD%A3%E5%B8%B8%E5%BC%80%E5%AD%A6%23&Refer=top) `762.1K 🔥`
-1. [林书豪17分](https://s.weibo.com/weibo?q=%E6%9E%97%E4%B9%A6%E8%B1%AA17%E5%88%86&Refer=top) `756.6K 🔥`
-1. [哈登欧文合砍69分](https://s.weibo.com/weibo?q=%E5%93%88%E7%99%BB%E6%AC%A7%E6%96%87%E5%90%88%E7%A0%8D69%E5%88%86&Refer=top) `753.4K 🔥`
 
-数据更新于 2021-02-16 19:07:51
+数据更新于 2021-02-16 19:24:57
 
 <!-- END -->
 
