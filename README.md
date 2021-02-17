@@ -18,6 +18,7 @@
 1. [你好李焕英票房](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E5%A5%BD%E6%9D%8E%E7%84%95%E8%8B%B1%E7%A5%A8%E6%88%BF%23&Refer=top) `2.2M 🔥`
 1. [唐人街探案票房](https://s.weibo.com/weibo?q=%23%E5%94%90%E4%BA%BA%E8%A1%97%E6%8E%A2%E6%A1%88%E7%A5%A8%E6%88%BF%23&Refer=top) `2.1M 🔥`
 1. [西安咸阳机场扩建发现3500余座古墓](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E5%AE%89%E5%92%B8%E9%98%B3%E6%9C%BA%E5%9C%BA%E6%89%A9%E5%BB%BA%E5%8F%91%E7%8E%B03500%E4%BD%99%E5%BA%A7%E5%8F%A4%E5%A2%93%23&Refer=top) `1.9M 🔥`
+1. [印度公交车坠河事故已致45人死亡](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E5%85%AC%E4%BA%A4%E8%BD%A6%E5%9D%A0%E6%B2%B3%E4%BA%8B%E6%95%85%E5%B7%B2%E8%87%B445%E4%BA%BA%E6%AD%BB%E4%BA%A1%23&Refer=top) `1.8M 🔥`
 1. [为什么年轻人不爱走亲戚了](https://s.weibo.com/weibo?q=%23%E4%B8%BA%E4%BB%80%E4%B9%88%E5%B9%B4%E8%BD%BB%E4%BA%BA%E4%B8%8D%E7%88%B1%E8%B5%B0%E4%BA%B2%E6%88%9A%E4%BA%86%23&Refer=top) `1.7M 🔥`
 1. [撒贝宁要吸多少次氧](https://s.weibo.com/weibo?q=%E6%92%92%E8%B4%9D%E5%AE%81%E8%A6%81%E5%90%B8%E5%A4%9A%E5%B0%91%E6%AC%A1%E6%B0%A7&Refer=top) `1.6M 🔥`
 1. [初六](https://s.weibo.com/weibo?q=%E5%88%9D%E5%85%AD&Refer=top) `1.4M 🔥`
@@ -55,9 +56,8 @@
 1. [人工眼角膜移植术成功了](https://s.weibo.com/weibo?q=%23%E4%BA%BA%E5%B7%A5%E7%9C%BC%E8%A7%92%E8%86%9C%E7%A7%BB%E6%A4%8D%E6%9C%AF%E6%88%90%E5%8A%9F%E4%BA%86%23&Refer=top) `779.3K 🔥`
 1. [虞书欣化妆师](https://s.weibo.com/weibo?q=%23%E8%99%9E%E4%B9%A6%E6%AC%A3%E5%8C%96%E5%A6%86%E5%B8%88%23&Refer=top) `776.9K 🔥`
 1. [肯豆公开恋情](https://s.weibo.com/weibo?q=%E8%82%AF%E8%B1%86%E5%85%AC%E5%BC%80%E6%81%8B%E6%83%85&Refer=top) `774.0K 🔥`
-1. [日本半导体产业链受地震冲击](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E5%8D%8A%E5%AF%BC%E4%BD%93%E4%BA%A7%E4%B8%9A%E9%93%BE%E5%8F%97%E5%9C%B0%E9%9C%87%E5%86%B2%E5%87%BB%23&Refer=top) `772.6K 🔥`
 
-数据更新于 2021-02-17 14:57:04
+数据更新于 2021-02-17 15:14:20
 
 <!-- END -->
 
