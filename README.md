@@ -34,6 +34,7 @@
 1. [急救医生连续17年救护车上过年](https://s.weibo.com/weibo?q=%23%E6%80%A5%E6%95%91%E5%8C%BB%E7%94%9F%E8%BF%9E%E7%BB%AD17%E5%B9%B4%E6%95%91%E6%8A%A4%E8%BD%A6%E4%B8%8A%E8%BF%87%E5%B9%B4%23&Refer=top) `954.4K 🔥`
 1. [男子放炮扔掉打火机把炮捂耳朵上](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E6%94%BE%E7%82%AE%E6%89%94%E6%8E%89%E6%89%93%E7%81%AB%E6%9C%BA%E6%8A%8A%E7%82%AE%E6%8D%82%E8%80%B3%E6%9C%B5%E4%B8%8A%23&Refer=top) `946.3K 🔥`
 1. [基金](https://s.weibo.com/weibo?q=%E5%9F%BA%E9%87%91&Refer=top) `927.3K 🔥`
+1. [唐人街探案票房](https://s.weibo.com/weibo?q=%E5%94%90%E4%BA%BA%E8%A1%97%E6%8E%A2%E6%A1%88%E7%A5%A8%E6%88%BF&Refer=top) `886.3K 🔥`
 1. [果汁不比可乐更健康](https://s.weibo.com/weibo?q=%23%E6%9E%9C%E6%B1%81%E4%B8%8D%E6%AF%94%E5%8F%AF%E4%B9%90%E6%9B%B4%E5%81%A5%E5%BA%B7%23&Refer=top) `854.0K 🔥`
 1. [火箭军玩贪吃蛇送牛年祝福](https://s.weibo.com/weibo?q=%E7%81%AB%E7%AE%AD%E5%86%9B%E7%8E%A9%E8%B4%AA%E5%90%83%E8%9B%87%E9%80%81%E7%89%9B%E5%B9%B4%E7%A5%9D%E7%A6%8F&Refer=top) `849.6K 🔥`
 1. [深圳券协副会长回应被女下属举报](https://s.weibo.com/weibo?q=%23%E6%B7%B1%E5%9C%B3%E5%88%B8%E5%8D%8F%E5%89%AF%E4%BC%9A%E9%95%BF%E5%9B%9E%E5%BA%94%E8%A2%AB%E5%A5%B3%E4%B8%8B%E5%B1%9E%E4%B8%BE%E6%8A%A5%23&Refer=top) `847.6K 🔥`
@@ -55,9 +56,8 @@
 1. [郭麒麟饭后甜点是皮蛋](https://s.weibo.com/weibo?q=%23%E9%83%AD%E9%BA%92%E9%BA%9F%E9%A5%AD%E5%90%8E%E7%94%9C%E7%82%B9%E6%98%AF%E7%9A%AE%E8%9B%8B%23&Refer=top) `766.4K 🔥`
 1. [小学生不需要监考的理由](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E5%AD%A6%E7%94%9F%E4%B8%8D%E9%9C%80%E8%A6%81%E7%9B%91%E8%80%83%E7%9A%84%E7%90%86%E7%94%B1%23&Refer=top) `750.4K 🔥`
 1. [春节假期最后1天](https://s.weibo.com/weibo?q=%23%E6%98%A5%E8%8A%82%E5%81%87%E6%9C%9F%E6%9C%80%E5%90%8E1%E5%A4%A9%23&Refer=top) `750.0K 🔥`
-1. [武警官兵沿40厘米钢梯翻越80度峭壁](https://s.weibo.com/weibo?q=%E6%AD%A6%E8%AD%A6%E5%AE%98%E5%85%B5%E6%B2%BF40%E5%8E%98%E7%B1%B3%E9%92%A2%E6%A2%AF%E7%BF%BB%E8%B6%8A80%E5%BA%A6%E5%B3%AD%E5%A3%81&Refer=top) `696.6K 🔥`
 
-数据更新于 2021-02-17 12:46:48
+数据更新于 2021-02-17 12:55:58
 
 <!-- END -->
 
