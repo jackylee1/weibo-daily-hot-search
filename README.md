@@ -32,6 +32,7 @@
 1. [选秀 戴双麦](https://s.weibo.com/weibo?q=%E9%80%89%E7%A7%80%20%E6%88%B4%E5%8F%8C%E9%BA%A6&Refer=top) `1.4M 🔥`
 1. [赘婿弹幕](https://s.weibo.com/weibo?q=%23%E8%B5%98%E5%A9%BF%E5%BC%B9%E5%B9%95%23&Refer=top) `1.4M 🔥`
 1. [你好李焕英](https://s.weibo.com/weibo?q=%E4%BD%A0%E5%A5%BD%E6%9D%8E%E7%84%95%E8%8B%B1&Refer=top) `1.3M 🔥`
+1. [刺杀小说家赤发鬼制作过程](https://s.weibo.com/weibo?q=%23%E5%88%BA%E6%9D%80%E5%B0%8F%E8%AF%B4%E5%AE%B6%E8%B5%A4%E5%8F%91%E9%AC%BC%E5%88%B6%E4%BD%9C%E8%BF%87%E7%A8%8B%23&Refer=top) `1.3M 🔥`
 1. [黄奕柔韧性](https://s.weibo.com/weibo?q=%23%E9%BB%84%E5%A5%95%E6%9F%94%E9%9F%A7%E6%80%A7%23&Refer=top) `1.2M 🔥`
 1. [无效化妆 有效化妆](https://s.weibo.com/weibo?q=%E6%97%A0%E6%95%88%E5%8C%96%E5%A6%86%20%E6%9C%89%E6%95%88%E5%8C%96%E5%A6%86&Refer=top) `1.1M 🔥`
 1. [岳云鹏听消防员唱五环时表情凝固了](https://s.weibo.com/weibo?q=%23%E5%B2%B3%E4%BA%91%E9%B9%8F%E5%90%AC%E6%B6%88%E9%98%B2%E5%91%98%E5%94%B1%E4%BA%94%E7%8E%AF%E6%97%B6%E8%A1%A8%E6%83%85%E5%87%9D%E5%9B%BA%E4%BA%86%23&Refer=top) `1.1M 🔥`
@@ -55,9 +56,8 @@
 1. [Amber创4首秀舞台](https://s.weibo.com/weibo?q=Amber%E5%88%9B4%E9%A6%96%E7%A7%80%E8%88%9E%E5%8F%B0&Refer=top) `823.0K 🔥`
 1. [宁静给创4宝宝们的长信](https://s.weibo.com/weibo?q=%23%E5%AE%81%E9%9D%99%E7%BB%99%E5%88%9B4%E5%AE%9D%E5%AE%9D%E4%BB%AC%E7%9A%84%E9%95%BF%E4%BF%A1%23&Refer=top) `809.4K 🔥`
 1. [德国一冰激凌工厂暴发聚集性感染](https://s.weibo.com/weibo?q=%E5%BE%B7%E5%9B%BD%E4%B8%80%E5%86%B0%E6%BF%80%E5%87%8C%E5%B7%A5%E5%8E%82%E6%9A%B4%E5%8F%91%E8%81%9A%E9%9B%86%E6%80%A7%E6%84%9F%E6%9F%93&Refer=top) `808.8K 🔥`
-1. [詹姆斯力挺格林](https://s.weibo.com/weibo?q=%E8%A9%B9%E5%A7%86%E6%96%AF%E5%8A%9B%E6%8C%BA%E6%A0%BC%E6%9E%97&Refer=top) `793.8K 🔥`
 
-数据更新于 2021-02-17 17:39:28
+数据更新于 2021-02-17 17:51:24
 
 <!-- END -->
 
