@@ -38,7 +38,7 @@
 1. [有谁在乎过唐仁](https://s.weibo.com/weibo?q=%23%E6%9C%89%E8%B0%81%E5%9C%A8%E4%B9%8E%E8%BF%87%E5%94%90%E4%BB%81%23&Refer=top) `2.0M 🔥`
 1. [创4导师好宽容](https://s.weibo.com/weibo?q=%23%E5%88%9B4%E5%AF%BC%E5%B8%88%E5%A5%BD%E5%AE%BD%E5%AE%B9%23&Refer=top) `2.0M 🔥`
 1. [林俊杰孙燕姿一起包饺子](https://s.weibo.com/weibo?q=%23%E6%9E%97%E4%BF%8A%E6%9D%B0%E5%AD%99%E7%87%95%E5%A7%BF%E4%B8%80%E8%B5%B7%E5%8C%85%E9%A5%BA%E5%AD%90%23&Refer=top) `2.0M 🔥`
-1. [唐九洲 偶像门槛低是件好事](https://s.weibo.com/weibo?q=%E5%94%90%E4%B9%9D%E6%B4%B2%20%E5%81%B6%E5%83%8F%E9%97%A8%E6%A7%9B%E4%BD%8E%E6%98%AF%E4%BB%B6%E5%A5%BD%E4%BA%8B&Refer=top) `1.8M 🔥`
+1. [唐九洲 偶像门槛低是件好事](https://s.weibo.com/weibo?q=%E5%94%90%E4%B9%9D%E6%B4%B2%20%E5%81%B6%E5%83%8F%E9%97%A8%E6%A7%9B%E4%BD%8E%E6%98%AF%E4%BB%B6%E5%A5%BD%E4%BA%8B&Refer=top) `1.9M 🔥`
 1. [婆婆和妈妈](https://s.weibo.com/weibo?q=%E5%A9%86%E5%A9%86%E5%92%8C%E5%A6%88%E5%A6%88&Refer=top) `1.8M 🔥`
 1. [加满一箱油多花11元](https://s.weibo.com/weibo?q=%23%E5%8A%A0%E6%BB%A1%E4%B8%80%E7%AE%B1%E6%B2%B9%E5%A4%9A%E8%8A%B111%E5%85%83%23&Refer=top) `1.8M 🔥`
 1. [山东拟规定教师对书面作业全批全改](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E4%B8%9C%E6%8B%9F%E8%A7%84%E5%AE%9A%E6%95%99%E5%B8%88%E5%AF%B9%E4%B9%A6%E9%9D%A2%E4%BD%9C%E4%B8%9A%E5%85%A8%E6%89%B9%E5%85%A8%E6%94%B9%23&Refer=top) `1.8M 🔥`
@@ -57,7 +57,7 @@
 1. [张芷溪称金瀚出轨后删博](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%8A%B7%E6%BA%AA%E7%A7%B0%E9%87%91%E7%80%9A%E5%87%BA%E8%BD%A8%E5%90%8E%E5%88%A0%E5%8D%9A%23&Refer=top) `1.5M 🔥`
 1. [何同学采访苹果CEO](https://s.weibo.com/weibo?q=%23%E4%BD%95%E5%90%8C%E5%AD%A6%E9%87%87%E8%AE%BF%E8%8B%B9%E6%9E%9CCEO%23&Refer=top) `1.5M 🔥`
 
-数据更新于 2021-02-18 21:47:36
+数据更新于 2021-02-18 21:53:50
 
 <!-- END -->
 
