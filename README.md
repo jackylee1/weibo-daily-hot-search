@@ -22,8 +22,10 @@
 1. [王鸥的wink](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E9%B8%A5%E7%9A%84wink%23&Refer=top) `2.8M 🔥`
 1. [华春莹批加拿大贼喊捉贼](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E6%98%A5%E8%8E%B9%E6%89%B9%E5%8A%A0%E6%8B%BF%E5%A4%A7%E8%B4%BC%E5%96%8A%E6%8D%89%E8%B4%BC%23&Refer=top) `2.6M 🔥`
 1. [海霞低头念稿](https://s.weibo.com/weibo?q=%23%E6%B5%B7%E9%9C%9E%E4%BD%8E%E5%A4%B4%E5%BF%B5%E7%A8%BF%23&Refer=top) `2.5M 🔥`
+1. [华春莹称种族灭绝在中国是世纪谎言](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E6%98%A5%E8%8E%B9%E7%A7%B0%E7%A7%8D%E6%97%8F%E7%81%AD%E7%BB%9D%E5%9C%A8%E4%B8%AD%E5%9B%BD%E6%98%AF%E4%B8%96%E7%BA%AA%E8%B0%8E%E8%A8%80%23&Refer=top) `2.5M 🔥`
 1. [少女时代](https://s.weibo.com/weibo?q=%E5%B0%91%E5%A5%B3%E6%97%B6%E4%BB%A3&Refer=top) `2.4M 🔥`
 1. [宣璐 别一放下就不认识了好吗](https://s.weibo.com/weibo?q=%E5%AE%A3%E7%92%90%20%E5%88%AB%E4%B8%80%E6%94%BE%E4%B8%8B%E5%B0%B1%E4%B8%8D%E8%AE%A4%E8%AF%86%E4%BA%86%E5%A5%BD%E5%90%97&Refer=top) `2.3M 🔥`
+1. [加勒万河谷冲突现场视频公开](https://s.weibo.com/weibo?q=%23%E5%8A%A0%E5%8B%92%E4%B8%87%E6%B2%B3%E8%B0%B7%E5%86%B2%E7%AA%81%E7%8E%B0%E5%9C%BA%E8%A7%86%E9%A2%91%E5%85%AC%E5%BC%80%23&Refer=top) `2.3M 🔥`
 1. [李菲儿说入行十几年没有代表作](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E8%8F%B2%E5%84%BF%E8%AF%B4%E5%85%A5%E8%A1%8C%E5%8D%81%E5%87%A0%E5%B9%B4%E6%B2%A1%E6%9C%89%E4%BB%A3%E8%A1%A8%E4%BD%9C%23&Refer=top) `2.3M 🔥`
 1. [赘婿开分](https://s.weibo.com/weibo?q=%E8%B5%98%E5%A9%BF%E5%BC%80%E5%88%86&Refer=top) `2.3M 🔥`
 1. [中纪委评论你好李焕英](https://s.weibo.com/weibo?q=%E4%B8%AD%E7%BA%AA%E5%A7%94%E8%AF%84%E8%AE%BA%E4%BD%A0%E5%A5%BD%E6%9D%8E%E7%84%95%E8%8B%B1&Refer=top) `2.2M 🔥`
@@ -54,10 +56,8 @@
 1. [微博之夜阵容](https://s.weibo.com/weibo?q=%23%E5%BE%AE%E5%8D%9A%E4%B9%8B%E5%A4%9C%E9%98%B5%E5%AE%B9%23&Refer=top) `1.3M 🔥`
 1. [南极雪变色](https://s.weibo.com/weibo?q=%23%E5%8D%97%E6%9E%81%E9%9B%AA%E5%8F%98%E8%89%B2%23&Refer=top) `1.3M 🔥`
 1. [饿了么向骑手致歉](https://s.weibo.com/weibo?q=%23%E9%A5%BF%E4%BA%86%E4%B9%88%E5%90%91%E9%AA%91%E6%89%8B%E8%87%B4%E6%AD%89%23&Refer=top) `1.3M 🔥`
-1. [复旦大学推出拔尖学科高中先修计划](https://s.weibo.com/weibo?q=%23%E5%A4%8D%E6%97%A6%E5%A4%A7%E5%AD%A6%E6%8E%A8%E5%87%BA%E6%8B%94%E5%B0%96%E5%AD%A6%E7%A7%91%E9%AB%98%E4%B8%AD%E5%85%88%E4%BF%AE%E8%AE%A1%E5%88%92%23&Refer=top) `1.3M 🔥`
-1. [芬兰发现一种新型变异毒株](https://s.weibo.com/weibo?q=%23%E8%8A%AC%E5%85%B0%E5%8F%91%E7%8E%B0%E4%B8%80%E7%A7%8D%E6%96%B0%E5%9E%8B%E5%8F%98%E5%BC%82%E6%AF%92%E6%A0%AA%23&Refer=top) `1.2M 🔥`
 
-数据更新于 2021-02-19 21:02:16
+数据更新于 2021-02-19 21:24:55
 
 <!-- END -->
 
