@@ -13,6 +13,7 @@
 1. [加勒万河谷冲突现场视频公开](https://s.weibo.com/weibo?q=%23%E5%8A%A0%E5%8B%92%E4%B8%87%E6%B2%B3%E8%B0%B7%E5%86%B2%E7%AA%81%E7%8E%B0%E5%9C%BA%E8%A7%86%E9%A2%91%E5%85%AC%E5%BC%80%23&Refer=top) `4.1M 🔥`
 1. [张小斐个站名叫陷进去了](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%B0%8F%E6%96%90%E4%B8%AA%E7%AB%99%E5%90%8D%E5%8F%AB%E9%99%B7%E8%BF%9B%E5%8E%BB%E4%BA%86%23&Refer=top) `4.0M 🔥`
 1. [茶颜悦色道歉](https://s.weibo.com/weibo?q=%23%E8%8C%B6%E9%A2%9C%E6%82%A6%E8%89%B2%E9%81%93%E6%AD%89%23&Refer=top) `3.7M 🔥`
+1. [刺死女儿9岁同桌男子被执行死刑](https://s.weibo.com/weibo?q=%23%E5%88%BA%E6%AD%BB%E5%A5%B3%E5%84%BF9%E5%B2%81%E5%90%8C%E6%A1%8C%E7%94%B7%E5%AD%90%E8%A2%AB%E6%89%A7%E8%A1%8C%E6%AD%BB%E5%88%91%23&Refer=top) `3.6M 🔥`
 1. [7号房的礼物小女孩近照](https://s.weibo.com/weibo?q=%237%E5%8F%B7%E6%88%BF%E7%9A%84%E7%A4%BC%E7%89%A9%E5%B0%8F%E5%A5%B3%E5%AD%A9%E8%BF%91%E7%85%A7%23&Refer=top) `3.4M 🔥`
 1. [刘亦菲陈晓吻戏路透](https://s.weibo.com/weibo?q=%23%E5%88%98%E4%BA%A6%E8%8F%B2%E9%99%88%E6%99%93%E5%90%BB%E6%88%8F%E8%B7%AF%E9%80%8F%23&Refer=top) `3.2M 🔥`
 1. [母校发布牺牲英雄读大学时的画面](https://s.weibo.com/weibo?q=%23%E6%AF%8D%E6%A0%A1%E5%8F%91%E5%B8%83%E7%89%BA%E7%89%B2%E8%8B%B1%E9%9B%84%E8%AF%BB%E5%A4%A7%E5%AD%A6%E6%97%B6%E7%9A%84%E7%94%BB%E9%9D%A2%23&Refer=top) `3.1M 🔥`
@@ -27,7 +28,6 @@
 1. [该不该要二十岁一夜成名的机会](https://s.weibo.com/weibo?q=%23%E8%AF%A5%E4%B8%8D%E8%AF%A5%E8%A6%81%E4%BA%8C%E5%8D%81%E5%B2%81%E4%B8%80%E5%A4%9C%E6%88%90%E5%90%8D%E7%9A%84%E6%9C%BA%E4%BC%9A%23&Refer=top) `1.8M 🔥`
 1. [2021年高考的烈士子女最多可加20分](https://s.weibo.com/weibo?q=%232021%E5%B9%B4%E9%AB%98%E8%80%83%E7%9A%84%E7%83%88%E5%A3%AB%E5%AD%90%E5%A5%B3%E6%9C%80%E5%A4%9A%E5%8F%AF%E5%8A%A020%E5%88%86%23&Refer=top) `1.7M 🔥`
 1. [千手观音女孩16年后再看春晚](https://s.weibo.com/weibo?q=%23%E5%8D%83%E6%89%8B%E8%A7%82%E9%9F%B3%E5%A5%B3%E5%AD%A916%E5%B9%B4%E5%90%8E%E5%86%8D%E7%9C%8B%E6%98%A5%E6%99%9A%23&Refer=top) `1.7M 🔥`
-1. [刺死女儿9岁同桌男子被执行死刑](https://s.weibo.com/weibo?q=%23%E5%88%BA%E6%AD%BB%E5%A5%B3%E5%84%BF9%E5%B2%81%E5%90%8C%E6%A1%8C%E7%94%B7%E5%AD%90%E8%A2%AB%E6%89%A7%E8%A1%8C%E6%AD%BB%E5%88%91%23&Refer=top) `1.7M 🔥`
 1. [陈伟霆范丞丞拍照差距](https://s.weibo.com/weibo?q=%E9%99%88%E4%BC%9F%E9%9C%86%E8%8C%83%E4%B8%9E%E4%B8%9E%E6%8B%8D%E7%85%A7%E5%B7%AE%E8%B7%9D&Refer=top) `1.7M 🔥`
 1. [顶楼](https://s.weibo.com/weibo?q=%E9%A1%B6%E6%A5%BC&Refer=top) `1.6M 🔥`
 1. [茶颜悦色再发道歉声明](https://s.weibo.com/weibo?q=%23%E8%8C%B6%E9%A2%9C%E6%82%A6%E8%89%B2%E5%86%8D%E5%8F%91%E9%81%93%E6%AD%89%E5%A3%B0%E6%98%8E%23&Refer=top) `1.4M 🔥`
@@ -57,7 +57,7 @@
 1. [华晨宇关晓彤演我的少女时代](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E6%99%A8%E5%AE%87%E5%85%B3%E6%99%93%E5%BD%A4%E6%BC%94%E6%88%91%E7%9A%84%E5%B0%91%E5%A5%B3%E6%97%B6%E4%BB%A3%23&Refer=top) `778.3K 🔥`
 1. [赘婿](https://s.weibo.com/weibo?q=%E8%B5%98%E5%A9%BF&Refer=top) `774.7K 🔥`
 
-数据更新于 2021-02-20 17:56:00
+数据更新于 2021-02-20 18:08:34
 
 <!-- END -->
 
