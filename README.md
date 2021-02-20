@@ -22,11 +22,11 @@
 1. [沈腾在马丽贾玲之间选了马丽](https://s.weibo.com/weibo?q=%23%E6%B2%88%E8%85%BE%E5%9C%A8%E9%A9%AC%E4%B8%BD%E8%B4%BE%E7%8E%B2%E4%B9%8B%E9%97%B4%E9%80%89%E4%BA%86%E9%A9%AC%E4%B8%BD%23&Refer=top) `2.3M 🔥`
 1. [印度](https://s.weibo.com/weibo?q=%E5%8D%B0%E5%BA%A6&Refer=top) `2.3M 🔥`
 1. [烈士肖思远母亲发声](https://s.weibo.com/weibo?q=%23%E7%83%88%E5%A3%AB%E8%82%96%E6%80%9D%E8%BF%9C%E6%AF%8D%E4%BA%B2%E5%8F%91%E5%A3%B0%23&Refer=top) `2.0M 🔥`
+1. [央视文艺声明](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E6%96%87%E8%89%BA%E5%A3%B0%E6%98%8E%23&Refer=top) `2.0M 🔥`
 1. [不得规定男女生录取比例](https://s.weibo.com/weibo?q=%23%E4%B8%8D%E5%BE%97%E8%A7%84%E5%AE%9A%E7%94%B7%E5%A5%B3%E7%94%9F%E5%BD%95%E5%8F%96%E6%AF%94%E4%BE%8B%23&Refer=top) `2.0M 🔥`
 1. [该不该要二十岁一夜成名的机会](https://s.weibo.com/weibo?q=%23%E8%AF%A5%E4%B8%8D%E8%AF%A5%E8%A6%81%E4%BA%8C%E5%8D%81%E5%B2%81%E4%B8%80%E5%A4%9C%E6%88%90%E5%90%8D%E7%9A%84%E6%9C%BA%E4%BC%9A%23&Refer=top) `1.8M 🔥`
 1. [2021年高考的烈士子女最多可加20分](https://s.weibo.com/weibo?q=%232021%E5%B9%B4%E9%AB%98%E8%80%83%E7%9A%84%E7%83%88%E5%A3%AB%E5%AD%90%E5%A5%B3%E6%9C%80%E5%A4%9A%E5%8F%AF%E5%8A%A020%E5%88%86%23&Refer=top) `1.7M 🔥`
 1. [千手观音女孩16年后再看春晚](https://s.weibo.com/weibo?q=%23%E5%8D%83%E6%89%8B%E8%A7%82%E9%9F%B3%E5%A5%B3%E5%AD%A916%E5%B9%B4%E5%90%8E%E5%86%8D%E7%9C%8B%E6%98%A5%E6%99%9A%23&Refer=top) `1.7M 🔥`
-1. [央视文艺声明](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E6%96%87%E8%89%BA%E5%A3%B0%E6%98%8E%23&Refer=top) `1.7M 🔥`
 1. [陈伟霆范丞丞拍照差距](https://s.weibo.com/weibo?q=%E9%99%88%E4%BC%9F%E9%9C%86%E8%8C%83%E4%B8%9E%E4%B8%9E%E6%8B%8D%E7%85%A7%E5%B7%AE%E8%B7%9D&Refer=top) `1.7M 🔥`
 1. [顶楼](https://s.weibo.com/weibo?q=%E9%A1%B6%E6%A5%BC&Refer=top) `1.6M 🔥`
 1. [茶颜悦色再发道歉声明](https://s.weibo.com/weibo?q=%23%E8%8C%B6%E9%A2%9C%E6%82%A6%E8%89%B2%E5%86%8D%E5%8F%91%E9%81%93%E6%AD%89%E5%A3%B0%E6%98%8E%23&Refer=top) `1.4M 🔥`
@@ -40,6 +40,7 @@
 1. [祁发宝半月吃30多包朝天椒抗寒提神](https://s.weibo.com/weibo?q=%23%E7%A5%81%E5%8F%91%E5%AE%9D%E5%8D%8A%E6%9C%88%E5%90%8330%E5%A4%9A%E5%8C%85%E6%9C%9D%E5%A4%A9%E6%A4%92%E6%8A%97%E5%AF%92%E6%8F%90%E7%A5%9E%23&Refer=top) `1.2M 🔥`
 1. [日本接种疫苗死亡将获赔270万元](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E6%8E%A5%E7%A7%8D%E7%96%AB%E8%8B%97%E6%AD%BB%E4%BA%A1%E5%B0%86%E8%8E%B7%E8%B5%94270%E4%B8%87%E5%85%83%23&Refer=top) `1.1M 🔥`
 1. [免费接种疫苗不影响就医待遇](https://s.weibo.com/weibo?q=%23%E5%85%8D%E8%B4%B9%E6%8E%A5%E7%A7%8D%E7%96%AB%E8%8B%97%E4%B8%8D%E5%BD%B1%E5%93%8D%E5%B0%B1%E5%8C%BB%E5%BE%85%E9%81%87%23&Refer=top) `1.1M 🔥`
+1. [中文成为联合国世界旅游组织官方语言](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E6%96%87%E6%88%90%E4%B8%BA%E8%81%94%E5%90%88%E5%9B%BD%E4%B8%96%E7%95%8C%E6%97%85%E6%B8%B8%E7%BB%84%E7%BB%87%E5%AE%98%E6%96%B9%E8%AF%AD%E8%A8%80%23&Refer=top) `1.0M 🔥`
 1. [奢侈品专柜大排长龙](https://s.weibo.com/weibo?q=%23%E5%A5%A2%E4%BE%88%E5%93%81%E4%B8%93%E6%9F%9C%E5%A4%A7%E6%8E%92%E9%95%BF%E9%BE%99%23&Refer=top) `1.0M 🔥`
 1. [卫国戍边烈士遗骸交接现场画面](https://s.weibo.com/weibo?q=%23%E5%8D%AB%E5%9B%BD%E6%88%8D%E8%BE%B9%E7%83%88%E5%A3%AB%E9%81%97%E9%AA%B8%E4%BA%A4%E6%8E%A5%E7%8E%B0%E5%9C%BA%E7%94%BB%E9%9D%A2%23&Refer=top) `983.7K 🔥`
 1. [东北三省一年减少42.73万人](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E5%8C%97%E4%B8%89%E7%9C%81%E4%B8%80%E5%B9%B4%E5%87%8F%E5%B0%9142.73%E4%B8%87%E4%BA%BA%23&Refer=top) `981.9K 🔥`
@@ -48,16 +49,15 @@
 1. [汪苏泷半月板手术住院小记](https://s.weibo.com/weibo?q=%23%E6%B1%AA%E8%8B%8F%E6%B3%B7%E5%8D%8A%E6%9C%88%E6%9D%BF%E6%89%8B%E6%9C%AF%E4%BD%8F%E9%99%A2%E5%B0%8F%E8%AE%B0%23&Refer=top) `893.9K 🔥`
 1. [祁发宝自己背柴100斤让战士背不超50斤](https://s.weibo.com/weibo?q=%23%E7%A5%81%E5%8F%91%E5%AE%9D%E8%87%AA%E5%B7%B1%E8%83%8C%E6%9F%B4100%E6%96%A4%E8%AE%A9%E6%88%98%E5%A3%AB%E8%83%8C%E4%B8%8D%E8%B6%8550%E6%96%A4%23&Refer=top) `877.2K 🔥`
 1. [阿朵看王祖蓝模仿她的reaction](https://s.weibo.com/weibo?q=%23%E9%98%BF%E6%9C%B5%E7%9C%8B%E7%8E%8B%E7%A5%96%E8%93%9D%E6%A8%A1%E4%BB%BF%E5%A5%B9%E7%9A%84reaction%23&Refer=top) `864.0K 🔥`
-1. [中文成为联合国世界旅游组织官方语言](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E6%96%87%E6%88%90%E4%B8%BA%E8%81%94%E5%90%88%E5%9B%BD%E4%B8%96%E7%95%8C%E6%97%85%E6%B8%B8%E7%BB%84%E7%BB%87%E5%AE%98%E6%96%B9%E8%AF%AD%E8%A8%80%23&Refer=top) `861.3K 🔥`
 1. [塔罗牌占卜骗局](https://s.weibo.com/weibo?q=%23%E5%A1%94%E7%BD%97%E7%89%8C%E5%8D%A0%E5%8D%9C%E9%AA%97%E5%B1%80%23&Refer=top) `838.1K 🔥`
 1. [4名牺牲边防英雄的照片](https://s.weibo.com/weibo?q=%234%E5%90%8D%E7%89%BA%E7%89%B2%E8%BE%B9%E9%98%B2%E8%8B%B1%E9%9B%84%E7%9A%84%E7%85%A7%E7%89%87%23&Refer=top) `834.9K 🔥`
 1. [Nike Dunk Low](https://s.weibo.com/weibo?q=Nike%20Dunk%20Low&Refer=top) `814.0K 🔥`
+1. [刺死女儿9岁同桌男子被执行死刑](https://s.weibo.com/weibo?q=%23%E5%88%BA%E6%AD%BB%E5%A5%B3%E5%84%BF9%E5%B2%81%E5%90%8C%E6%A1%8C%E7%94%B7%E5%AD%90%E8%A2%AB%E6%89%A7%E8%A1%8C%E6%AD%BB%E5%88%91%23&Refer=top) `810.2K 🔥`
 1. [中国对泰国鸡肉进口量暴增82%](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%AF%B9%E6%B3%B0%E5%9B%BD%E9%B8%A1%E8%82%89%E8%BF%9B%E5%8F%A3%E9%87%8F%E6%9A%B4%E5%A2%9E82%25%23&Refer=top) `797.9K 🔥`
 1. [华晨宇关晓彤演我的少女时代](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E6%99%A8%E5%AE%87%E5%85%B3%E6%99%93%E5%BD%A4%E6%BC%94%E6%88%91%E7%9A%84%E5%B0%91%E5%A5%B3%E6%97%B6%E4%BB%A3%23&Refer=top) `778.3K 🔥`
-1. [宋亚轩问自己女装漂亮吗](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E4%BA%9A%E8%BD%A9%E9%97%AE%E8%87%AA%E5%B7%B1%E5%A5%B3%E8%A3%85%E6%BC%82%E4%BA%AE%E5%90%97%23&Refer=top) `758.0K 🔥`
-1. [五年前的沈腾](https://s.weibo.com/weibo?q=%23%E4%BA%94%E5%B9%B4%E5%89%8D%E7%9A%84%E6%B2%88%E8%85%BE%23&Refer=top) `756.5K 🔥`
+1. [赘婿](https://s.weibo.com/weibo?q=%E8%B5%98%E5%A9%BF&Refer=top) `774.7K 🔥`
 
-数据更新于 2021-02-20 17:37:16
+数据更新于 2021-02-20 17:50:06
 
 <!-- END -->
 
