@@ -18,9 +18,9 @@
 1. [为肖思远准备的婚房成了追思的灵堂](https://s.weibo.com/weibo?q=%23%E4%B8%BA%E8%82%96%E6%80%9D%E8%BF%9C%E5%87%86%E5%A4%87%E7%9A%84%E5%A9%9A%E6%88%BF%E6%88%90%E4%BA%86%E8%BF%BD%E6%80%9D%E7%9A%84%E7%81%B5%E5%A0%82%23&Refer=top) `3.0M 🔥`
 1. [海底捞练习生](https://s.weibo.com/weibo?q=%E6%B5%B7%E5%BA%95%E6%8D%9E%E7%BB%83%E4%B9%A0%E7%94%9F&Refer=top) `2.8M 🔥`
 1. [杜淳最近听到最多的话](https://s.weibo.com/weibo?q=%23%E6%9D%9C%E6%B7%B3%E6%9C%80%E8%BF%91%E5%90%AC%E5%88%B0%E6%9C%80%E5%A4%9A%E7%9A%84%E8%AF%9D%23&Refer=top) `2.6M 🔥`
+1. [甘望星](https://s.weibo.com/weibo?q=%E7%94%98%E6%9C%9B%E6%98%9F&Refer=top) `2.6M 🔥`
 1. [小S甩头发打到汪小菲脸上](https://s.weibo.com/weibo?q=%23%E5%B0%8FS%E7%94%A9%E5%A4%B4%E5%8F%91%E6%89%93%E5%88%B0%E6%B1%AA%E5%B0%8F%E8%8F%B2%E8%84%B8%E4%B8%8A%23&Refer=top) `2.6M 🔥`
 1. [医学科研人员无实质贡献不得挂名论文](https://s.weibo.com/weibo?q=%23%E5%8C%BB%E5%AD%A6%E7%A7%91%E7%A0%94%E4%BA%BA%E5%91%98%E6%97%A0%E5%AE%9E%E8%B4%A8%E8%B4%A1%E7%8C%AE%E4%B8%8D%E5%BE%97%E6%8C%82%E5%90%8D%E8%AE%BA%E6%96%87%23&Refer=top) `2.5M 🔥`
-1. [甘望星](https://s.weibo.com/weibo?q=%E7%94%98%E6%9C%9B%E6%98%9F&Refer=top) `2.3M 🔥`
 1. [付辛博听到光荣时的表情](https://s.weibo.com/weibo?q=%23%E4%BB%98%E8%BE%9B%E5%8D%9A%E5%90%AC%E5%88%B0%E5%85%89%E8%8D%A3%E6%97%B6%E7%9A%84%E8%A1%A8%E6%83%85%23&Refer=top) `2.3M 🔥`
 1. [希望男爱豆别再做这个地板动作](https://s.weibo.com/weibo?q=%23%E5%B8%8C%E6%9C%9B%E7%94%B7%E7%88%B1%E8%B1%86%E5%88%AB%E5%86%8D%E5%81%9A%E8%BF%99%E4%B8%AA%E5%9C%B0%E6%9D%BF%E5%8A%A8%E4%BD%9C%23&Refer=top) `2.1M 🔥`
 1. [Amber 我曾经就是个实验](https://s.weibo.com/weibo?q=Amber%20%E6%88%91%E6%9B%BE%E7%BB%8F%E5%B0%B1%E6%98%AF%E4%B8%AA%E5%AE%9E%E9%AA%8C&Refer=top) `2.0M 🔥`
@@ -55,9 +55,9 @@
 1. [格林被驱逐](https://s.weibo.com/weibo?q=%E6%A0%BC%E6%9E%97%E8%A2%AB%E9%A9%B1%E9%80%90&Refer=top) `867.5K 🔥`
 1. [易烊千玺踩高跷分玺](https://s.weibo.com/weibo?q=%23%E6%98%93%E7%83%8A%E5%8D%83%E7%8E%BA%E8%B8%A9%E9%AB%98%E8%B7%B7%E5%88%86%E7%8E%BA%23&Refer=top) `858.5K 🔥`
 1. [王子文了解之前不要抱有期待](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E5%AD%90%E6%96%87%E4%BA%86%E8%A7%A3%E4%B9%8B%E5%89%8D%E4%B8%8D%E8%A6%81%E6%8A%B1%E6%9C%89%E6%9C%9F%E5%BE%85%23&Refer=top) `856.7K 🔥`
-1. [刺死女儿9岁同桌男子被执行死刑](https://s.weibo.com/weibo?q=%23%E5%88%BA%E6%AD%BB%E5%A5%B3%E5%84%BF9%E5%B2%81%E5%90%8C%E6%A1%8C%E7%94%B7%E5%AD%90%E8%A2%AB%E6%89%A7%E8%A1%8C%E6%AD%BB%E5%88%91%23&Refer=top) `824.1K 🔥`
+1. [赘婿](https://s.weibo.com/weibo?q=%E8%B5%98%E5%A9%BF&Refer=top) `824.7K 🔥`
 
-数据更新于 2021-02-21 19:51:06
+数据更新于 2021-02-21 19:56:58
 
 <!-- END -->
 
