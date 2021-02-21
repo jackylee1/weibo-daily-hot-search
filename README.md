@@ -20,6 +20,7 @@
 1. [Amber 我曾经就是个实验](https://s.weibo.com/weibo?q=Amber%20%E6%88%91%E6%9B%BE%E7%BB%8F%E5%B0%B1%E6%98%AF%E4%B8%AA%E5%AE%9E%E9%AA%8C&Refer=top) `2.0M 🔥`
 1. [周深写评价像老中医开单子](https://s.weibo.com/weibo?q=%23%E5%91%A8%E6%B7%B1%E5%86%99%E8%AF%84%E4%BB%B7%E5%83%8F%E8%80%81%E4%B8%AD%E5%8C%BB%E5%BC%80%E5%8D%95%E5%AD%90%23&Refer=top) `1.9M 🔥`
 1. [粉丝喊妈被张小斐答应](https://s.weibo.com/weibo?q=%23%E7%B2%89%E4%B8%9D%E5%96%8A%E5%A6%88%E8%A2%AB%E5%BC%A0%E5%B0%8F%E6%96%90%E7%AD%94%E5%BA%94%23&Refer=top) `1.8M 🔥`
+1. [英雄团长祁发宝已康复](https://s.weibo.com/weibo?q=%23%E8%8B%B1%E9%9B%84%E5%9B%A2%E9%95%BF%E7%A5%81%E5%8F%91%E5%AE%9D%E5%B7%B2%E5%BA%B7%E5%A4%8D%23&Refer=top) `1.8M 🔥`
 1. [烈士陈祥榕牺牲时保持护住营长的姿势](https://s.weibo.com/weibo?q=%23%E7%83%88%E5%A3%AB%E9%99%88%E7%A5%A5%E6%A6%95%E7%89%BA%E7%89%B2%E6%97%B6%E4%BF%9D%E6%8C%81%E6%8A%A4%E4%BD%8F%E8%90%A5%E9%95%BF%E7%9A%84%E5%A7%BF%E5%8A%BF%23&Refer=top) `1.6M 🔥`
 1. [Lisa问梁森有没有在头上抹化妆品](https://s.weibo.com/weibo?q=%23Lisa%E9%97%AE%E6%A2%81%E6%A3%AE%E6%9C%89%E6%B2%A1%E6%9C%89%E5%9C%A8%E5%A4%B4%E4%B8%8A%E6%8A%B9%E5%8C%96%E5%A6%86%E5%93%81%23&Refer=top) `1.6M 🔥`
 1. [韩美娟的嘴能不能留到决赛](https://s.weibo.com/weibo?q=%E9%9F%A9%E7%BE%8E%E5%A8%9F%E7%9A%84%E5%98%B4%E8%83%BD%E4%B8%8D%E8%83%BD%E7%95%99%E5%88%B0%E5%86%B3%E8%B5%9B&Refer=top) `1.5M 🔥`
@@ -38,7 +39,6 @@
 1. [格林被驱逐](https://s.weibo.com/weibo?q=%E6%A0%BC%E6%9E%97%E8%A2%AB%E9%A9%B1%E9%80%90&Refer=top) `867.5K 🔥`
 1. [易烊千玺踩高跷分玺](https://s.weibo.com/weibo?q=%23%E6%98%93%E7%83%8A%E5%8D%83%E7%8E%BA%E8%B8%A9%E9%AB%98%E8%B7%B7%E5%88%86%E7%8E%BA%23&Refer=top) `858.5K 🔥`
 1. [王子文了解之前不要抱有期待](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E5%AD%90%E6%96%87%E4%BA%86%E8%A7%A3%E4%B9%8B%E5%89%8D%E4%B8%8D%E8%A6%81%E6%8A%B1%E6%9C%89%E6%9C%9F%E5%BE%85%23&Refer=top) `856.7K 🔥`
-1. [英雄团长祁发宝已康复](https://s.weibo.com/weibo?q=%23%E8%8B%B1%E9%9B%84%E5%9B%A2%E9%95%BF%E7%A5%81%E5%8F%91%E5%AE%9D%E5%B7%B2%E5%BA%B7%E5%A4%8D%23&Refer=top) `825.8K 🔥`
 1. [刺死女儿9岁同桌男子被执行死刑](https://s.weibo.com/weibo?q=%23%E5%88%BA%E6%AD%BB%E5%A5%B3%E5%84%BF9%E5%B2%81%E5%90%8C%E6%A1%8C%E7%94%B7%E5%AD%90%E8%A2%AB%E6%89%A7%E8%A1%8C%E6%AD%BB%E5%88%91%23&Refer=top) `824.1K 🔥`
 1. [有头发的梁森](https://s.weibo.com/weibo?q=%23%E6%9C%89%E5%A4%B4%E5%8F%91%E7%9A%84%E6%A2%81%E6%A3%AE%23&Refer=top) `822.5K 🔥`
 1. [斗罗大陆](https://s.weibo.com/weibo?q=%E6%96%97%E7%BD%97%E5%A4%A7%E9%99%86&Refer=top) `805.1K 🔥`
@@ -55,9 +55,9 @@
 1. [卫健委称东北放开生育限制需做全面研究](https://s.weibo.com/weibo?q=%23%E5%8D%AB%E5%81%A5%E5%A7%94%E7%A7%B0%E4%B8%9C%E5%8C%97%E6%94%BE%E5%BC%80%E7%94%9F%E8%82%B2%E9%99%90%E5%88%B6%E9%9C%80%E5%81%9A%E5%85%A8%E9%9D%A2%E7%A0%94%E7%A9%B6%23&Refer=top) `638.4K 🔥`
 1. [黄奕没选王侃](https://s.weibo.com/weibo?q=%23%E9%BB%84%E5%A5%95%E6%B2%A1%E9%80%89%E7%8E%8B%E4%BE%83%23&Refer=top) `627.4K 🔥`
 1. [文森佐](https://s.weibo.com/weibo?q=%E6%96%87%E6%A3%AE%E4%BD%90&Refer=top) `623.7K 🔥`
-1. [32名在柬中国公民确诊新冠](https://s.weibo.com/weibo?q=%2332%E5%90%8D%E5%9C%A8%E6%9F%AC%E4%B8%AD%E5%9B%BD%E5%85%AC%E6%B0%91%E7%A1%AE%E8%AF%8A%E6%96%B0%E5%86%A0%23&Refer=top) `618.4K 🔥`
+1. [男子假装自杀女友相救溺水身亡](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E5%81%87%E8%A3%85%E8%87%AA%E6%9D%80%E5%A5%B3%E5%8F%8B%E7%9B%B8%E6%95%91%E6%BA%BA%E6%B0%B4%E8%BA%AB%E4%BA%A1%23&Refer=top) `622.0K 🔥`
 
-数据更新于 2021-02-21 14:42:08
+数据更新于 2021-02-21 14:55:02
 
 <!-- END -->
 
