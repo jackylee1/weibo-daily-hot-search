@@ -29,6 +29,7 @@
 1. [你好李焕英票房破40亿](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E5%A5%BD%E6%9D%8E%E7%84%95%E8%8B%B1%E7%A5%A8%E6%88%BF%E7%A0%B440%E4%BA%BF%23&Refer=top) `1.6M 🔥`
 1. [茅台大跌](https://s.weibo.com/weibo?q=%E8%8C%85%E5%8F%B0%E5%A4%A7%E8%B7%8C&Refer=top) `1.6M 🔥`
 1. [喜欢冷战的人都是什么心理](https://s.weibo.com/weibo?q=%23%E5%96%9C%E6%AC%A2%E5%86%B7%E6%88%98%E7%9A%84%E4%BA%BA%E9%83%BD%E6%98%AF%E4%BB%80%E4%B9%88%E5%BF%83%E7%90%86%23&Refer=top) `1.6M 🔥`
+1. [贵州发现6.3亿年前真菌类生物化石](https://s.weibo.com/weibo?q=%23%E8%B4%B5%E5%B7%9E%E5%8F%91%E7%8E%B06.3%E4%BA%BF%E5%B9%B4%E5%89%8D%E7%9C%9F%E8%8F%8C%E7%B1%BB%E7%94%9F%E7%89%A9%E5%8C%96%E7%9F%B3%23&Refer=top) `1.5M 🔥`
 1. [去年口红销量下滑近半](https://s.weibo.com/weibo?q=%23%E5%8E%BB%E5%B9%B4%E5%8F%A3%E7%BA%A2%E9%94%80%E9%87%8F%E4%B8%8B%E6%BB%91%E8%BF%91%E5%8D%8A%23&Refer=top) `1.4M 🔥`
 1. [龙丹妮 选秀刻进DNA里的女人](https://s.weibo.com/weibo?q=%E9%BE%99%E4%B8%B9%E5%A6%AE%20%E9%80%89%E7%A7%80%E5%88%BB%E8%BF%9BDNA%E9%87%8C%E7%9A%84%E5%A5%B3%E4%BA%BA&Refer=top) `1.4M 🔥`
 1. [全职太太离婚获5万家务补偿](https://s.weibo.com/weibo?q=%23%E5%85%A8%E8%81%8C%E5%A4%AA%E5%A4%AA%E7%A6%BB%E5%A9%9A%E8%8E%B75%E4%B8%87%E5%AE%B6%E5%8A%A1%E8%A1%A5%E5%81%BF%23&Refer=top) `1.4M 🔥`
@@ -39,7 +40,6 @@
 1. [苏锦儿晋升贵妃](https://s.weibo.com/weibo?q=%23%E8%8B%8F%E9%94%A6%E5%84%BF%E6%99%8B%E5%8D%87%E8%B4%B5%E5%A6%83%23&Refer=top) `1.0M 🔥`
 1. [卖的不是气球 是对生活的希望](https://s.weibo.com/weibo?q=%E5%8D%96%E7%9A%84%E4%B8%8D%E6%98%AF%E6%B0%94%E7%90%83%20%E6%98%AF%E5%AF%B9%E7%94%9F%E6%B4%BB%E7%9A%84%E5%B8%8C%E6%9C%9B&Refer=top) `1.0M 🔥`
 1. [看赘婿有被爽到](https://s.weibo.com/weibo?q=%E7%9C%8B%E8%B5%98%E5%A9%BF%E6%9C%89%E8%A2%AB%E7%88%BD%E5%88%B0&Refer=top) `967.4K 🔥`
-1. [贵州发现6.3亿年前真菌类生物化石](https://s.weibo.com/weibo?q=%23%E8%B4%B5%E5%B7%9E%E5%8F%91%E7%8E%B06.3%E4%BA%BF%E5%B9%B4%E5%89%8D%E7%9C%9F%E8%8F%8C%E7%B1%BB%E7%94%9F%E7%89%A9%E5%8C%96%E7%9F%B3%23&Refer=top) `955.1K 🔥`
 1. [宁毅让乌家破产](https://s.weibo.com/weibo?q=%23%E5%AE%81%E6%AF%85%E8%AE%A9%E4%B9%8C%E5%AE%B6%E7%A0%B4%E4%BA%A7%23&Refer=top) `947.2K 🔥`
 1. [霉霉米卡错位图](https://s.weibo.com/weibo?q=%23%E9%9C%89%E9%9C%89%E7%B1%B3%E5%8D%A1%E9%94%99%E4%BD%8D%E5%9B%BE%23&Refer=top) `913.8K 🔥`
 1. [上海小区安装独居老人六件套](https://s.weibo.com/weibo?q=%E4%B8%8A%E6%B5%B7%E5%B0%8F%E5%8C%BA%E5%AE%89%E8%A3%85%E7%8B%AC%E5%B1%85%E8%80%81%E4%BA%BA%E5%85%AD%E4%BB%B6%E5%A5%97&Refer=top) `913.3K 🔥`
@@ -57,7 +57,7 @@
 1. [古古 最不好惹的熊猫](https://s.weibo.com/weibo?q=%E5%8F%A4%E5%8F%A4%20%E6%9C%80%E4%B8%8D%E5%A5%BD%E6%83%B9%E7%9A%84%E7%86%8A%E7%8C%AB&Refer=top) `722.2K 🔥`
 1. [如果小S是青春有你和创造营的导师](https://s.weibo.com/weibo?q=%E5%A6%82%E6%9E%9C%E5%B0%8FS%E6%98%AF%E9%9D%92%E6%98%A5%E6%9C%89%E4%BD%A0%E5%92%8C%E5%88%9B%E9%80%A0%E8%90%A5%E7%9A%84%E5%AF%BC%E5%B8%88&Refer=top) `716.0K 🔥`
 
-数据更新于 2021-02-22 17:23:00
+数据更新于 2021-02-22 17:32:01
 
 <!-- END -->
 
