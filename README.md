@@ -23,11 +23,11 @@
 1. [爱奇艺员工落户北京后离职被判赔10万](https://s.weibo.com/weibo?q=%23%E7%88%B1%E5%A5%87%E8%89%BA%E5%91%98%E5%B7%A5%E8%90%BD%E6%88%B7%E5%8C%97%E4%BA%AC%E5%90%8E%E7%A6%BB%E8%81%8C%E8%A2%AB%E5%88%A4%E8%B5%9410%E4%B8%87%23&Refer=top) `2.2M 🔥`
 1. [韩美娟发际线](https://s.weibo.com/weibo?q=%E9%9F%A9%E7%BE%8E%E5%A8%9F%E5%8F%91%E9%99%85%E7%BA%BF&Refer=top) `2.1M 🔥`
 1. [贾玲高情商应对催婚](https://s.weibo.com/weibo?q=%23%E8%B4%BE%E7%8E%B2%E9%AB%98%E6%83%85%E5%95%86%E5%BA%94%E5%AF%B9%E5%82%AC%E5%A9%9A%23&Refer=top) `2.0M 🔥`
+1. [货拉拉回应女子跳窗身亡](https://s.weibo.com/weibo?q=%E8%B4%A7%E6%8B%89%E6%8B%89%E5%9B%9E%E5%BA%94%E5%A5%B3%E5%AD%90%E8%B7%B3%E7%AA%97%E8%BA%AB%E4%BA%A1&Refer=top) `2.0M 🔥`
 1. [有过敏性鼻炎可接种新冠疫苗吗](https://s.weibo.com/weibo?q=%23%E6%9C%89%E8%BF%87%E6%95%8F%E6%80%A7%E9%BC%BB%E7%82%8E%E5%8F%AF%E6%8E%A5%E7%A7%8D%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E5%90%97%23&Refer=top) `1.9M 🔥`
 1. [基金](https://s.weibo.com/weibo?q=%E5%9F%BA%E9%87%91&Refer=top) `1.9M 🔥`
 1. [贵州发现6.3亿年前真菌类生物化石](https://s.weibo.com/weibo?q=%23%E8%B4%B5%E5%B7%9E%E5%8F%91%E7%8E%B06.3%E4%BA%BF%E5%B9%B4%E5%89%8D%E7%9C%9F%E8%8F%8C%E7%B1%BB%E7%94%9F%E7%89%A9%E5%8C%96%E7%9F%B3%23&Refer=top) `1.9M 🔥`
 1. [张小斐下班图](https://s.weibo.com/weibo?q=%E5%BC%A0%E5%B0%8F%E6%96%90%E4%B8%8B%E7%8F%AD%E5%9B%BE&Refer=top) `1.9M 🔥`
-1. [货拉拉回应女子跳窗身亡](https://s.weibo.com/weibo?q=%23%E8%B4%A7%E6%8B%89%E6%8B%89%E5%9B%9E%E5%BA%94%E5%A5%B3%E5%AD%90%E8%B7%B3%E7%AA%97%E8%BA%AB%E4%BA%A1%23&Refer=top) `1.9M 🔥`
 1. [金星说雪国列车应该叫雪国餐车](https://s.weibo.com/weibo?q=%E9%87%91%E6%98%9F%E8%AF%B4%E9%9B%AA%E5%9B%BD%E5%88%97%E8%BD%A6%E5%BA%94%E8%AF%A5%E5%8F%AB%E9%9B%AA%E5%9B%BD%E9%A4%90%E8%BD%A6&Refer=top) `1.8M 🔥`
 1. [涉事货拉拉司机已被释放](https://s.weibo.com/weibo?q=%23%E6%B6%89%E4%BA%8B%E8%B4%A7%E6%8B%89%E6%8B%89%E5%8F%B8%E6%9C%BA%E5%B7%B2%E8%A2%AB%E9%87%8A%E6%94%BE%23&Refer=top) `1.8M 🔥`
 1. [茅台大跌](https://s.weibo.com/weibo?q=%E8%8C%85%E5%8F%B0%E5%A4%A7%E8%B7%8C&Refer=top) `1.7M 🔥`
@@ -44,6 +44,7 @@
 1. [开学](https://s.weibo.com/weibo?q=%E5%BC%80%E5%AD%A6&Refer=top) `1.3M 🔥`
 1. [广东1男子诋毁戍边英雄被刑拘](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E4%B8%9C1%E7%94%B7%E5%AD%90%E8%AF%8B%E6%AF%81%E6%88%8D%E8%BE%B9%E8%8B%B1%E9%9B%84%E8%A2%AB%E5%88%91%E6%8B%98%23&Refer=top) `1.3M 🔥`
 1. [唐探3中国影史最快破40亿电影](https://s.weibo.com/weibo?q=%23%E5%94%90%E6%8E%A23%E4%B8%AD%E5%9B%BD%E5%BD%B1%E5%8F%B2%E6%9C%80%E5%BF%AB%E7%A0%B440%E4%BA%BF%E7%94%B5%E5%BD%B1%23&Refer=top) `1.2M 🔥`
+1. [我国渤海再获亿吨级油气大发现](https://s.weibo.com/weibo?q=%E6%88%91%E5%9B%BD%E6%B8%A4%E6%B5%B7%E5%86%8D%E8%8E%B7%E4%BA%BF%E5%90%A8%E7%BA%A7%E6%B2%B9%E6%B0%94%E5%A4%A7%E5%8F%91%E7%8E%B0&Refer=top) `1.2M 🔥`
 1. [上海小区安装独居老人六件套](https://s.weibo.com/weibo?q=%E4%B8%8A%E6%B5%B7%E5%B0%8F%E5%8C%BA%E5%AE%89%E8%A3%85%E7%8B%AC%E5%B1%85%E8%80%81%E4%BA%BA%E5%85%AD%E4%BB%B6%E5%A5%97&Refer=top) `1.1M 🔥`
 1. [苏锦儿晋升贵妃](https://s.weibo.com/weibo?q=%23%E8%8B%8F%E9%94%A6%E5%84%BF%E6%99%8B%E5%8D%87%E8%B4%B5%E5%A6%83%23&Refer=top) `1.0M 🔥`
 1. [卖的不是气球 是对生活的希望](https://s.weibo.com/weibo?q=%E5%8D%96%E7%9A%84%E4%B8%8D%E6%98%AF%E6%B0%94%E7%90%83%20%E6%98%AF%E5%AF%B9%E7%94%9F%E6%B4%BB%E7%9A%84%E5%B8%8C%E6%9C%9B&Refer=top) `1.0M 🔥`
@@ -52,12 +53,11 @@
 1. [郑乃馨说鸡皮疙瘩是皮毛嘭起来](https://s.weibo.com/weibo?q=%23%E9%83%91%E4%B9%83%E9%A6%A8%E8%AF%B4%E9%B8%A1%E7%9A%AE%E7%96%99%E7%98%A9%E6%98%AF%E7%9A%AE%E6%AF%9B%E5%98%AD%E8%B5%B7%E6%9D%A5%23&Refer=top) `966.2K 🔥`
 1. [宁毅让乌家破产](https://s.weibo.com/weibo?q=%23%E5%AE%81%E6%AF%85%E8%AE%A9%E4%B9%8C%E5%AE%B6%E7%A0%B4%E4%BA%A7%23&Refer=top) `947.2K 🔥`
 1. [霉霉米卡错位图](https://s.weibo.com/weibo?q=%23%E9%9C%89%E9%9C%89%E7%B1%B3%E5%8D%A1%E9%94%99%E4%BD%8D%E5%9B%BE%23&Refer=top) `913.8K 🔥`
-1. [我国渤海再获亿吨级油气大发现](https://s.weibo.com/weibo?q=%E6%88%91%E5%9B%BD%E6%B8%A4%E6%B5%B7%E5%86%8D%E8%8E%B7%E4%BA%BF%E5%90%A8%E7%BA%A7%E6%B2%B9%E6%B0%94%E5%A4%A7%E5%8F%91%E7%8E%B0&Refer=top) `848.7K 🔥`
 1. [田启文称吴孟达现在病情控制得不错](https://s.weibo.com/weibo?q=%E7%94%B0%E5%90%AF%E6%96%87%E7%A7%B0%E5%90%B4%E5%AD%9F%E8%BE%BE%E7%8E%B0%E5%9C%A8%E7%97%85%E6%83%85%E6%8E%A7%E5%88%B6%E5%BE%97%E4%B8%8D%E9%94%99&Refer=top) `845.8K 🔥`
 1. [迪丽热巴机车服造型](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E6%9C%BA%E8%BD%A6%E6%9C%8D%E9%80%A0%E5%9E%8B%23&Refer=top) `832.4K 🔥`
 1. [徐穗珍否认曾校园暴力同学](https://s.weibo.com/weibo?q=%23%E5%BE%90%E7%A9%97%E7%8F%8D%E5%90%A6%E8%AE%A4%E6%9B%BE%E6%A0%A1%E5%9B%AD%E6%9A%B4%E5%8A%9B%E5%90%8C%E5%AD%A6%23&Refer=top) `814.9K 🔥`
 
-数据更新于 2021-02-22 18:53:55
+数据更新于 2021-02-22 19:00:06
 
 <!-- END -->
 
