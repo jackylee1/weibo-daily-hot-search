@@ -24,8 +24,8 @@
 1. [金星说雪国列车应该叫雪国餐车](https://s.weibo.com/weibo?q=%E9%87%91%E6%98%9F%E8%AF%B4%E9%9B%AA%E5%9B%BD%E5%88%97%E8%BD%A6%E5%BA%94%E8%AF%A5%E5%8F%AB%E9%9B%AA%E5%9B%BD%E9%A4%90%E8%BD%A6&Refer=top) `1.8M 🔥`
 1. [涉事货拉拉司机已被释放](https://s.weibo.com/weibo?q=%23%E6%B6%89%E4%BA%8B%E8%B4%A7%E6%8B%89%E6%8B%89%E5%8F%B8%E6%9C%BA%E5%B7%B2%E8%A2%AB%E9%87%8A%E6%94%BE%23&Refer=top) `1.8M 🔥`
 1. [你好李焕英票房破40亿](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E5%A5%BD%E6%9D%8E%E7%84%95%E8%8B%B1%E7%A5%A8%E6%88%BF%E7%A0%B440%E4%BA%BF%23&Refer=top) `1.6M 🔥`
-1. [喜欢冷战的人都是什么心理](https://s.weibo.com/weibo?q=%23%E5%96%9C%E6%AC%A2%E5%86%B7%E6%88%98%E7%9A%84%E4%BA%BA%E9%83%BD%E6%98%AF%E4%BB%80%E4%B9%88%E5%BF%83%E7%90%86%23&Refer=top) `1.6M 🔥`
 1. [茅台大跌](https://s.weibo.com/weibo?q=%E8%8C%85%E5%8F%B0%E5%A4%A7%E8%B7%8C&Refer=top) `1.6M 🔥`
+1. [喜欢冷战的人都是什么心理](https://s.weibo.com/weibo?q=%23%E5%96%9C%E6%AC%A2%E5%86%B7%E6%88%98%E7%9A%84%E4%BA%BA%E9%83%BD%E6%98%AF%E4%BB%80%E4%B9%88%E5%BF%83%E7%90%86%23&Refer=top) `1.6M 🔥`
 1. [去年口红销量下滑近半](https://s.weibo.com/weibo?q=%23%E5%8E%BB%E5%B9%B4%E5%8F%A3%E7%BA%A2%E9%94%80%E9%87%8F%E4%B8%8B%E6%BB%91%E8%BF%91%E5%8D%8A%23&Refer=top) `1.4M 🔥`
 1. [龙丹妮 选秀刻进DNA里的女人](https://s.weibo.com/weibo?q=%E9%BE%99%E4%B8%B9%E5%A6%AE%20%E9%80%89%E7%A7%80%E5%88%BB%E8%BF%9BDNA%E9%87%8C%E7%9A%84%E5%A5%B3%E4%BA%BA&Refer=top) `1.4M 🔥`
 1. [全职太太离婚获5万家务补偿](https://s.weibo.com/weibo?q=%23%E5%85%A8%E8%81%8C%E5%A4%AA%E5%A4%AA%E7%A6%BB%E5%A9%9A%E8%8E%B75%E4%B8%87%E5%AE%B6%E5%8A%A1%E8%A1%A5%E5%81%BF%23&Refer=top) `1.4M 🔥`
@@ -57,7 +57,7 @@
 1. [魏宏宇后援会声明](https://s.weibo.com/weibo?q=%E9%AD%8F%E5%AE%8F%E5%AE%87%E5%90%8E%E6%8F%B4%E4%BC%9A%E5%A3%B0%E6%98%8E&Refer=top) `681.5K 🔥`
 1. [朱正廷新发色](https://s.weibo.com/weibo?q=%23%E6%9C%B1%E6%AD%A3%E5%BB%B7%E6%96%B0%E5%8F%91%E8%89%B2%23&Refer=top) `668.9K 🔥`
 
-数据更新于 2021-02-22 15:17:58
+数据更新于 2021-02-22 15:28:20
 
 <!-- END -->
 
