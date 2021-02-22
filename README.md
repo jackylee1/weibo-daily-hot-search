@@ -27,9 +27,9 @@
 1. [基金](https://s.weibo.com/weibo?q=%E5%9F%BA%E9%87%91&Refer=top) `1.9M 🔥`
 1. [贵州发现6.3亿年前真菌类生物化石](https://s.weibo.com/weibo?q=%23%E8%B4%B5%E5%B7%9E%E5%8F%91%E7%8E%B06.3%E4%BA%BF%E5%B9%B4%E5%89%8D%E7%9C%9F%E8%8F%8C%E7%B1%BB%E7%94%9F%E7%89%A9%E5%8C%96%E7%9F%B3%23&Refer=top) `1.9M 🔥`
 1. [张小斐下班图](https://s.weibo.com/weibo?q=%E5%BC%A0%E5%B0%8F%E6%96%90%E4%B8%8B%E7%8F%AD%E5%9B%BE&Refer=top) `1.9M 🔥`
+1. [货拉拉回应女子跳窗身亡](https://s.weibo.com/weibo?q=%23%E8%B4%A7%E6%8B%89%E6%8B%89%E5%9B%9E%E5%BA%94%E5%A5%B3%E5%AD%90%E8%B7%B3%E7%AA%97%E8%BA%AB%E4%BA%A1%23&Refer=top) `1.9M 🔥`
 1. [金星说雪国列车应该叫雪国餐车](https://s.weibo.com/weibo?q=%E9%87%91%E6%98%9F%E8%AF%B4%E9%9B%AA%E5%9B%BD%E5%88%97%E8%BD%A6%E5%BA%94%E8%AF%A5%E5%8F%AB%E9%9B%AA%E5%9B%BD%E9%A4%90%E8%BD%A6&Refer=top) `1.8M 🔥`
 1. [涉事货拉拉司机已被释放](https://s.weibo.com/weibo?q=%23%E6%B6%89%E4%BA%8B%E8%B4%A7%E6%8B%89%E6%8B%89%E5%8F%B8%E6%9C%BA%E5%B7%B2%E8%A2%AB%E9%87%8A%E6%94%BE%23&Refer=top) `1.8M 🔥`
-1. [货拉拉回应女子跳窗身亡](https://s.weibo.com/weibo?q=%E8%B4%A7%E6%8B%89%E6%8B%89%E5%9B%9E%E5%BA%94%E5%A5%B3%E5%AD%90%E8%B7%B3%E7%AA%97%E8%BA%AB%E4%BA%A1&Refer=top) `1.8M 🔥`
 1. [茅台大跌](https://s.weibo.com/weibo?q=%E8%8C%85%E5%8F%B0%E5%A4%A7%E8%B7%8C&Refer=top) `1.7M 🔥`
 1. [北京同仁堂总经理高振坤被查](https://s.weibo.com/weibo?q=%E5%8C%97%E4%BA%AC%E5%90%8C%E4%BB%81%E5%A0%82%E6%80%BB%E7%BB%8F%E7%90%86%E9%AB%98%E6%8C%AF%E5%9D%A4%E8%A2%AB%E6%9F%A5&Refer=top) `1.7M 🔥`
 1. [你好李焕英票房破40亿](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E5%A5%BD%E6%9D%8E%E7%84%95%E8%8B%B1%E7%A5%A8%E6%88%BF%E7%A0%B440%E4%BA%BF%23&Refer=top) `1.6M 🔥`
@@ -57,7 +57,7 @@
 1. [迪丽热巴机车服造型](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E6%9C%BA%E8%BD%A6%E6%9C%8D%E9%80%A0%E5%9E%8B%23&Refer=top) `832.4K 🔥`
 1. [徐穗珍否认曾校园暴力同学](https://s.weibo.com/weibo?q=%23%E5%BE%90%E7%A9%97%E7%8F%8D%E5%90%A6%E8%AE%A4%E6%9B%BE%E6%A0%A1%E5%9B%AD%E6%9A%B4%E5%8A%9B%E5%90%8C%E5%AD%A6%23&Refer=top) `814.9K 🔥`
 
-数据更新于 2021-02-22 18:47:56
+数据更新于 2021-02-22 18:53:55
 
 <!-- END -->
 
