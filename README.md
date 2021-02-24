@@ -14,8 +14,8 @@
 1. [房东否认李湘方主动打扫后退租](https://s.weibo.com/weibo?q=%23%E6%88%BF%E4%B8%9C%E5%90%A6%E8%AE%A4%E6%9D%8E%E6%B9%98%E6%96%B9%E4%B8%BB%E5%8A%A8%E6%89%93%E6%89%AB%E5%90%8E%E9%80%80%E7%A7%9F%23&Refer=top) `4.2M 🔥`
 1. [吴尊女儿在文莱国王面前演奏大提琴](https://s.weibo.com/weibo?q=%E5%90%B4%E5%B0%8A%E5%A5%B3%E5%84%BF%E5%9C%A8%E6%96%87%E8%8E%B1%E5%9B%BD%E7%8E%8B%E9%9D%A2%E5%89%8D%E6%BC%94%E5%A5%8F%E5%A4%A7%E6%8F%90%E7%90%B4&Refer=top) `4.0M 🔥`
 1. [超1800人牺牲在脱贫攻坚一线](https://s.weibo.com/weibo?q=%23%E8%B6%851800%E4%BA%BA%E7%89%BA%E7%89%B2%E5%9C%A8%E8%84%B1%E8%B4%AB%E6%94%BB%E5%9D%9A%E4%B8%80%E7%BA%BF%23&Refer=top) `3.8M 🔥`
+1. [女子砸死熟睡丈夫被判无期](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E7%A0%B8%E6%AD%BB%E7%86%9F%E7%9D%A1%E4%B8%88%E5%A4%AB%E8%A2%AB%E5%88%A4%E6%97%A0%E6%9C%9F%23&Refer=top) `2.9M 🔥`
 1. [霍汶希要谢霆锋自动续约20年](https://s.weibo.com/weibo?q=%23%E9%9C%8D%E6%B1%B6%E5%B8%8C%E8%A6%81%E8%B0%A2%E9%9C%86%E9%94%8B%E8%87%AA%E5%8A%A8%E7%BB%AD%E7%BA%A620%E5%B9%B4%23&Refer=top) `2.8M 🔥`
-1. [女子砸死熟睡丈夫被判无期](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E7%A0%B8%E6%AD%BB%E7%86%9F%E7%9D%A1%E4%B8%88%E5%A4%AB%E8%A2%AB%E5%88%A4%E6%97%A0%E6%9C%9F%23&Refer=top) `2.5M 🔥`
 1. [中国人寿回应](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E4%BA%BA%E5%AF%BF%E5%9B%9E%E5%BA%94&Refer=top) `2.2M 🔥`
 1. [庆怜房子塌了](https://s.weibo.com/weibo?q=%E5%BA%86%E6%80%9C%E6%88%BF%E5%AD%90%E5%A1%8C%E4%BA%86&Refer=top) `2.2M 🔥`
 1. [白敬亭 我曾是顶流现在只能耍猴](https://s.weibo.com/weibo?q=%E7%99%BD%E6%95%AC%E4%BA%AD%20%E6%88%91%E6%9B%BE%E6%98%AF%E9%A1%B6%E6%B5%81%E7%8E%B0%E5%9C%A8%E5%8F%AA%E8%83%BD%E8%80%8D%E7%8C%B4&Refer=top) `2.2M 🔥`
@@ -57,7 +57,7 @@
 1. [孟佳要给韩美娟定制不会掉的假发片](https://s.weibo.com/weibo?q=%23%E5%AD%9F%E4%BD%B3%E8%A6%81%E7%BB%99%E9%9F%A9%E7%BE%8E%E5%A8%9F%E5%AE%9A%E5%88%B6%E4%B8%8D%E4%BC%9A%E6%8E%89%E7%9A%84%E5%81%87%E5%8F%91%E7%89%87%23&Refer=top) `583.6K 🔥`
 1. [世界最胖男孩减重200斤](https://s.weibo.com/weibo?q=%23%E4%B8%96%E7%95%8C%E6%9C%80%E8%83%96%E7%94%B7%E5%AD%A9%E5%87%8F%E9%87%8D200%E6%96%A4%23&Refer=top) `582.5K 🔥`
 
-数据更新于 2021-02-24 14:52:43
+数据更新于 2021-02-24 14:58:48
 
 <!-- END -->
 
