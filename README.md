@@ -51,13 +51,13 @@
 1. [明星大侦探节目组道歉](https://s.weibo.com/weibo?q=%23%E6%98%8E%E6%98%9F%E5%A4%A7%E4%BE%A6%E6%8E%A2%E8%8A%82%E7%9B%AE%E7%BB%84%E9%81%93%E6%AD%89%23&Refer=top) `1.1M 🔥`
 1. [患多种疾病张桂梅说怕睡一觉人没了](https://s.weibo.com/weibo?q=%23%E6%82%A3%E5%A4%9A%E7%A7%8D%E7%96%BE%E7%97%85%E5%BC%A0%E6%A1%82%E6%A2%85%E8%AF%B4%E6%80%95%E7%9D%A1%E4%B8%80%E8%A7%89%E4%BA%BA%E6%B2%A1%E4%BA%86%23&Refer=top) `1.1M 🔥`
 1. [外交部点名BBC](https://s.weibo.com/weibo?q=%23%E5%A4%96%E4%BA%A4%E9%83%A8%E7%82%B9%E5%90%8DBBC%23&Refer=top) `1.1M 🔥`
+1. [日本栽培出可连皮食用香蕉](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E6%A0%BD%E5%9F%B9%E5%87%BA%E5%8F%AF%E8%BF%9E%E7%9A%AE%E9%A3%9F%E7%94%A8%E9%A6%99%E8%95%89%23&Refer=top) `1.1M 🔥`
 1. [中国人寿被举报人去年已离职](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E4%BA%BA%E5%AF%BF%E8%A2%AB%E4%B8%BE%E6%8A%A5%E4%BA%BA%E5%8E%BB%E5%B9%B4%E5%B7%B2%E7%A6%BB%E8%81%8C%23&Refer=top) `1.1M 🔥`
 1. [朴灿烈向粉丝道歉](https://s.weibo.com/weibo?q=%23%E6%9C%B4%E7%81%BF%E7%83%88%E5%90%91%E7%B2%89%E4%B8%9D%E9%81%93%E6%AD%89%23&Refer=top) `1.1M 🔥`
 1. [周深谈网红歌手和职业歌手](https://s.weibo.com/weibo?q=%23%E5%91%A8%E6%B7%B1%E8%B0%88%E7%BD%91%E7%BA%A2%E6%AD%8C%E6%89%8B%E5%92%8C%E8%81%8C%E4%B8%9A%E6%AD%8C%E6%89%8B%23&Refer=top) `1.1M 🔥`
 1. [广州拾金不昧可获10%奖励](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E6%8B%BE%E9%87%91%E4%B8%8D%E6%98%A7%E5%8F%AF%E8%8E%B710%25%E5%A5%96%E5%8A%B1%23&Refer=top) `1.1M 🔥`
-1. [中纪委评货拉拉事件](https://s.weibo.com/weibo?q=%E4%B8%AD%E7%BA%AA%E5%A7%94%E8%AF%84%E8%B4%A7%E6%8B%89%E6%8B%89%E4%BA%8B%E4%BB%B6&Refer=top) `1.0M 🔥`
 
-数据更新于 2021-02-25 22:34:13
+数据更新于 2021-02-25 22:44:29
 
 <!-- END -->
 
