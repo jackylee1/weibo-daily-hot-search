@@ -24,6 +24,7 @@
 1. [潘长江 我也不知道说什么](https://s.weibo.com/weibo?q=%E6%BD%98%E9%95%BF%E6%B1%9F%20%E6%88%91%E4%B9%9F%E4%B8%8D%E7%9F%A5%E9%81%93%E8%AF%B4%E4%BB%80%E4%B9%88&Refer=top) `1.4M 🔥`
 1. [苏妙玲十年后重回舞台](https://s.weibo.com/weibo?q=%23%E8%8B%8F%E5%A6%99%E7%8E%B2%E5%8D%81%E5%B9%B4%E5%90%8E%E9%87%8D%E5%9B%9E%E8%88%9E%E5%8F%B0%23&Refer=top) `1.2M 🔥`
 1. [取快递被造谣出轨女子回应两人被公诉](https://s.weibo.com/weibo?q=%23%E5%8F%96%E5%BF%AB%E9%80%92%E8%A2%AB%E9%80%A0%E8%B0%A3%E5%87%BA%E8%BD%A8%E5%A5%B3%E5%AD%90%E5%9B%9E%E5%BA%94%E4%B8%A4%E4%BA%BA%E8%A2%AB%E5%85%AC%E8%AF%89%23&Refer=top) `1.2M 🔥`
+1. [父母该不该教哥哥姐姐让着弟弟妹妹](https://s.weibo.com/weibo?q=%23%E7%88%B6%E6%AF%8D%E8%AF%A5%E4%B8%8D%E8%AF%A5%E6%95%99%E5%93%A5%E5%93%A5%E5%A7%90%E5%A7%90%E8%AE%A9%E7%9D%80%E5%BC%9F%E5%BC%9F%E5%A6%B9%E5%A6%B9%23&Refer=top) `1.1M 🔥`
 1. [天津健康码](https://s.weibo.com/weibo?q=%E5%A4%A9%E6%B4%A5%E5%81%A5%E5%BA%B7%E7%A0%81&Refer=top) `1.0M 🔥`
 1. [对比家长收入歧视学生老师道歉](https://s.weibo.com/weibo?q=%E5%AF%B9%E6%AF%94%E5%AE%B6%E9%95%BF%E6%94%B6%E5%85%A5%E6%AD%A7%E8%A7%86%E5%AD%A6%E7%94%9F%E8%80%81%E5%B8%88%E9%81%93%E6%AD%89&Refer=top) `1.0M 🔥`
 1. [锦心似玉](https://s.weibo.com/weibo?q=%23%E9%94%A6%E5%BF%83%E4%BC%BC%E7%8E%89%23&Refer=top) `946.0K 🔥`
@@ -35,7 +36,6 @@
 1. [那英回应微博骂人经历](https://s.weibo.com/weibo?q=%23%E9%82%A3%E8%8B%B1%E5%9B%9E%E5%BA%94%E5%BE%AE%E5%8D%9A%E9%AA%82%E4%BA%BA%E7%BB%8F%E5%8E%86%23&Refer=top) `848.5K 🔥`
 1. [世卫称未来有可能暴发新的大流行病](https://s.weibo.com/weibo?q=%23%E4%B8%96%E5%8D%AB%E7%A7%B0%E6%9C%AA%E6%9D%A5%E6%9C%89%E5%8F%AF%E8%83%BD%E6%9A%B4%E5%8F%91%E6%96%B0%E7%9A%84%E5%A4%A7%E6%B5%81%E8%A1%8C%E7%97%85%23&Refer=top) `839.6K 🔥`
 1. [张柏芝小哑巴嗓子](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%9F%8F%E8%8A%9D%E5%B0%8F%E5%93%91%E5%B7%B4%E5%97%93%E5%AD%90%23&Refer=top) `839.6K 🔥`
-1. [父母该不该教哥哥姐姐让着弟弟妹妹](https://s.weibo.com/weibo?q=%23%E7%88%B6%E6%AF%8D%E8%AF%A5%E4%B8%8D%E8%AF%A5%E6%95%99%E5%93%A5%E5%93%A5%E5%A7%90%E5%A7%90%E8%AE%A9%E7%9D%80%E5%BC%9F%E5%BC%9F%E5%A6%B9%E5%A6%B9%23&Refer=top) `836.8K 🔥`
 1. [唐艺昕仙女造型](https://s.weibo.com/weibo?q=%23%E5%94%90%E8%89%BA%E6%98%95%E4%BB%99%E5%A5%B3%E9%80%A0%E5%9E%8B%23&Refer=top) `820.0K 🔥`
 1. [华晨宇猜热依扎为迪丽热扎](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E6%99%A8%E5%AE%87%E7%8C%9C%E7%83%AD%E4%BE%9D%E6%89%8E%E4%B8%BA%E8%BF%AA%E4%B8%BD%E7%83%AD%E6%89%8E%23&Refer=top) `780.1K 🔥`
 1. [造谣取快递女子出轨两人被提起公诉](https://s.weibo.com/weibo?q=%23%E9%80%A0%E8%B0%A3%E5%8F%96%E5%BF%AB%E9%80%92%E5%A5%B3%E5%AD%90%E5%87%BA%E8%BD%A8%E4%B8%A4%E4%BA%BA%E8%A2%AB%E6%8F%90%E8%B5%B7%E5%85%AC%E8%AF%89%23&Refer=top) `752.6K 🔥`
@@ -57,7 +57,7 @@
 1. [丁程鑫被砸到脑瓜子嗡嗡的](https://s.weibo.com/weibo?q=%23%E4%B8%81%E7%A8%8B%E9%91%AB%E8%A2%AB%E7%A0%B8%E5%88%B0%E8%84%91%E7%93%9C%E5%AD%90%E5%97%A1%E5%97%A1%E7%9A%84%23&Refer=top) `634.4K 🔥`
 1. [李雪琴孟鹤堂撒娇情头](https://s.weibo.com/weibo?q=%E6%9D%8E%E9%9B%AA%E7%90%B4%E5%AD%9F%E9%B9%A4%E5%A0%82%E6%92%92%E5%A8%87%E6%83%85%E5%A4%B4&Refer=top) `617.3K 🔥`
 
-数据更新于 2021-02-27 13:44:14
+数据更新于 2021-02-27 13:49:56
 
 <!-- END -->
 
