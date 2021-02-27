@@ -9,6 +9,7 @@
 1. [吴孟达去世](https://s.weibo.com/weibo?q=%23%E5%90%B4%E5%AD%9F%E8%BE%BE%E5%8E%BB%E4%B8%96%23&Refer=top) `39.2M 🔥`
 1. [周星驰 我还无法接受](https://s.weibo.com/weibo?q=%E5%91%A8%E6%98%9F%E9%A9%B0%20%E6%88%91%E8%BF%98%E6%97%A0%E6%B3%95%E6%8E%A5%E5%8F%97&Refer=top) `16.0M 🔥`
 1. [3月1日起这些行为触犯刑法](https://s.weibo.com/weibo?q=%233%E6%9C%881%E6%97%A5%E8%B5%B7%E8%BF%99%E4%BA%9B%E8%A1%8C%E4%B8%BA%E8%A7%A6%E7%8A%AF%E5%88%91%E6%B3%95%23&Refer=top) `9.4M 🔥`
+1. [成体肝脏中新生肝细胞来源被发现](https://s.weibo.com/weibo?q=%23%E6%88%90%E4%BD%93%E8%82%9D%E8%84%8F%E4%B8%AD%E6%96%B0%E7%94%9F%E8%82%9D%E7%BB%86%E8%83%9E%E6%9D%A5%E6%BA%90%E8%A2%AB%E5%8F%91%E7%8E%B0%23&Refer=top) `6.8M 🔥`
 1. [别叫我达叔 叫我达哥](https://s.weibo.com/weibo?q=%E5%88%AB%E5%8F%AB%E6%88%91%E8%BE%BE%E5%8F%94%20%E5%8F%AB%E6%88%91%E8%BE%BE%E5%93%A5&Refer=top) `6.3M 🔥`
 1. [张小斐全国粉丝后援会解散](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%B0%8F%E6%96%90%E5%85%A8%E5%9B%BD%E7%B2%89%E4%B8%9D%E5%90%8E%E6%8F%B4%E4%BC%9A%E8%A7%A3%E6%95%A3%23&Refer=top) `5.2M 🔥`
 1. [刘浩存年龄](https://s.weibo.com/weibo?q=%23%E5%88%98%E6%B5%A9%E5%AD%98%E5%B9%B4%E9%BE%84%23&Refer=top) `4.9M 🔥`
@@ -24,6 +25,7 @@
 1. [唐嫣再扮紫萱](https://s.weibo.com/weibo?q=%23%E5%94%90%E5%AB%A3%E5%86%8D%E6%89%AE%E7%B4%AB%E8%90%B1%23&Refer=top) `2.4M 🔥`
 1. [父母该不该教哥哥姐姐让着弟弟妹妹](https://s.weibo.com/weibo?q=%23%E7%88%B6%E6%AF%8D%E8%AF%A5%E4%B8%8D%E8%AF%A5%E6%95%99%E5%93%A5%E5%93%A5%E5%A7%90%E5%A7%90%E8%AE%A9%E7%9D%80%E5%BC%9F%E5%BC%9F%E5%A6%B9%E5%A6%B9%23&Refer=top) `2.3M 🔥`
 1. [你好李焕英票房进内地前三](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E5%A5%BD%E6%9D%8E%E7%84%95%E8%8B%B1%E7%A5%A8%E6%88%BF%E8%BF%9B%E5%86%85%E5%9C%B0%E5%89%8D%E4%B8%89%23&Refer=top) `2.2M 🔥`
+1. [中国影史票房前五全是国产片](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%BD%B1%E5%8F%B2%E7%A5%A8%E6%88%BF%E5%89%8D%E4%BA%94%E5%85%A8%E6%98%AF%E5%9B%BD%E4%BA%A7%E7%89%87%23&Refer=top) `2.2M 🔥`
 1. [杨紫佟年回归](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E7%B4%AB%E4%BD%9F%E5%B9%B4%E5%9B%9E%E5%BD%92%23&Refer=top) `2.1M 🔥`
 1. [当代年轻人买基金现状](https://s.weibo.com/weibo?q=%23%E5%BD%93%E4%BB%A3%E5%B9%B4%E8%BD%BB%E4%BA%BA%E4%B9%B0%E5%9F%BA%E9%87%91%E7%8E%B0%E7%8A%B6%23&Refer=top) `2.1M 🔥`
 1. [陈华回应与咸素媛分手传闻](https://s.weibo.com/weibo?q=%E9%99%88%E5%8D%8E%E5%9B%9E%E5%BA%94%E4%B8%8E%E5%92%B8%E7%B4%A0%E5%AA%9B%E5%88%86%E6%89%8B%E4%BC%A0%E9%97%BB&Refer=top) `2.0M 🔥`
@@ -35,9 +37,9 @@
 1. [差点以为凤凰传奇解散了](https://s.weibo.com/weibo?q=%23%E5%B7%AE%E7%82%B9%E4%BB%A5%E4%B8%BA%E5%87%A4%E5%87%B0%E4%BC%A0%E5%A5%87%E8%A7%A3%E6%95%A3%E4%BA%86%23&Refer=top) `1.6M 🔥`
 1. [再也看不到吴孟达周星驰合作了](https://s.weibo.com/weibo?q=%E5%86%8D%E4%B9%9F%E7%9C%8B%E4%B8%8D%E5%88%B0%E5%90%B4%E5%AD%9F%E8%BE%BE%E5%91%A8%E6%98%9F%E9%A9%B0%E5%90%88%E4%BD%9C%E4%BA%86&Refer=top) `1.6M 🔥`
 1. [达叔一路走好](https://s.weibo.com/weibo?q=%E8%BE%BE%E5%8F%94%E4%B8%80%E8%B7%AF%E8%B5%B0%E5%A5%BD&Refer=top) `1.6M 🔥`
+1. [青3首周排名](https://s.weibo.com/weibo?q=%23%E9%9D%923%E9%A6%96%E5%91%A8%E6%8E%92%E5%90%8D%23&Refer=top) `1.5M 🔥`
 1. [蔡明潘长江小品立意](https://s.weibo.com/weibo?q=%23%E8%94%A1%E6%98%8E%E6%BD%98%E9%95%BF%E6%B1%9F%E5%B0%8F%E5%93%81%E7%AB%8B%E6%84%8F%23&Refer=top) `1.5M 🔥`
 1. [潘长江 我也不知道说什么](https://s.weibo.com/weibo?q=%E6%BD%98%E9%95%BF%E6%B1%9F%20%E6%88%91%E4%B9%9F%E4%B8%8D%E7%9F%A5%E9%81%93%E8%AF%B4%E4%BB%80%E4%B9%88&Refer=top) `1.4M 🔥`
-1. [中国影史票房前五全是国产片](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%BD%B1%E5%8F%B2%E7%A5%A8%E6%88%BF%E5%89%8D%E4%BA%94%E5%85%A8%E6%98%AF%E5%9B%BD%E4%BA%A7%E7%89%87%23&Refer=top) `1.4M 🔥`
 1. [颜如晶淘汰](https://s.weibo.com/weibo?q=%23%E9%A2%9C%E5%A6%82%E6%99%B6%E6%B7%98%E6%B1%B0%23&Refer=top) `1.3M 🔥`
 1. [苏妙玲十年后重回舞台](https://s.weibo.com/weibo?q=%23%E8%8B%8F%E5%A6%99%E7%8E%B2%E5%8D%81%E5%B9%B4%E5%90%8E%E9%87%8D%E5%9B%9E%E8%88%9E%E5%8F%B0%23&Refer=top) `1.2M 🔥`
 1. [袭警罪正式明确](https://s.weibo.com/weibo?q=%23%E8%A2%AD%E8%AD%A6%E7%BD%AA%E6%AD%A3%E5%BC%8F%E6%98%8E%E7%A1%AE%23&Refer=top) `1.2M 🔥`
@@ -54,10 +56,8 @@
 1. [美空袭叙利亚致22人死亡](https://s.weibo.com/weibo?q=%E7%BE%8E%E7%A9%BA%E8%A2%AD%E5%8F%99%E5%88%A9%E4%BA%9A%E8%87%B422%E4%BA%BA%E6%AD%BB%E4%BA%A1&Refer=top) `938.7K 🔥`
 1. [青春有你](https://s.weibo.com/weibo?q=%E9%9D%92%E6%98%A5%E6%9C%89%E4%BD%A0&Refer=top) `932.5K 🔥`
 1. [汪文斌说欧方新疆访问团不应是调查团](https://s.weibo.com/weibo?q=%23%E6%B1%AA%E6%96%87%E6%96%8C%E8%AF%B4%E6%AC%A7%E6%96%B9%E6%96%B0%E7%96%86%E8%AE%BF%E9%97%AE%E5%9B%A2%E4%B8%8D%E5%BA%94%E6%98%AF%E8%B0%83%E6%9F%A5%E5%9B%A2%23&Refer=top) `928.6K 🔥`
-1. [孙楠瘦了好多](https://s.weibo.com/weibo?q=%E5%AD%99%E6%A5%A0%E7%98%A6%E4%BA%86%E5%A5%BD%E5%A4%9A&Refer=top) `923.1K 🔥`
-1. [夫妻齐心炸厨房](https://s.weibo.com/weibo?q=%E5%A4%AB%E5%A6%BB%E9%BD%90%E5%BF%83%E7%82%B8%E5%8E%A8%E6%88%BF&Refer=top) `920.3K 🔥`
 
-数据更新于 2021-02-27 19:58:02
+数据更新于 2021-02-27 20:26:11
 
 <!-- END -->
 
