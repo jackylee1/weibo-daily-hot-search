@@ -57,7 +57,7 @@
 1. [白宫拒绝与邻国分享新冠疫苗](https://s.weibo.com/weibo?q=%E7%99%BD%E5%AE%AB%E6%8B%92%E7%BB%9D%E4%B8%8E%E9%82%BB%E5%9B%BD%E5%88%86%E4%BA%AB%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97&Refer=top) `929.6K 🔥`
 1. [3人篡改核酸检测证明被拘](https://s.weibo.com/weibo?q=%233%E4%BA%BA%E7%AF%A1%E6%94%B9%E6%A0%B8%E9%85%B8%E6%A3%80%E6%B5%8B%E8%AF%81%E6%98%8E%E8%A2%AB%E6%8B%98%23&Refer=top) `907.6K 🔥`
 
-数据更新于 2021-03-02 23:31:45
+数据更新于 2021-03-02 23:42:16
 
 <!-- END -->
 
