@@ -65,4 +65,4 @@
 
 ## 相关项目
 
-- [V2EX 每日热门话题](https://github.com/realLeonardo/v2ex-daily-hot-topic)
+- [V2EX 每日热门话题](https://github.com/boojack/v2ex-daily-hot-topic)
