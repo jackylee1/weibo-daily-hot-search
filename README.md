@@ -19,6 +19,7 @@
 1. [代表建议明星一次吸毒终身禁演](https://s.weibo.com/weibo?q=%23%E4%BB%A3%E8%A1%A8%E5%BB%BA%E8%AE%AE%E6%98%8E%E6%98%9F%E4%B8%80%E6%AC%A1%E5%90%B8%E6%AF%92%E7%BB%88%E8%BA%AB%E7%A6%81%E6%BC%94%23&Refer=top) `2.6M 🔥`
 1. [蔡少芬录节目时被狗咬伤](https://s.weibo.com/weibo?q=%23%E8%94%A1%E5%B0%91%E8%8A%AC%E5%BD%95%E8%8A%82%E7%9B%AE%E6%97%B6%E8%A2%AB%E7%8B%97%E5%92%AC%E4%BC%A4%23&Refer=top) `2.3M 🔥`
 1. [父亲回应20岁智障女儿嫁55岁男子](https://s.weibo.com/weibo?q=%23%E7%88%B6%E4%BA%B2%E5%9B%9E%E5%BA%9420%E5%B2%81%E6%99%BA%E9%9A%9C%E5%A5%B3%E5%84%BF%E5%AB%8155%E5%B2%81%E7%94%B7%E5%AD%90%23&Refer=top) `2.1M 🔥`
+1. [每3个中国菠萝就有1个来自徐闻](https://s.weibo.com/weibo?q=%23%E6%AF%8F3%E4%B8%AA%E4%B8%AD%E5%9B%BD%E8%8F%A0%E8%90%9D%E5%B0%B1%E6%9C%891%E4%B8%AA%E6%9D%A5%E8%87%AA%E5%BE%90%E9%97%BB%23&Refer=top) `2.0M 🔥`
 1. [李子柒不担心被同质博主取代](https://s.weibo.com/weibo?q=%E6%9D%8E%E5%AD%90%E6%9F%92%E4%B8%8D%E6%8B%85%E5%BF%83%E8%A2%AB%E5%90%8C%E8%B4%A8%E5%8D%9A%E4%B8%BB%E5%8F%96%E4%BB%A3&Refer=top) `1.9M 🔥`
 1. [吴孟达追思会取消](https://s.weibo.com/weibo?q=%E5%90%B4%E5%AD%9F%E8%BE%BE%E8%BF%BD%E6%80%9D%E4%BC%9A%E5%8F%96%E6%B6%88&Refer=top) `1.9M 🔥`
 1. [嗯哼被送外号小李现](https://s.weibo.com/weibo?q=%23%E5%97%AF%E5%93%BC%E8%A2%AB%E9%80%81%E5%A4%96%E5%8F%B7%E5%B0%8F%E6%9D%8E%E7%8E%B0%23&Refer=top) `1.9M 🔥`
@@ -55,9 +56,8 @@
 1. [邓超 我唱卡拉ok退步了](https://s.weibo.com/weibo?q=%E9%82%93%E8%B6%85%20%E6%88%91%E5%94%B1%E5%8D%A1%E6%8B%89ok%E9%80%80%E6%AD%A5%E4%BA%86&Refer=top) `788.7K 🔥`
 1. [大妈5000块买秋名山车神老司机证](https://s.weibo.com/weibo?q=%E5%A4%A7%E5%A6%885000%E5%9D%97%E4%B9%B0%E7%A7%8B%E5%90%8D%E5%B1%B1%E8%BD%A6%E7%A5%9E%E8%80%81%E5%8F%B8%E6%9C%BA%E8%AF%81&Refer=top) `786.9K 🔥`
 1. [教资面试成绩](https://s.weibo.com/weibo?q=%23%E6%95%99%E8%B5%84%E9%9D%A2%E8%AF%95%E6%88%90%E7%BB%A9%23&Refer=top) `777.4K 🔥`
-1. [全球近10%人口具有新冠病毒抗体](https://s.weibo.com/weibo?q=%E5%85%A8%E7%90%83%E8%BF%9110%25%E4%BA%BA%E5%8F%A3%E5%85%B7%E6%9C%89%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E6%8A%97%E4%BD%93&Refer=top) `772.3K 🔥`
 
-数据更新于 2021-03-02 18:58:41
+数据更新于 2021-03-02 19:18:18
 
 <!-- END -->
 
