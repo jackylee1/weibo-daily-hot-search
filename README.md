@@ -55,9 +55,9 @@
 1. [凤梨](https://s.weibo.com/weibo?q=%E5%87%A4%E6%A2%A8&Refer=top) `108.5K 🔥`
 1. [沈梓捷绝杀](https://s.weibo.com/weibo?q=%E6%B2%88%E6%A2%93%E6%8D%B7%E7%BB%9D%E6%9D%80&Refer=top) `103.3K 🔥`
 1. [爱的理想生活](https://s.weibo.com/weibo?q=%E7%88%B1%E7%9A%84%E7%90%86%E6%83%B3%E7%94%9F%E6%B4%BB&Refer=top) `81.3K 🔥`
-1. [暴风眼](https://s.weibo.com/weibo?q=%E6%9A%B4%E9%A3%8E%E7%9C%BC&Refer=top) `68.2K 🔥`
+1. [CBA](https://s.weibo.com/weibo?q=CBA&Refer=top) `73.8K 🔥`
 
-数据更新于 2021-03-03 06:33:55
+数据更新于 2021-03-03 06:50:11
 
 <!-- END -->
 
