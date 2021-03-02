@@ -9,7 +9,7 @@
 1. [宋轶道歉](https://s.weibo.com/weibo?q=%E5%AE%8B%E8%BD%B6%E9%81%93%E6%AD%89&Refer=top) `4.8M 🔥`
 1. [鞠婧祎把水洒到了吴宣仪裙子上](https://s.weibo.com/weibo?q=%E9%9E%A0%E5%A9%A7%E7%A5%8E%E6%8A%8A%E6%B0%B4%E6%B4%92%E5%88%B0%E4%BA%86%E5%90%B4%E5%AE%A3%E4%BB%AA%E8%A3%99%E5%AD%90%E4%B8%8A&Refer=top) `3.1M 🔥`
 1. [代表建议明星一次吸毒终身禁演](https://s.weibo.com/weibo?q=%23%E4%BB%A3%E8%A1%A8%E5%BB%BA%E8%AE%AE%E6%98%8E%E6%98%9F%E4%B8%80%E6%AC%A1%E5%90%B8%E6%AF%92%E7%BB%88%E8%BA%AB%E7%A6%81%E6%BC%94%23&Refer=top) `2.6M 🔥`
-1. [全球五分之一的人听力受损](https://s.weibo.com/weibo?q=%23%E5%85%A8%E7%90%83%E4%BA%94%E5%88%86%E4%B9%8B%E4%B8%80%E7%9A%84%E4%BA%BA%E5%90%AC%E5%8A%9B%E5%8F%97%E6%8D%9F%23&Refer=top) `1.9M 🔥`
+1. [全球五分之一的人听力受损](https://s.weibo.com/weibo?q=%23%E5%85%A8%E7%90%83%E4%BA%94%E5%88%86%E4%B9%8B%E4%B8%80%E7%9A%84%E4%BA%BA%E5%90%AC%E5%8A%9B%E5%8F%97%E6%8D%9F%23&Refer=top) `2.4M 🔥`
 1. [吴孟达追思会取消](https://s.weibo.com/weibo?q=%E5%90%B4%E5%AD%9F%E8%BE%BE%E8%BF%BD%E6%80%9D%E4%BC%9A%E5%8F%96%E6%B6%88&Refer=top) `1.9M 🔥`
 1. [嗯哼被送外号小李现](https://s.weibo.com/weibo?q=%23%E5%97%AF%E5%93%BC%E8%A2%AB%E9%80%81%E5%A4%96%E5%8F%B7%E5%B0%8F%E6%9D%8E%E7%8E%B0%23&Refer=top) `1.9M 🔥`
 1. [李子柒不担心被同质博主取代](https://s.weibo.com/weibo?q=%E6%9D%8E%E5%AD%90%E6%9F%92%E4%B8%8D%E6%8B%85%E5%BF%83%E8%A2%AB%E5%90%8C%E8%B4%A8%E5%8D%9A%E4%B8%BB%E5%8F%96%E4%BB%A3&Refer=top) `1.9M 🔥`
@@ -50,14 +50,14 @@
 1. [背弟弟下山的凉山男孩开启新生活](https://s.weibo.com/weibo?q=%23%E8%83%8C%E5%BC%9F%E5%BC%9F%E4%B8%8B%E5%B1%B1%E7%9A%84%E5%87%89%E5%B1%B1%E7%94%B7%E5%AD%A9%E5%BC%80%E5%90%AF%E6%96%B0%E7%94%9F%E6%B4%BB%23&Refer=top) `429.2K 🔥`
 1. [snkrs](https://s.weibo.com/weibo?q=snkrs&Refer=top) `420.0K 🔥`
 1. [朴彩英solo预告照](https://s.weibo.com/weibo?q=%23%E6%9C%B4%E5%BD%A9%E8%8B%B1solo%E9%A2%84%E5%91%8A%E7%85%A7%23&Refer=top) `416.4K 🔥`
-1. [教资面试成绩](https://s.weibo.com/weibo?q=%E6%95%99%E8%B5%84%E9%9D%A2%E8%AF%95%E6%88%90%E7%BB%A9&Refer=top) `404.2K 🔥`
+1. [父亲带儿子用玩具拍数百集大片](https://s.weibo.com/weibo?q=%23%E7%88%B6%E4%BA%B2%E5%B8%A6%E5%84%BF%E5%AD%90%E7%94%A8%E7%8E%A9%E5%85%B7%E6%8B%8D%E6%95%B0%E7%99%BE%E9%9B%86%E5%A4%A7%E7%89%87%23&Refer=top) `408.1K 🔥`
+1. [教资面试成绩](https://s.weibo.com/weibo?q=%E6%95%99%E8%B5%84%E9%9D%A2%E8%AF%95%E6%88%90%E7%BB%A9&Refer=top) `405.6K 🔥`
 1. [龚俊演技](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E6%BC%94%E6%8A%80%23&Refer=top) `394.9K 🔥`
 1. [周柯宇抽烟](https://s.weibo.com/weibo?q=%23%E5%91%A8%E6%9F%AF%E5%AE%87%E6%8A%BD%E7%83%9F%23&Refer=top) `394.8K 🔥`
 1. [海底捞2020年净利润下降约90%](https://s.weibo.com/weibo?q=%E6%B5%B7%E5%BA%95%E6%8D%9E2020%E5%B9%B4%E5%87%80%E5%88%A9%E6%B6%A6%E4%B8%8B%E9%99%8D%E7%BA%A690%25&Refer=top) `386.0K 🔥`
 1. [不愿跟父母交流的原因](https://s.weibo.com/weibo?q=%23%E4%B8%8D%E6%84%BF%E8%B7%9F%E7%88%B6%E6%AF%8D%E4%BA%A4%E6%B5%81%E7%9A%84%E5%8E%9F%E5%9B%A0%23&Refer=top) `385.8K 🔥`
-1. [郭艾伦说票王就是漂亮之王](https://s.weibo.com/weibo?q=%E9%83%AD%E8%89%BE%E4%BC%A6%E8%AF%B4%E7%A5%A8%E7%8E%8B%E5%B0%B1%E6%98%AF%E6%BC%82%E4%BA%AE%E4%B9%8B%E7%8E%8B&Refer=top) `376.2K 🔥`
 
-数据更新于 2021-03-02 10:38:42
+数据更新于 2021-03-02 10:49:31
 
 <!-- END -->
 
