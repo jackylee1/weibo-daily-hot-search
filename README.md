@@ -57,7 +57,7 @@
 1. [美国加州严重车祸至少15人死亡](https://s.weibo.com/weibo?q=%E7%BE%8E%E5%9B%BD%E5%8A%A0%E5%B7%9E%E4%B8%A5%E9%87%8D%E8%BD%A6%E7%A5%B8%E8%87%B3%E5%B0%9115%E4%BA%BA%E6%AD%BB%E4%BA%A1&Refer=top) `439.7K 🔥`
 1. [李彦宏建议互联网平台数据开放共享](https://s.weibo.com/weibo?q=%E6%9D%8E%E5%BD%A6%E5%AE%8F%E5%BB%BA%E8%AE%AE%E4%BA%92%E8%81%94%E7%BD%91%E5%B9%B3%E5%8F%B0%E6%95%B0%E6%8D%AE%E5%BC%80%E6%94%BE%E5%85%B1%E4%BA%AB&Refer=top) `429.3K 🔥`
 
-数据更新于 2021-03-03 13:36:39
+数据更新于 2021-03-03 13:46:45
 
 <!-- END -->
 
