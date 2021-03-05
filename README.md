@@ -22,9 +22,9 @@
 1. [建议将生育成本全面纳入社保](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E5%B0%86%E7%94%9F%E8%82%B2%E6%88%90%E6%9C%AC%E5%85%A8%E9%9D%A2%E7%BA%B3%E5%85%A5%E7%A4%BE%E4%BF%9D%23&Refer=top) `2.2M 🔥`
 1. [杨紫肩颈线](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E7%B4%AB%E8%82%A9%E9%A2%88%E7%BA%BF%23&Refer=top) `2.2M 🔥`
 1. [新西兰地震引发海啸](https://s.weibo.com/weibo?q=%23%E6%96%B0%E8%A5%BF%E5%85%B0%E5%9C%B0%E9%9C%87%E5%BC%95%E5%8F%91%E6%B5%B7%E5%95%B8%23&Refer=top) `2.2M 🔥`
+1. [建议新生儿指纹采集为身份登记必备流程](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E6%96%B0%E7%94%9F%E5%84%BF%E6%8C%87%E7%BA%B9%E9%87%87%E9%9B%86%E4%B8%BA%E8%BA%AB%E4%BB%BD%E7%99%BB%E8%AE%B0%E5%BF%85%E5%A4%87%E6%B5%81%E7%A8%8B%23&Refer=top) `2.0M 🔥`
 1. [俞敏洪建议将儿童孤独症筛查入医保](https://s.weibo.com/weibo?q=%23%E4%BF%9E%E6%95%8F%E6%B4%AA%E5%BB%BA%E8%AE%AE%E5%B0%86%E5%84%BF%E7%AB%A5%E5%AD%A4%E7%8B%AC%E7%97%87%E7%AD%9B%E6%9F%A5%E5%85%A5%E5%8C%BB%E4%BF%9D%23&Refer=top) `2.0M 🔥`
 1. [吕一 可以自己为自己赴汤蹈火](https://s.weibo.com/weibo?q=%E5%90%95%E4%B8%80%20%E5%8F%AF%E4%BB%A5%E8%87%AA%E5%B7%B1%E4%B8%BA%E8%87%AA%E5%B7%B1%E8%B5%B4%E6%B1%A4%E8%B9%88%E7%81%AB&Refer=top) `2.0M 🔥`
-1. [建议新生儿指纹采集为身份登记必备流程](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E6%96%B0%E7%94%9F%E5%84%BF%E6%8C%87%E7%BA%B9%E9%87%87%E9%9B%86%E4%B8%BA%E8%BA%AB%E4%BB%BD%E7%99%BB%E8%AE%B0%E5%BF%85%E5%A4%87%E6%B5%81%E7%A8%8B%23&Refer=top) `2.0M 🔥`
 1. [今年GDP目标增长6%以上](https://s.weibo.com/weibo?q=%23%E4%BB%8A%E5%B9%B4GDP%E7%9B%AE%E6%A0%87%E5%A2%9E%E9%95%BF6%25%E4%BB%A5%E4%B8%8A%23&Refer=top) `2.0M 🔥`
 1. [曾黎好美](https://s.weibo.com/weibo?q=%E6%9B%BE%E9%BB%8E%E5%A5%BD%E7%BE%8E&Refer=top) `1.9M 🔥`
 1. [乘风破浪的姐姐三公](https://s.weibo.com/weibo?q=%E4%B9%98%E9%A3%8E%E7%A0%B4%E6%B5%AA%E7%9A%84%E5%A7%90%E5%A7%90%E4%B8%89%E5%85%AC&Refer=top) `1.8M 🔥`
@@ -44,6 +44,7 @@
 1. [黄子韬加入GK电竞](https://s.weibo.com/weibo?q=%23%E9%BB%84%E5%AD%90%E9%9F%AC%E5%8A%A0%E5%85%A5GK%E7%94%B5%E7%AB%9E%23&Refer=top) `1.5M 🔥`
 1. [交出一份可以载入史册的答卷](https://s.weibo.com/weibo?q=%23%E4%BA%A4%E5%87%BA%E4%B8%80%E4%BB%BD%E5%8F%AF%E4%BB%A5%E8%BD%BD%E5%85%A5%E5%8F%B2%E5%86%8C%E7%9A%84%E7%AD%94%E5%8D%B7%23&Refer=top) `1.4M 🔥`
 1. [陈小纭发长文回顾浪姐2](https://s.weibo.com/weibo?q=%23%E9%99%88%E5%B0%8F%E7%BA%AD%E5%8F%91%E9%95%BF%E6%96%87%E5%9B%9E%E9%A1%BE%E6%B5%AA%E5%A7%902%23&Refer=top) `1.3M 🔥`
+1. [田雨把自己的西装披在倪妮身上](https://s.weibo.com/weibo?q=%23%E7%94%B0%E9%9B%A8%E6%8A%8A%E8%87%AA%E5%B7%B1%E7%9A%84%E8%A5%BF%E8%A3%85%E6%8A%AB%E5%9C%A8%E5%80%AA%E5%A6%AE%E8%BA%AB%E4%B8%8A%23&Refer=top) `1.3M 🔥`
 1. [顶楼](https://s.weibo.com/weibo?q=%E9%A1%B6%E6%A5%BC&Refer=top) `1.2M 🔥`
 1. [马化腾建议共享单车社区团购纳入监管](https://s.weibo.com/weibo?q=%E9%A9%AC%E5%8C%96%E8%85%BE%E5%BB%BA%E8%AE%AE%E5%85%B1%E4%BA%AB%E5%8D%95%E8%BD%A6%E7%A4%BE%E5%8C%BA%E5%9B%A2%E8%B4%AD%E7%BA%B3%E5%85%A5%E7%9B%91%E7%AE%A1&Refer=top) `1.2M 🔥`
 1. [惊蛰](https://s.weibo.com/weibo?q=%E6%83%8A%E8%9B%B0&Refer=top) `1.2M 🔥`
@@ -55,9 +56,8 @@
 1. [建议提高无编幼儿教师待遇](https://s.weibo.com/weibo?q=%E5%BB%BA%E8%AE%AE%E6%8F%90%E9%AB%98%E6%97%A0%E7%BC%96%E5%B9%BC%E5%84%BF%E6%95%99%E5%B8%88%E5%BE%85%E9%81%87&Refer=top) `1.1M 🔥`
 1. [广州上海地铁乘车码一码通行](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E4%B8%8A%E6%B5%B7%E5%9C%B0%E9%93%81%E4%B9%98%E8%BD%A6%E7%A0%81%E4%B8%80%E7%A0%81%E9%80%9A%E8%A1%8C%23&Refer=top) `1.1M 🔥`
 1. [小规模纳税人增值税起征点](https://s.weibo.com/weibo?q=%E5%B0%8F%E8%A7%84%E6%A8%A1%E7%BA%B3%E7%A8%8E%E4%BA%BA%E5%A2%9E%E5%80%BC%E7%A8%8E%E8%B5%B7%E5%BE%81%E7%82%B9&Refer=top) `1.1M 🔥`
-1. [赘婿](https://s.weibo.com/weibo?q=%E8%B5%98%E5%A9%BF&Refer=top) `1.0M 🔥`
 
-数据更新于 2021-03-05 21:45:16
+数据更新于 2021-03-05 21:51:11
 
 <!-- END -->
 
