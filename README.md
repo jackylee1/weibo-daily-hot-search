@@ -57,7 +57,7 @@
 1. [韩国古寺遭僧人纵火](https://s.weibo.com/weibo?q=%E9%9F%A9%E5%9B%BD%E5%8F%A4%E5%AF%BA%E9%81%AD%E5%83%A7%E4%BA%BA%E7%BA%B5%E7%81%AB&Refer=top) `1.3M 🔥`
 1. [成都一幼儿园给孩子吃全素食](https://s.weibo.com/weibo?q=%E6%88%90%E9%83%BD%E4%B8%80%E5%B9%BC%E5%84%BF%E5%9B%AD%E7%BB%99%E5%AD%A9%E5%AD%90%E5%90%83%E5%85%A8%E7%B4%A0%E9%A3%9F&Refer=top) `1.3M 🔥`
 
-数据更新于 2021-03-06 23:21:55
+数据更新于 2021-03-06 23:39:04
 
 <!-- END -->
 
