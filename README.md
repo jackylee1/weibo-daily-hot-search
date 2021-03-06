@@ -7,10 +7,11 @@
 <!-- BEGIN -->
 
 1. [建议9月30日定为成人节](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE9%E6%9C%8830%E6%97%A5%E5%AE%9A%E4%B8%BA%E6%88%90%E4%BA%BA%E8%8A%82%23&Refer=top) `4.6M 🔥`
+1. [建议调整或取消音乐类考级](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E8%B0%83%E6%95%B4%E6%88%96%E5%8F%96%E6%B6%88%E9%9F%B3%E4%B9%90%E7%B1%BB%E8%80%83%E7%BA%A7%23&Refer=top) `3.6M 🔥`
 1. [建议明确离婚抢夺子女行为司法解释](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E6%98%8E%E7%A1%AE%E7%A6%BB%E5%A9%9A%E6%8A%A2%E5%A4%BA%E5%AD%90%E5%A5%B3%E8%A1%8C%E4%B8%BA%E5%8F%B8%E6%B3%95%E8%A7%A3%E9%87%8A%23&Refer=top) `3.6M 🔥`
+1. [宋祖儿工作室道歉](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E7%A5%96%E5%84%BF%E5%B7%A5%E4%BD%9C%E5%AE%A4%E9%81%93%E6%AD%89%23&Refer=top) `3.6M 🔥`
 1. [老人去世前点外卖感谢公交司机](https://s.weibo.com/weibo?q=%23%E8%80%81%E4%BA%BA%E5%8E%BB%E4%B8%96%E5%89%8D%E7%82%B9%E5%A4%96%E5%8D%96%E6%84%9F%E8%B0%A2%E5%85%AC%E4%BA%A4%E5%8F%B8%E6%9C%BA%23&Refer=top) `3.3M 🔥`
 1. [韩美娟当着邵明明面说我想吐](https://s.weibo.com/weibo?q=%23%E9%9F%A9%E7%BE%8E%E5%A8%9F%E5%BD%93%E7%9D%80%E9%82%B5%E6%98%8E%E6%98%8E%E9%9D%A2%E8%AF%B4%E6%88%91%E6%83%B3%E5%90%90%23&Refer=top) `3.3M 🔥`
-1. [建议调整或取消音乐类考级](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E8%B0%83%E6%95%B4%E6%88%96%E5%8F%96%E6%B6%88%E9%9F%B3%E4%B9%90%E7%B1%BB%E8%80%83%E7%BA%A7%23&Refer=top) `3.2M 🔥`
 1. [yummy组输了](https://s.weibo.com/weibo?q=yummy%E7%BB%84%E8%BE%93%E4%BA%86&Refer=top) `3.1M 🔥`
 1. [建议南方试点供暖](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E5%8D%97%E6%96%B9%E8%AF%95%E7%82%B9%E4%BE%9B%E6%9A%96%23&Refer=top) `2.8M 🔥`
 1. [建议应届生身份保留延长至5年](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E5%BA%94%E5%B1%8A%E7%94%9F%E8%BA%AB%E4%BB%BD%E4%BF%9D%E7%95%99%E5%BB%B6%E9%95%BF%E8%87%B35%E5%B9%B4%23&Refer=top) `2.7M 🔥`
@@ -20,7 +21,6 @@
 1. [袁姗姗姐姐2仅自己可见微博](https://s.weibo.com/weibo?q=%23%E8%A2%81%E5%A7%97%E5%A7%97%E5%A7%90%E5%A7%902%E4%BB%85%E8%87%AA%E5%B7%B1%E5%8F%AF%E8%A7%81%E5%BE%AE%E5%8D%9A%23&Refer=top) `2.6M 🔥`
 1. [你好李焕英票房破50亿](https://s.weibo.com/weibo?q=%E4%BD%A0%E5%A5%BD%E6%9D%8E%E7%84%95%E8%8B%B1%E7%A5%A8%E6%88%BF%E7%A0%B450%E4%BA%BF&Refer=top) `2.6M 🔥`
 1. [10个年轻人关心的热点有答案了](https://s.weibo.com/weibo?q=%2310%E4%B8%AA%E5%B9%B4%E8%BD%BB%E4%BA%BA%E5%85%B3%E5%BF%83%E7%9A%84%E7%83%AD%E7%82%B9%E6%9C%89%E7%AD%94%E6%A1%88%E4%BA%86%23&Refer=top) `2.6M 🔥`
-1. [宋祖儿工作室道歉](https://s.weibo.com/weibo?q=%E5%AE%8B%E7%A5%96%E5%84%BF%E5%B7%A5%E4%BD%9C%E5%AE%A4%E9%81%93%E6%AD%89&Refer=top) `2.5M 🔥`
 1. [迟尚斌去世](https://s.weibo.com/weibo?q=%23%E8%BF%9F%E5%B0%9A%E6%96%8C%E5%8E%BB%E4%B8%96%23&Refer=top) `2.5M 🔥`
 1. [建议把视力纳入学生综合素质考核](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E6%8A%8A%E8%A7%86%E5%8A%9B%E7%BA%B3%E5%85%A5%E5%AD%A6%E7%94%9F%E7%BB%BC%E5%90%88%E7%B4%A0%E8%B4%A8%E8%80%83%E6%A0%B8%23&Refer=top) `2.5M 🔥`
 1. [贾玲 谢谢大家认识了李焕英](https://s.weibo.com/weibo?q=%E8%B4%BE%E7%8E%B2%20%E8%B0%A2%E8%B0%A2%E5%A4%A7%E5%AE%B6%E8%AE%A4%E8%AF%86%E4%BA%86%E6%9D%8E%E7%84%95%E8%8B%B1&Refer=top) `2.1M 🔥`
@@ -55,9 +55,9 @@
 1. [韩国古寺遭僧人纵火](https://s.weibo.com/weibo?q=%E9%9F%A9%E5%9B%BD%E5%8F%A4%E5%AF%BA%E9%81%AD%E5%83%A7%E4%BA%BA%E7%BA%B5%E7%81%AB&Refer=top) `1.3M 🔥`
 1. [成都一幼儿园给孩子吃全素食](https://s.weibo.com/weibo?q=%E6%88%90%E9%83%BD%E4%B8%80%E5%B9%BC%E5%84%BF%E5%9B%AD%E7%BB%99%E5%AD%A9%E5%AD%90%E5%90%83%E5%85%A8%E7%B4%A0%E9%A3%9F&Refer=top) `1.3M 🔥`
 1. [拉面哥](https://s.weibo.com/weibo?q=%E6%8B%89%E9%9D%A2%E5%93%A5&Refer=top) `1.2M 🔥`
-1. [建议缩短教育学制](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E7%BC%A9%E7%9F%AD%E6%95%99%E8%82%B2%E5%AD%A6%E5%88%B6%23&Refer=top) `1.2M 🔥`
+1. [你好李焕英总票房超越哪吒](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E5%A5%BD%E6%9D%8E%E7%84%95%E8%8B%B1%E6%80%BB%E7%A5%A8%E6%88%BF%E8%B6%85%E8%B6%8A%E5%93%AA%E5%90%92%23&Refer=top) `1.2M 🔥`
 
-数据更新于 2021-03-06 21:55:09
+数据更新于 2021-03-06 22:03:44
 
 <!-- END -->
 
