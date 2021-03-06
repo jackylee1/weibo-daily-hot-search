@@ -6,7 +6,7 @@
 
 <!-- BEGIN -->
 
-1. [建议9月30日定为成人节](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE9%E6%9C%8830%E6%97%A5%E5%AE%9A%E4%B8%BA%E6%88%90%E4%BA%BA%E8%8A%82%23&Refer=top) `3.5M 🔥`
+1. [建议9月30日定为成人节](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE9%E6%9C%8830%E6%97%A5%E5%AE%9A%E4%B8%BA%E6%88%90%E4%BA%BA%E8%8A%82%23&Refer=top) `4.3M 🔥`
 1. [老人去世前点外卖感谢公交司机](https://s.weibo.com/weibo?q=%23%E8%80%81%E4%BA%BA%E5%8E%BB%E4%B8%96%E5%89%8D%E7%82%B9%E5%A4%96%E5%8D%96%E6%84%9F%E8%B0%A2%E5%85%AC%E4%BA%A4%E5%8F%B8%E6%9C%BA%23&Refer=top) `3.3M 🔥`
 1. [建议南方试点供暖](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E5%8D%97%E6%96%B9%E8%AF%95%E7%82%B9%E4%BE%9B%E6%9A%96%23&Refer=top) `2.8M 🔥`
 1. [建议应届生身份保留延长至5年](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E5%BA%94%E5%B1%8A%E7%94%9F%E8%BA%AB%E4%BB%BD%E4%BF%9D%E7%95%99%E5%BB%B6%E9%95%BF%E8%87%B35%E5%B9%B4%23&Refer=top) `2.7M 🔥`
@@ -57,7 +57,7 @@
 1. [张哲瀚曾拿过一杆进洞证书](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%93%B2%E7%80%9A%E6%9B%BE%E6%8B%BF%E8%BF%87%E4%B8%80%E6%9D%86%E8%BF%9B%E6%B4%9E%E8%AF%81%E4%B9%A6%23&Refer=top) `1.1M 🔥`
 1. [林青霞接种国产新冠疫苗](https://s.weibo.com/weibo?q=%E6%9E%97%E9%9D%92%E9%9C%9E%E6%8E%A5%E7%A7%8D%E5%9B%BD%E4%BA%A7%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97&Refer=top) `1.0M 🔥`
 
-数据更新于 2021-03-06 19:53:02
+数据更新于 2021-03-06 19:58:56
 
 <!-- END -->
 
