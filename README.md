@@ -55,9 +55,9 @@
 1. [成都一幼儿园给孩子吃全素食](https://s.weibo.com/weibo?q=%E6%88%90%E9%83%BD%E4%B8%80%E5%B9%BC%E5%84%BF%E5%9B%AD%E7%BB%99%E5%AD%A9%E5%AD%90%E5%90%83%E5%85%A8%E7%B4%A0%E9%A3%9F&Refer=top) `1.3M 🔥`
 1. [拉面哥](https://s.weibo.com/weibo?q=%E6%8B%89%E9%9D%A2%E5%93%A5&Refer=top) `1.2M 🔥`
 1. [建议缩短教育学制](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E7%BC%A9%E7%9F%AD%E6%95%99%E8%82%B2%E5%AD%A6%E5%88%B6%23&Refer=top) `1.2M 🔥`
-1. [武契奇冒雨第3次亲自迎接中国疫苗](https://s.weibo.com/weibo?q=%23%E6%AD%A6%E5%A5%91%E5%A5%87%E5%86%92%E9%9B%A8%E7%AC%AC3%E6%AC%A1%E4%BA%B2%E8%87%AA%E8%BF%8E%E6%8E%A5%E4%B8%AD%E5%9B%BD%E7%96%AB%E8%8B%97%23&Refer=top) `1.1M 🔥`
+1. [宋祖儿工作室道歉](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E7%A5%96%E5%84%BF%E5%B7%A5%E4%BD%9C%E5%AE%A4%E9%81%93%E6%AD%89%23&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-03-06 21:43:29
+数据更新于 2021-03-06 21:49:16
 
 <!-- END -->
 
