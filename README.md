@@ -41,9 +41,11 @@
 1. [陈飞宇emoji解读](https://s.weibo.com/weibo?q=%23%E9%99%88%E9%A3%9E%E5%AE%87emoji%E8%A7%A3%E8%AF%BB%23&Refer=top) `757.7K 🔥`
 1. [锦心似玉](https://s.weibo.com/weibo?q=%23%E9%94%A6%E5%BF%83%E4%BC%BC%E7%8E%89%23&Refer=top) `756.3K 🔥`
 1. [代表建议适当延长节假日拉动消费](https://s.weibo.com/weibo?q=%23%E4%BB%A3%E8%A1%A8%E5%BB%BA%E8%AE%AE%E9%80%82%E5%BD%93%E5%BB%B6%E9%95%BF%E8%8A%82%E5%81%87%E6%97%A5%E6%8B%89%E5%8A%A8%E6%B6%88%E8%B4%B9%23&Refer=top) `752.6K 🔥`
+1. [建议男性陪产假不低于20天](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E7%94%B7%E6%80%A7%E9%99%AA%E4%BA%A7%E5%81%87%E4%B8%8D%E4%BD%8E%E4%BA%8E20%E5%A4%A9%23&Refer=top) `746.2K 🔥`
 1. [为什么女老板越来越多](https://s.weibo.com/weibo?q=%23%E4%B8%BA%E4%BB%80%E4%B9%88%E5%A5%B3%E8%80%81%E6%9D%BF%E8%B6%8A%E6%9D%A5%E8%B6%8A%E5%A4%9A%23&Refer=top) `739.5K 🔥`
 1. [NBA总裁拒绝更换联盟Logo](https://s.weibo.com/weibo?q=NBA%E6%80%BB%E8%A3%81%E6%8B%92%E7%BB%9D%E6%9B%B4%E6%8D%A2%E8%81%94%E7%9B%9FLogo&Refer=top) `722.4K 🔥`
 1. [代表建议将肿瘤筛查纳入医保](https://s.weibo.com/weibo?q=%23%E4%BB%A3%E8%A1%A8%E5%BB%BA%E8%AE%AE%E5%B0%86%E8%82%BF%E7%98%A4%E7%AD%9B%E6%9F%A5%E7%BA%B3%E5%85%A5%E5%8C%BB%E4%BF%9D%23&Refer=top) `721.1K 🔥`
+1. [刘亦菲春日紫樱蛋糕裙](https://s.weibo.com/weibo?q=%23%E5%88%98%E4%BA%A6%E8%8F%B2%E6%98%A5%E6%97%A5%E7%B4%AB%E6%A8%B1%E8%9B%8B%E7%B3%95%E8%A3%99%23&Refer=top) `718.9K 🔥`
 1. [拉萨舰入列北海舰队](https://s.weibo.com/weibo?q=%E6%8B%89%E8%90%A8%E8%88%B0%E5%85%A5%E5%88%97%E5%8C%97%E6%B5%B7%E8%88%B0%E9%98%9F&Refer=top) `710.4K 🔥`
 1. [王琳口是心非](https://s.weibo.com/weibo?q=%E7%8E%8B%E7%90%B3%E5%8F%A3%E6%98%AF%E5%BF%83%E9%9D%9E&Refer=top) `707.5K 🔥`
 1. [听过最凡尔赛的名字](https://s.weibo.com/weibo?q=%23%E5%90%AC%E8%BF%87%E6%9C%80%E5%87%A1%E5%B0%94%E8%B5%9B%E7%9A%84%E5%90%8D%E5%AD%97%23&Refer=top) `703.6K 🔥`
@@ -54,10 +56,8 @@
 1. [马嘉祺 bg感](https://s.weibo.com/weibo?q=%E9%A9%AC%E5%98%89%E7%A5%BA%20bg%E6%84%9F&Refer=top) `665.3K 🔥`
 1. [章子怡告别我就是演员](https://s.weibo.com/weibo?q=%E7%AB%A0%E5%AD%90%E6%80%A1%E5%91%8A%E5%88%AB%E6%88%91%E5%B0%B1%E6%98%AF%E6%BC%94%E5%91%98&Refer=top) `658.3K 🔥`
 1. [全国政协十三届四次会议委员通道](https://s.weibo.com/weibo?q=%23%E5%85%A8%E5%9B%BD%E6%94%BF%E5%8D%8F%E5%8D%81%E4%B8%89%E5%B1%8A%E5%9B%9B%E6%AC%A1%E4%BC%9A%E8%AE%AE%E5%A7%94%E5%91%98%E9%80%9A%E9%81%93%23&Refer=top) `653.2K 🔥`
-1. [手机秒表竟开了441天](https://s.weibo.com/weibo?q=%23%E6%89%8B%E6%9C%BA%E7%A7%92%E8%A1%A8%E7%AB%9F%E5%BC%80%E4%BA%86441%E5%A4%A9%23&Refer=top) `650.5K 🔥`
-1. [将小学缩短至5年你支持吗](https://s.weibo.com/weibo?q=%23%E5%B0%86%E5%B0%8F%E5%AD%A6%E7%BC%A9%E7%9F%AD%E8%87%B35%E5%B9%B4%E4%BD%A0%E6%94%AF%E6%8C%81%E5%90%97%23&Refer=top) `648.3K 🔥`
 
-数据更新于 2021-03-07 15:51:42
+数据更新于 2021-03-07 15:57:32
 
 <!-- END -->
 
