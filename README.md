@@ -6,21 +6,22 @@
 
 <!-- BEGIN -->
 
+1. [建议9年义务教育延至12年](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE9%E5%B9%B4%E4%B9%89%E5%8A%A1%E6%95%99%E8%82%B2%E5%BB%B6%E8%87%B312%E5%B9%B4%23&Refer=top) `2.3M 🔥`
 1. [建议明确中学性教育课时安排](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E6%98%8E%E7%A1%AE%E4%B8%AD%E5%AD%A6%E6%80%A7%E6%95%99%E8%82%B2%E8%AF%BE%E6%97%B6%E5%AE%89%E6%8E%92%23&Refer=top) `2.3M 🔥`
 1. [建议对996工作制进行监管](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E5%AF%B9996%E5%B7%A5%E4%BD%9C%E5%88%B6%E8%BF%9B%E8%A1%8C%E7%9B%91%E7%AE%A1%23&Refer=top) `2.2M 🔥`
+1. [今年五一连放5天假](https://s.weibo.com/weibo?q=%23%E4%BB%8A%E5%B9%B4%E4%BA%94%E4%B8%80%E8%BF%9E%E6%94%BE5%E5%A4%A9%E5%81%87%23&Refer=top) `2.2M 🔥`
 1. [建议取消1至3年级家庭作业](https://s.weibo.com/weibo?q=%E5%BB%BA%E8%AE%AE%E5%8F%96%E6%B6%881%E8%87%B33%E5%B9%B4%E7%BA%A7%E5%AE%B6%E5%BA%AD%E4%BD%9C%E4%B8%9A&Refer=top) `2.2M 🔥`
 1. [建议劣迹艺人惩戒期满后可复播作品](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E5%8A%A3%E8%BF%B9%E8%89%BA%E4%BA%BA%E6%83%A9%E6%88%92%E6%9C%9F%E6%BB%A1%E5%90%8E%E5%8F%AF%E5%A4%8D%E6%92%AD%E4%BD%9C%E5%93%81%23&Refer=top) `2.2M 🔥`
-1. [今年五一连放5天假](https://s.weibo.com/weibo?q=%23%E4%BB%8A%E5%B9%B4%E4%BA%94%E4%B8%80%E8%BF%9E%E6%94%BE5%E5%A4%A9%E5%81%87%23&Refer=top) `2.1M 🔥`
 1. [建议适当放宽小学新生入学年龄](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E9%80%82%E5%BD%93%E6%94%BE%E5%AE%BD%E5%B0%8F%E5%AD%A6%E6%96%B0%E7%94%9F%E5%85%A5%E5%AD%A6%E5%B9%B4%E9%BE%84%23&Refer=top) `1.7M 🔥`
 1. [支付宝 给绩优基金经理更长时间运作](https://s.weibo.com/weibo?q=%E6%94%AF%E4%BB%98%E5%AE%9D%20%E7%BB%99%E7%BB%A9%E4%BC%98%E5%9F%BA%E9%87%91%E7%BB%8F%E7%90%86%E6%9B%B4%E9%95%BF%E6%97%B6%E9%97%B4%E8%BF%90%E4%BD%9C&Refer=top) `1.7M 🔥`
 1. [建议整顿无底线追星](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E6%95%B4%E9%A1%BF%E6%97%A0%E5%BA%95%E7%BA%BF%E8%BF%BD%E6%98%9F%23&Refer=top) `1.6M 🔥`
-1. [建议9年义务教育延至12年](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE9%E5%B9%B4%E4%B9%89%E5%8A%A1%E6%95%99%E8%82%B2%E5%BB%B6%E8%87%B312%E5%B9%B4%23&Refer=top) `1.6M 🔥`
 1. [建议妇女孕期常规检项目免费](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E5%A6%87%E5%A5%B3%E5%AD%95%E6%9C%9F%E5%B8%B8%E8%A7%84%E6%A3%80%E9%A1%B9%E7%9B%AE%E5%85%8D%E8%B4%B9%23&Refer=top) `1.5M 🔥`
 1. [吴奇隆刘诗诗带儿子出游](https://s.weibo.com/weibo?q=%E5%90%B4%E5%A5%87%E9%9A%86%E5%88%98%E8%AF%97%E8%AF%97%E5%B8%A6%E5%84%BF%E5%AD%90%E5%87%BA%E6%B8%B8&Refer=top) `1.5M 🔥`
 1. [发现未成年人遭受侵害不报告可追刑责](https://s.weibo.com/weibo?q=%23%E5%8F%91%E7%8E%B0%E6%9C%AA%E6%88%90%E5%B9%B4%E4%BA%BA%E9%81%AD%E5%8F%97%E4%BE%B5%E5%AE%B3%E4%B8%8D%E6%8A%A5%E5%91%8A%E5%8F%AF%E8%BF%BD%E5%88%91%E8%B4%A3%23&Refer=top) `1.5M 🔥`
 1. [人大代表回应不建议戴美瞳](https://s.weibo.com/weibo?q=%E4%BA%BA%E5%A4%A7%E4%BB%A3%E8%A1%A8%E5%9B%9E%E5%BA%94%E4%B8%8D%E5%BB%BA%E8%AE%AE%E6%88%B4%E7%BE%8E%E7%9E%B3&Refer=top) `1.5M 🔥`
 1. [飞天小女警真人剧集主演](https://s.weibo.com/weibo?q=%23%E9%A3%9E%E5%A4%A9%E5%B0%8F%E5%A5%B3%E8%AD%A6%E7%9C%9F%E4%BA%BA%E5%89%A7%E9%9B%86%E4%B8%BB%E6%BC%94%23&Refer=top) `1.5M 🔥`
 1. [杭州酒店床品抹布装芯片](https://s.weibo.com/weibo?q=%23%E6%9D%AD%E5%B7%9E%E9%85%92%E5%BA%97%E5%BA%8A%E5%93%81%E6%8A%B9%E5%B8%83%E8%A3%85%E8%8A%AF%E7%89%87%23&Refer=top) `1.5M 🔥`
+1. [冯远征称流量无关演技](https://s.weibo.com/weibo?q=%23%E5%86%AF%E8%BF%9C%E5%BE%81%E7%A7%B0%E6%B5%81%E9%87%8F%E6%97%A0%E5%85%B3%E6%BC%94%E6%8A%80%23&Refer=top) `1.5M 🔥`
 1. [瑞典一火车撞飞公交车](https://s.weibo.com/weibo?q=%23%E7%91%9E%E5%85%B8%E4%B8%80%E7%81%AB%E8%BD%A6%E6%92%9E%E9%A3%9E%E5%85%AC%E4%BA%A4%E8%BD%A6%23&Refer=top) `1.4M 🔥`
 1. [张文宏说今年摘口罩难度很大](https://s.weibo.com/weibo?q=%E5%BC%A0%E6%96%87%E5%AE%8F%E8%AF%B4%E4%BB%8A%E5%B9%B4%E6%91%98%E5%8F%A3%E7%BD%A9%E9%9A%BE%E5%BA%A6%E5%BE%88%E5%A4%A7&Refer=top) `1.4M 🔥`
 1. [建议鼓励城市离退休人员告老还乡](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E9%BC%93%E5%8A%B1%E5%9F%8E%E5%B8%82%E7%A6%BB%E9%80%80%E4%BC%91%E4%BA%BA%E5%91%98%E5%91%8A%E8%80%81%E8%BF%98%E4%B9%A1%23&Refer=top) `1.4M 🔥`
@@ -54,10 +55,9 @@
 1. [米卡剃头好A](https://s.weibo.com/weibo?q=%23%E7%B1%B3%E5%8D%A1%E5%89%83%E5%A4%B4%E5%A5%BDA%23&Refer=top) `850.0K 🔥`
 1. [减肥辅助器](https://s.weibo.com/weibo?q=%23%E5%87%8F%E8%82%A5%E8%BE%85%E5%8A%A9%E5%99%A8%23&Refer=top) `842.5K 🔥`
 1. [教育应该培养全才还是专才](https://s.weibo.com/weibo?q=%23%E6%95%99%E8%82%B2%E5%BA%94%E8%AF%A5%E5%9F%B9%E5%85%BB%E5%85%A8%E6%89%8D%E8%BF%98%E6%98%AF%E4%B8%93%E6%89%8D%23&Refer=top) `809.3K 🔥`
-1. [成都9.9元共享猫咪店已关门](https://s.weibo.com/weibo?q=%E6%88%90%E9%83%BD9.9%E5%85%83%E5%85%B1%E4%BA%AB%E7%8C%AB%E5%92%AA%E5%BA%97%E5%B7%B2%E5%85%B3%E9%97%A8&Refer=top) `799.9K 🔥`
-1. [2021届名人堂最终候选名单](https://s.weibo.com/weibo?q=2021%E5%B1%8A%E5%90%8D%E4%BA%BA%E5%A0%82%E6%9C%80%E7%BB%88%E5%80%99%E9%80%89%E5%90%8D%E5%8D%95&Refer=top) `792.6K 🔥`
+1. [张文宏说年轻人打疫苗是为国家做贡献](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%96%87%E5%AE%8F%E8%AF%B4%E5%B9%B4%E8%BD%BB%E4%BA%BA%E6%89%93%E7%96%AB%E8%8B%97%E6%98%AF%E4%B8%BA%E5%9B%BD%E5%AE%B6%E5%81%9A%E8%B4%A1%E7%8C%AE%23&Refer=top) `801.7K 🔥`
 
-数据更新于 2021-03-10 18:26:42
+数据更新于 2021-03-10 18:42:27
 
 <!-- END -->
 
