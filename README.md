@@ -20,6 +20,7 @@
 1. [瑞典一火车撞飞公交车](https://s.weibo.com/weibo?q=%23%E7%91%9E%E5%85%B8%E4%B8%80%E7%81%AB%E8%BD%A6%E6%92%9E%E9%A3%9E%E5%85%AC%E4%BA%A4%E8%BD%A6%23&Refer=top) `1.4M 🔥`
 1. [建议鼓励城市离退休人员告老还乡](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E9%BC%93%E5%8A%B1%E5%9F%8E%E5%B8%82%E7%A6%BB%E9%80%80%E4%BC%91%E4%BA%BA%E5%91%98%E5%91%8A%E8%80%81%E8%BF%98%E4%B9%A1%23&Refer=top) `1.4M 🔥`
 1. [餐厅起火老板丢下顾客逃跑被行拘](https://s.weibo.com/weibo?q=%E9%A4%90%E5%8E%85%E8%B5%B7%E7%81%AB%E8%80%81%E6%9D%BF%E4%B8%A2%E4%B8%8B%E9%A1%BE%E5%AE%A2%E9%80%83%E8%B7%91%E8%A2%AB%E8%A1%8C%E6%8B%98&Refer=top) `1.3M 🔥`
+1. [建议妇女孕期常规检项目免费](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E5%A6%87%E5%A5%B3%E5%AD%95%E6%9C%9F%E5%B8%B8%E8%A7%84%E6%A3%80%E9%A1%B9%E7%9B%AE%E5%85%8D%E8%B4%B9%23&Refer=top) `1.3M 🔥`
 1. [违背祖训神医张文荣被医院免职](https://s.weibo.com/weibo?q=%23%E8%BF%9D%E8%83%8C%E7%A5%96%E8%AE%AD%E7%A5%9E%E5%8C%BB%E5%BC%A0%E6%96%87%E8%8D%A3%E8%A2%AB%E5%8C%BB%E9%99%A2%E5%85%8D%E8%81%8C%23&Refer=top) `1.3M 🔥`
 1. [菲律宾一市发生枪击市长身亡](https://s.weibo.com/weibo?q=%23%E8%8F%B2%E5%BE%8B%E5%AE%BE%E4%B8%80%E5%B8%82%E5%8F%91%E7%94%9F%E6%9E%AA%E5%87%BB%E5%B8%82%E9%95%BF%E8%BA%AB%E4%BA%A1%23&Refer=top) `1.3M 🔥`
 1. [韩国一肉类市场暴发新冠疫情](https://s.weibo.com/weibo?q=%23%E9%9F%A9%E5%9B%BD%E4%B8%80%E8%82%89%E7%B1%BB%E5%B8%82%E5%9C%BA%E6%9A%B4%E5%8F%91%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%23&Refer=top) `1.3M 🔥`
@@ -46,6 +47,7 @@
 1. [建议推行免费婚检](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E6%8E%A8%E8%A1%8C%E5%85%8D%E8%B4%B9%E5%A9%9A%E6%A3%80%23&Refer=top) `922.0K 🔥`
 1. [邓超说孙俪做的早餐像猫粮](https://s.weibo.com/weibo?q=%E9%82%93%E8%B6%85%E8%AF%B4%E5%AD%99%E4%BF%AA%E5%81%9A%E7%9A%84%E6%97%A9%E9%A4%90%E5%83%8F%E7%8C%AB%E7%B2%AE&Refer=top) `910.9K 🔥`
 1. [山羊奶可以难喝到什么程度](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E7%BE%8A%E5%A5%B6%E5%8F%AF%E4%BB%A5%E9%9A%BE%E5%96%9D%E5%88%B0%E4%BB%80%E4%B9%88%E7%A8%8B%E5%BA%A6%23&Refer=top) `873.9K 🔥`
+1. [米卡剃头好A](https://s.weibo.com/weibo?q=%23%E7%B1%B3%E5%8D%A1%E5%89%83%E5%A4%B4%E5%A5%BDA%23&Refer=top) `850.0K 🔥`
 1. [减肥辅助器](https://s.weibo.com/weibo?q=%23%E5%87%8F%E8%82%A5%E8%BE%85%E5%8A%A9%E5%99%A8%23&Refer=top) `842.5K 🔥`
 1. [教育应该培养全才还是专才](https://s.weibo.com/weibo?q=%23%E6%95%99%E8%82%B2%E5%BA%94%E8%AF%A5%E5%9F%B9%E5%85%BB%E5%85%A8%E6%89%8D%E8%BF%98%E6%98%AF%E4%B8%93%E6%89%8D%23&Refer=top) `809.3K 🔥`
 1. [成都9.9元共享猫咪店已关门](https://s.weibo.com/weibo?q=%E6%88%90%E9%83%BD9.9%E5%85%83%E5%85%B1%E4%BA%AB%E7%8C%AB%E5%92%AA%E5%BA%97%E5%B7%B2%E5%85%B3%E9%97%A8&Refer=top) `799.9K 🔥`
@@ -54,10 +56,8 @@
 1. [温客行原名叫甄衍](https://s.weibo.com/weibo?q=%23%E6%B8%A9%E5%AE%A2%E8%A1%8C%E5%8E%9F%E5%90%8D%E5%8F%AB%E7%94%84%E8%A1%8D%23&Refer=top) `734.5K 🔥`
 1. [英国医生称多数咖啡粉中含有蟑螂](https://s.weibo.com/weibo?q=%23%E8%8B%B1%E5%9B%BD%E5%8C%BB%E7%94%9F%E7%A7%B0%E5%A4%9A%E6%95%B0%E5%92%96%E5%95%A1%E7%B2%89%E4%B8%AD%E5%90%AB%E6%9C%89%E8%9F%91%E8%9E%82%23&Refer=top) `667.0K 🔥`
 1. [三个关键词读懂两高报告](https://s.weibo.com/weibo?q=%23%E4%B8%89%E4%B8%AA%E5%85%B3%E9%94%AE%E8%AF%8D%E8%AF%BB%E6%87%82%E4%B8%A4%E9%AB%98%E6%8A%A5%E5%91%8A%23&Refer=top) `663.4K 🔥`
-1. [和马对粉丝说会尽快回来](https://s.weibo.com/weibo?q=%23%E5%92%8C%E9%A9%AC%E5%AF%B9%E7%B2%89%E4%B8%9D%E8%AF%B4%E4%BC%9A%E5%B0%BD%E5%BF%AB%E5%9B%9E%E6%9D%A5%23&Refer=top) `656.2K 🔥`
-1. [共享猫咪9块9租一天](https://s.weibo.com/weibo?q=%23%E5%85%B1%E4%BA%AB%E7%8C%AB%E5%92%AA9%E5%9D%979%E7%A7%9F%E4%B8%80%E5%A4%A9%23&Refer=top) `643.0K 🔥`
 
-数据更新于 2021-03-10 14:00:02
+数据更新于 2021-03-10 14:27:03
 
 <!-- END -->
 
