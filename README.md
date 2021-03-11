@@ -57,7 +57,7 @@
 1. [建议公示逃税主播名单](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E5%85%AC%E7%A4%BA%E9%80%83%E7%A8%8E%E4%B8%BB%E6%92%AD%E5%90%8D%E5%8D%95%23&Refer=top) `678.1K 🔥`
 1. [建议强制平台为外卖小哥买意外险](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E5%BC%BA%E5%88%B6%E5%B9%B3%E5%8F%B0%E4%B8%BA%E5%A4%96%E5%8D%96%E5%B0%8F%E5%93%A5%E4%B9%B0%E6%84%8F%E5%A4%96%E9%99%A9%23&Refer=top) `676.9K 🔥`
 
-数据更新于 2021-03-11 14:47:06
+数据更新于 2021-03-11 14:55:00
 
 <!-- END -->
 
