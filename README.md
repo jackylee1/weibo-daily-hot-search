@@ -57,7 +57,7 @@
 1. [60多个国家将中国公民纳入疫苗接种体系](https://s.weibo.com/weibo?q=60%E5%A4%9A%E4%B8%AA%E5%9B%BD%E5%AE%B6%E5%B0%86%E4%B8%AD%E5%9B%BD%E5%85%AC%E6%B0%91%E7%BA%B3%E5%85%A5%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A7%8D%E4%BD%93%E7%B3%BB&Refer=top) `792.6K 🔥`
 1. [共享充电宝每小时从1元涨至4元](https://s.weibo.com/weibo?q=%23%E5%85%B1%E4%BA%AB%E5%85%85%E7%94%B5%E5%AE%9D%E6%AF%8F%E5%B0%8F%E6%97%B6%E4%BB%8E1%E5%85%83%E6%B6%A8%E8%87%B34%E5%85%83%23&Refer=top) `792.6K 🔥`
 
-数据更新于 2021-03-12 17:08:12
+数据更新于 2021-03-12 17:30:34
 
 <!-- END -->
 
