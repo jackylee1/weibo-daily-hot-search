@@ -40,6 +40,7 @@
 1. [直播平台羽绒服抽检8成不达标](https://s.weibo.com/weibo?q=%23%E7%9B%B4%E6%92%AD%E5%B9%B3%E5%8F%B0%E7%BE%BD%E7%BB%92%E6%9C%8D%E6%8A%BD%E6%A3%808%E6%88%90%E4%B8%8D%E8%BE%BE%E6%A0%87%23&Refer=top) `1.2M 🔥`
 1. [乘风破浪的姐姐](https://s.weibo.com/weibo?q=%E4%B9%98%E9%A3%8E%E7%A0%B4%E6%B5%AA%E7%9A%84%E5%A7%90%E5%A7%90&Refer=top) `1.2M 🔥`
 1. [315晚会主题发布](https://s.weibo.com/weibo?q=%23315%E6%99%9A%E4%BC%9A%E4%B8%BB%E9%A2%98%E5%8F%91%E5%B8%83%23&Refer=top) `1.2M 🔥`
+1. [每次看到微信功能更新](https://s.weibo.com/weibo?q=%23%E6%AF%8F%E6%AC%A1%E7%9C%8B%E5%88%B0%E5%BE%AE%E4%BF%A1%E5%8A%9F%E8%83%BD%E6%9B%B4%E6%96%B0%23&Refer=top) `1.1M 🔥`
 1. [这个婚突然不想结了](https://s.weibo.com/weibo?q=%23%E8%BF%99%E4%B8%AA%E5%A9%9A%E7%AA%81%E7%84%B6%E4%B8%8D%E6%83%B3%E7%BB%93%E4%BA%86%23&Refer=top) `1.1M 🔥`
 1. [为什么张哲瀚被叫老婆](https://s.weibo.com/weibo?q=%23%E4%B8%BA%E4%BB%80%E4%B9%88%E5%BC%A0%E5%93%B2%E7%80%9A%E8%A2%AB%E5%8F%AB%E8%80%81%E5%A9%86%23&Refer=top) `1.1M 🔥`
 1. [延迟退休](https://s.weibo.com/weibo?q=%23%E5%BB%B6%E8%BF%9F%E9%80%80%E4%BC%91%23&Refer=top) `1.1M 🔥`
@@ -55,9 +56,8 @@
 1. [北京吃自助浪费将罚款](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E5%90%83%E8%87%AA%E5%8A%A9%E6%B5%AA%E8%B4%B9%E5%B0%86%E7%BD%9A%E6%AC%BE%23&Refer=top) `870.5K 🔥`
 1. [Rose新歌](https://s.weibo.com/weibo?q=%23Rose%E6%96%B0%E6%AD%8C%23&Refer=top) `854.6K 🔥`
 1. [总理记者会](https://s.weibo.com/weibo?q=%23%E6%80%BB%E7%90%86%E8%AE%B0%E8%80%85%E4%BC%9A%23&Refer=top) `846.2K 🔥`
-1. [代表建议种牙纳入医保](https://s.weibo.com/weibo?q=%23%E4%BB%A3%E8%A1%A8%E5%BB%BA%E8%AE%AE%E7%A7%8D%E7%89%99%E7%BA%B3%E5%85%A5%E5%8C%BB%E4%BF%9D%23&Refer=top) `843.0K 🔥`
 
-数据更新于 2021-03-12 19:30:35
+数据更新于 2021-03-12 19:43:25
 
 <!-- END -->
 
