@@ -55,9 +55,9 @@
 1. [护肤中心查出兽用注射器](https://s.weibo.com/weibo?q=%23%E6%8A%A4%E8%82%A4%E4%B8%AD%E5%BF%83%E6%9F%A5%E5%87%BA%E5%85%BD%E7%94%A8%E6%B3%A8%E5%B0%84%E5%99%A8%23&Refer=top) `169.5K 🔥`
 1. [许佳琪分享长隆回忆小碎片](https://s.weibo.com/weibo?q=%23%E8%AE%B8%E4%BD%B3%E7%90%AA%E5%88%86%E4%BA%AB%E9%95%BF%E9%9A%86%E5%9B%9E%E5%BF%86%E5%B0%8F%E7%A2%8E%E7%89%87%23&Refer=top) `165.7K 🔥`
 1. [司藤直播](https://s.weibo.com/weibo?q=%E5%8F%B8%E8%97%A4%E7%9B%B4%E6%92%AD&Refer=top) `143.2K 🔥`
-1. [二月二](https://s.weibo.com/weibo?q=%E4%BA%8C%E6%9C%88%E4%BA%8C&Refer=top) `124.1K 🔥`
+1. [四川全面禁止从省外违规调运生猪](https://s.weibo.com/weibo?q=%E5%9B%9B%E5%B7%9D%E5%85%A8%E9%9D%A2%E7%A6%81%E6%AD%A2%E4%BB%8E%E7%9C%81%E5%A4%96%E8%BF%9D%E8%A7%84%E8%B0%83%E8%BF%90%E7%94%9F%E7%8C%AA&Refer=top) `133.8K 🔥`
 
-数据更新于 2021-03-15 06:08:27
+数据更新于 2021-03-15 06:31:00
 
 <!-- END -->
 
