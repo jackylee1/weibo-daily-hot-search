@@ -42,22 +42,22 @@
 1. [库里儿子假笑](https://s.weibo.com/weibo?q=%23%E5%BA%93%E9%87%8C%E5%84%BF%E5%AD%90%E5%81%87%E7%AC%91%23&Refer=top) `1.2M 🔥`
 1. [邱天](https://s.weibo.com/weibo?q=%E9%82%B1%E5%A4%A9&Refer=top) `1.1M 🔥`
 1. [精神病人花4万余元点40份外卖](https://s.weibo.com/weibo?q=%23%E7%B2%BE%E7%A5%9E%E7%97%85%E4%BA%BA%E8%8A%B14%E4%B8%87%E4%BD%99%E5%85%83%E7%82%B940%E4%BB%BD%E5%A4%96%E5%8D%96%23&Refer=top) `1.1M 🔥`
+1. [新发现35岁以下吸毒人员下降超三成](https://s.weibo.com/weibo?q=%E6%96%B0%E5%8F%91%E7%8E%B035%E5%B2%81%E4%BB%A5%E4%B8%8B%E5%90%B8%E6%AF%92%E4%BA%BA%E5%91%98%E4%B8%8B%E9%99%8D%E8%B6%85%E4%B8%89%E6%88%90&Refer=top) `1.1M 🔥`
 1. [刘宇](https://s.weibo.com/weibo?q=%E5%88%98%E5%AE%87&Refer=top) `1.1M 🔥`
 1. [北京沙尘](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E6%B2%99%E5%B0%98%23&Refer=top) `1.1M 🔥`
 1. [金莎说女人有男闺蜜很正常](https://s.weibo.com/weibo?q=%23%E9%87%91%E8%8E%8E%E8%AF%B4%E5%A5%B3%E4%BA%BA%E6%9C%89%E7%94%B7%E9%97%BA%E8%9C%9C%E5%BE%88%E6%AD%A3%E5%B8%B8%23&Refer=top) `1.0M 🔥`
 1. [基金](https://s.weibo.com/weibo?q=%E5%9F%BA%E9%87%91&Refer=top) `1.0M 🔥`
-1. [新发现35岁以下吸毒人员下降超三成](https://s.weibo.com/weibo?q=%E6%96%B0%E5%8F%91%E7%8E%B035%E5%B2%81%E4%BB%A5%E4%B8%8B%E5%90%B8%E6%AF%92%E4%BA%BA%E5%91%98%E4%B8%8B%E9%99%8D%E8%B6%85%E4%B8%89%E6%88%90&Refer=top) `1.0M 🔥`
 1. [19.9元低价摄影背后的套路](https://s.weibo.com/weibo?q=19.9%E5%85%83%E4%BD%8E%E4%BB%B7%E6%91%84%E5%BD%B1%E8%83%8C%E5%90%8E%E7%9A%84%E5%A5%97%E8%B7%AF&Refer=top) `1.0M 🔥`
 1. [怀疑东北人天生就会唠嗑](https://s.weibo.com/weibo?q=%23%E6%80%80%E7%96%91%E4%B8%9C%E5%8C%97%E4%BA%BA%E5%A4%A9%E7%94%9F%E5%B0%B1%E4%BC%9A%E5%94%A0%E5%97%91%23&Refer=top) `1.0M 🔥`
 1. [司藤造型师](https://s.weibo.com/weibo?q=%23%E5%8F%B8%E8%97%A4%E9%80%A0%E5%9E%8B%E5%B8%88%23&Refer=top) `991.0K 🔥`
 1. [青年大学习 老番茄](https://s.weibo.com/weibo?q=%E9%9D%92%E5%B9%B4%E5%A4%A7%E5%AD%A6%E4%B9%A0%20%E8%80%81%E7%95%AA%E8%8C%84&Refer=top) `957.9K 🔥`
+1. [小龙坎火锅致歉](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E9%BE%99%E5%9D%8E%E7%81%AB%E9%94%85%E8%87%B4%E6%AD%89%23&Refer=top) `933.0K 🔥`
 1. [白敬亭马思纯 一眼万年](https://s.weibo.com/weibo?q=%E7%99%BD%E6%95%AC%E4%BA%AD%E9%A9%AC%E6%80%9D%E7%BA%AF%20%E4%B8%80%E7%9C%BC%E4%B8%87%E5%B9%B4&Refer=top) `927.2K 🔥`
 1. [公安部回应一次吸毒终身禁演](https://s.weibo.com/weibo?q=%E5%85%AC%E5%AE%89%E9%83%A8%E5%9B%9E%E5%BA%94%E4%B8%80%E6%AC%A1%E5%90%B8%E6%AF%92%E7%BB%88%E8%BA%AB%E7%A6%81%E6%BC%94&Refer=top) `923.6K 🔥`
 1. [张雪峰离开北京](https://s.weibo.com/weibo?q=%E5%BC%A0%E9%9B%AA%E5%B3%B0%E7%A6%BB%E5%BC%80%E5%8C%97%E4%BA%AC&Refer=top) `921.7K 🔥`
 1. [难道暗示得还不够明显吗](https://s.weibo.com/weibo?q=%23%E9%9A%BE%E9%81%93%E6%9A%97%E7%A4%BA%E5%BE%97%E8%BF%98%E4%B8%8D%E5%A4%9F%E6%98%8E%E6%98%BE%E5%90%97%23&Refer=top) `914.9K 🔥`
-1. [春晚之所以选在八点](https://s.weibo.com/weibo?q=%23%E6%98%A5%E6%99%9A%E4%B9%8B%E6%89%80%E4%BB%A5%E9%80%89%E5%9C%A8%E5%85%AB%E7%82%B9%23&Refer=top) `870.4K 🔥`
 
-数据更新于 2021-03-15 16:37:07
+数据更新于 2021-03-15 16:51:21
 
 <!-- END -->
 
