@@ -40,6 +40,7 @@
 1. [杨紫摄影师否认抄袭王菲专辑造型](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E7%B4%AB%E6%91%84%E5%BD%B1%E5%B8%88%E5%90%A6%E8%AE%A4%E6%8A%84%E8%A2%AD%E7%8E%8B%E8%8F%B2%E4%B8%93%E8%BE%91%E9%80%A0%E5%9E%8B%23&Refer=top) `1.8M 🔥`
 1. [景甜张彬彬还原按唇杀](https://s.weibo.com/weibo?q=%23%E6%99%AF%E7%94%9C%E5%BC%A0%E5%BD%AC%E5%BD%AC%E8%BF%98%E5%8E%9F%E6%8C%89%E5%94%87%E6%9D%80%23&Refer=top) `1.8M 🔥`
 1. [机长与乘务长互殴被终身停飞](https://s.weibo.com/weibo?q=%E6%9C%BA%E9%95%BF%E4%B8%8E%E4%B9%98%E5%8A%A1%E9%95%BF%E4%BA%92%E6%AE%B4%E8%A2%AB%E7%BB%88%E8%BA%AB%E5%81%9C%E9%A3%9E&Refer=top) `1.8M 🔥`
+1. [英菲尼迪致歉](https://s.weibo.com/weibo?q=%23%E8%8B%B1%E8%8F%B2%E5%B0%BC%E8%BF%AA%E8%87%B4%E6%AD%89%23&Refer=top) `1.8M 🔥`
 1. [法国女演员脱衣抗议防疫政策](https://s.weibo.com/weibo?q=%E6%B3%95%E5%9B%BD%E5%A5%B3%E6%BC%94%E5%91%98%E8%84%B1%E8%A1%A3%E6%8A%97%E8%AE%AE%E9%98%B2%E7%96%AB%E6%94%BF%E7%AD%96&Refer=top) `1.4M 🔥`
 1. [萧山赘婿](https://s.weibo.com/weibo?q=%E8%90%A7%E5%B1%B1%E8%B5%98%E5%A9%BF&Refer=top) `1.4M 🔥`
 1. [白敬亭 肩宽腰细](https://s.weibo.com/weibo?q=%E7%99%BD%E6%95%AC%E4%BA%AD%20%E8%82%A9%E5%AE%BD%E8%85%B0%E7%BB%86&Refer=top) `1.4M 🔥`
@@ -55,9 +56,8 @@
 1. [官方通报陕西6岁男童遭13岁邻居杀害](https://s.weibo.com/weibo?q=%23%E5%AE%98%E6%96%B9%E9%80%9A%E6%8A%A5%E9%99%95%E8%A5%BF6%E5%B2%81%E7%94%B7%E7%AB%A5%E9%81%AD13%E5%B2%81%E9%82%BB%E5%B1%85%E6%9D%80%E5%AE%B3%23&Refer=top) `1.3M 🔥`
 1. [宣美隔空回应虞书欣](https://s.weibo.com/weibo?q=%23%E5%AE%A3%E7%BE%8E%E9%9A%94%E7%A9%BA%E5%9B%9E%E5%BA%94%E8%99%9E%E4%B9%A6%E6%AC%A3%23&Refer=top) `1.2M 🔥`
 1. [沧州市长要求彻查瘦肉精羊肉](https://s.weibo.com/weibo?q=%23%E6%B2%A7%E5%B7%9E%E5%B8%82%E9%95%BF%E8%A6%81%E6%B1%82%E5%BD%BB%E6%9F%A5%E7%98%A6%E8%82%89%E7%B2%BE%E7%BE%8A%E8%82%89%23&Refer=top) `1.2M 🔥`
-1. [滴滴回应司机开车冲撞乘客致死](https://s.weibo.com/weibo?q=%23%E6%BB%B4%E6%BB%B4%E5%9B%9E%E5%BA%94%E5%8F%B8%E6%9C%BA%E5%BC%80%E8%BD%A6%E5%86%B2%E6%92%9E%E4%B9%98%E5%AE%A2%E8%87%B4%E6%AD%BB%23&Refer=top) `1.2M 🔥`
 
-数据更新于 2021-03-15 23:01:33
+数据更新于 2021-03-15 23:18:38
 
 <!-- END -->
 
