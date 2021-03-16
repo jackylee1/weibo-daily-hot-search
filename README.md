@@ -7,9 +7,10 @@
 <!-- BEGIN -->
 
 1. [何炅](https://s.weibo.com/weibo?q=%E4%BD%95%E7%82%85&Refer=top) `15.5M 🔥`
-1. [王一博 李子璇](https://s.weibo.com/weibo?q=%E7%8E%8B%E4%B8%80%E5%8D%9A%20%E6%9D%8E%E5%AD%90%E7%92%87&Refer=top) `13.5M 🔥`
+1. [王一博 李子璇](https://s.weibo.com/weibo?q=%E7%8E%8B%E4%B8%80%E5%8D%9A%20%E6%9D%8E%E5%AD%90%E7%92%87&Refer=top) `15.4M 🔥`
 1. [永辉生活APP卖茅台只收款不发货](https://s.weibo.com/weibo?q=%23%E6%B0%B8%E8%BE%89%E7%94%9F%E6%B4%BBAPP%E5%8D%96%E8%8C%85%E5%8F%B0%E5%8F%AA%E6%94%B6%E6%AC%BE%E4%B8%8D%E5%8F%91%E8%B4%A7%23&Refer=top) `10.2M 🔥`
 1. [李易峰 方安娜](https://s.weibo.com/weibo?q=%E6%9D%8E%E6%98%93%E5%B3%B0%20%E6%96%B9%E5%AE%89%E5%A8%9C&Refer=top) `9.9M 🔥`
+1. [女子投保后患癌索赔60万遭拒](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E6%8A%95%E4%BF%9D%E5%90%8E%E6%82%A3%E7%99%8C%E7%B4%A2%E8%B5%9460%E4%B8%87%E9%81%AD%E6%8B%92%23&Refer=top) `7.5M 🔥`
 1. [贾乃亮 到此为止](https://s.weibo.com/weibo?q=%E8%B4%BE%E4%B9%83%E4%BA%AE%20%E5%88%B0%E6%AD%A4%E4%B8%BA%E6%AD%A2&Refer=top) `5.8M 🔥`
 1. [合肥携子女坠亡母亲遗言](https://s.weibo.com/weibo?q=%E5%90%88%E8%82%A5%E6%90%BA%E5%AD%90%E5%A5%B3%E5%9D%A0%E4%BA%A1%E6%AF%8D%E4%BA%B2%E9%81%97%E8%A8%80&Refer=top) `4.9M 🔥`
 1. [喜茶回应使用万店掌摄像头](https://s.weibo.com/weibo?q=%23%E5%96%9C%E8%8C%B6%E5%9B%9E%E5%BA%94%E4%BD%BF%E7%94%A8%E4%B8%87%E5%BA%97%E6%8E%8C%E6%91%84%E5%83%8F%E5%A4%B4%23&Refer=top) `4.4M 🔥`
@@ -38,11 +39,11 @@
 1. [公园保安下跪求摆摊商贩离开](https://s.weibo.com/weibo?q=%E5%85%AC%E5%9B%AD%E4%BF%9D%E5%AE%89%E4%B8%8B%E8%B7%AA%E6%B1%82%E6%91%86%E6%91%8A%E5%95%86%E8%B4%A9%E7%A6%BB%E5%BC%80&Refer=top) `1.1M 🔥`
 1. [萧敬腾 上海下着雨](https://s.weibo.com/weibo?q=%E8%90%A7%E6%95%AC%E8%85%BE%20%E4%B8%8A%E6%B5%B7%E4%B8%8B%E7%9D%80%E9%9B%A8&Refer=top) `1.1M 🔥`
 1. [李钟硕长发造型](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E9%92%9F%E7%A1%95%E9%95%BF%E5%8F%91%E9%80%A0%E5%9E%8B%23&Refer=top) `1.0M 🔥`
+1. [3.3元桶装水灌装后卖20元](https://s.weibo.com/weibo?q=3.3%E5%85%83%E6%A1%B6%E8%A3%85%E6%B0%B4%E7%81%8C%E8%A3%85%E5%90%8E%E5%8D%9620%E5%85%83&Refer=top) `983.9K 🔥`
 1. [文淇工作室辟谣恋情](https://s.weibo.com/weibo?q=%E6%96%87%E6%B7%87%E5%B7%A5%E4%BD%9C%E5%AE%A4%E8%BE%9F%E8%B0%A3%E6%81%8B%E6%83%85&Refer=top) `975.3K 🔥`
 1. [烫发翻车现场](https://s.weibo.com/weibo?q=%23%E7%83%AB%E5%8F%91%E7%BF%BB%E8%BD%A6%E7%8E%B0%E5%9C%BA%23&Refer=top) `938.8K 🔥`
 1. [当代赘婿等级表](https://s.weibo.com/weibo?q=%E5%BD%93%E4%BB%A3%E8%B5%98%E5%A9%BF%E7%AD%89%E7%BA%A7%E8%A1%A8&Refer=top) `911.4K 🔥`
 1. [景甜张彬彬好像一对新人](https://s.weibo.com/weibo?q=%23%E6%99%AF%E7%94%9C%E5%BC%A0%E5%BD%AC%E5%BD%AC%E5%A5%BD%E5%83%8F%E4%B8%80%E5%AF%B9%E6%96%B0%E4%BA%BA%23&Refer=top) `897.7K 🔥`
-1. [3.3元桶装水灌装后卖20元](https://s.weibo.com/weibo?q=3.3%E5%85%83%E6%A1%B6%E8%A3%85%E6%B0%B4%E7%81%8C%E8%A3%85%E5%90%8E%E5%8D%9620%E5%85%83&Refer=top) `843.3K 🔥`
 1. [多家电商平台被曝售藏羚羊绒披肩](https://s.weibo.com/weibo?q=%23%E5%A4%9A%E5%AE%B6%E7%94%B5%E5%95%86%E5%B9%B3%E5%8F%B0%E8%A2%AB%E6%9B%9D%E5%94%AE%E8%97%8F%E7%BE%9A%E7%BE%8A%E7%BB%92%E6%8A%AB%E8%82%A9%23&Refer=top) `803.7K 🔥`
 1. [智联招聘前程无忧猎聘致歉](https://s.weibo.com/weibo?q=%23%E6%99%BA%E8%81%94%E6%8B%9B%E8%81%98%E5%89%8D%E7%A8%8B%E6%97%A0%E5%BF%A7%E7%8C%8E%E8%81%98%E8%87%B4%E6%AD%89%23&Refer=top) `790.5K 🔥`
 1. [沙尘抵达江苏](https://s.weibo.com/weibo?q=%23%E6%B2%99%E5%B0%98%E6%8A%B5%E8%BE%BE%E6%B1%9F%E8%8B%8F%23&Refer=top) `763.2K 🔥`
@@ -55,9 +56,8 @@
 1. [剪了个让患者放心的发型](https://s.weibo.com/weibo?q=%E5%89%AA%E4%BA%86%E4%B8%AA%E8%AE%A9%E6%82%A3%E8%80%85%E6%94%BE%E5%BF%83%E7%9A%84%E5%8F%91%E5%9E%8B&Refer=top) `671.5K 🔥`
 1. [沧州市长要求彻查瘦肉精羊肉](https://s.weibo.com/weibo?q=%23%E6%B2%A7%E5%B7%9E%E5%B8%82%E9%95%BF%E8%A6%81%E6%B1%82%E5%BD%BB%E6%9F%A5%E7%98%A6%E8%82%89%E7%B2%BE%E7%BE%8A%E8%82%89%23&Refer=top) `651.8K 🔥`
 1. [凭一己之力成为濒危动物](https://s.weibo.com/weibo?q=%23%E5%87%AD%E4%B8%80%E5%B7%B1%E4%B9%8B%E5%8A%9B%E6%88%90%E4%B8%BA%E6%BF%92%E5%8D%B1%E5%8A%A8%E7%89%A9%23&Refer=top) `645.9K 🔥`
-1. [科勒卫浴回应门店装人脸识别摄像头](https://s.weibo.com/weibo?q=%E7%A7%91%E5%8B%92%E5%8D%AB%E6%B5%B4%E5%9B%9E%E5%BA%94%E9%97%A8%E5%BA%97%E8%A3%85%E4%BA%BA%E8%84%B8%E8%AF%86%E5%88%AB%E6%91%84%E5%83%8F%E5%A4%B4&Refer=top) `634.2K 🔥`
 
-数据更新于 2021-03-16 14:25:58
+数据更新于 2021-03-16 14:43:58
 
 <!-- END -->
 
