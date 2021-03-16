@@ -22,8 +22,9 @@
 1. [山河令27集](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E6%B2%B3%E4%BB%A427%E9%9B%86%23&Refer=top) `581.2K 🔥`
 1. [华为将和苹果三星谈判5G专利使用费](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E4%B8%BA%E5%B0%86%E5%92%8C%E8%8B%B9%E6%9E%9C%E4%B8%89%E6%98%9F%E8%B0%88%E5%88%A45G%E4%B8%93%E5%88%A9%E4%BD%BF%E7%94%A8%E8%B4%B9%23&Refer=top) `573.0K 🔥`
 1. [谭松韵谁还不是个体面人](https://s.weibo.com/weibo?q=%23%E8%B0%AD%E6%9D%BE%E9%9F%B5%E8%B0%81%E8%BF%98%E4%B8%8D%E6%98%AF%E4%B8%AA%E4%BD%93%E9%9D%A2%E4%BA%BA%23&Refer=top) `564.0K 🔥`
-1. [鹿晗送李佳琦实体专辑](https://s.weibo.com/weibo?q=%23%E9%B9%BF%E6%99%97%E9%80%81%E6%9D%8E%E4%BD%B3%E7%90%A6%E5%AE%9E%E4%BD%93%E4%B8%93%E8%BE%91%23&Refer=top) `551.7K 🔥`
-1. [李一桐机场送别助理哭了](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E4%B8%80%E6%A1%90%E6%9C%BA%E5%9C%BA%E9%80%81%E5%88%AB%E5%8A%A9%E7%90%86%E5%93%AD%E4%BA%86%23&Refer=top) `542.4K 🔥`
+1. [刘欣](https://s.weibo.com/weibo?q=%E5%88%98%E6%AC%A3&Refer=top) `562.0K 🔥`
+1. [鹿晗送李佳琦实体专辑](https://s.weibo.com/weibo?q=%23%E9%B9%BF%E6%99%97%E9%80%81%E6%9D%8E%E4%BD%B3%E7%90%A6%E5%AE%9E%E4%BD%93%E4%B8%93%E8%BE%91%23&Refer=top) `561.9K 🔥`
+1. [李一桐机场送别助理哭了](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E4%B8%80%E6%A1%90%E6%9C%BA%E5%9C%BA%E9%80%81%E5%88%AB%E5%8A%A9%E7%90%86%E5%93%AD%E4%BA%86%23&Refer=top) `543.2K 🔥`
 1. [乔欣 背都是拗出来的](https://s.weibo.com/weibo?q=%E4%B9%94%E6%AC%A3%20%E8%83%8C%E9%83%BD%E6%98%AF%E6%8B%97%E5%87%BA%E6%9D%A5%E7%9A%84&Refer=top) `536.8K 🔥`
 1. [刘芸 站姐辛苦了](https://s.weibo.com/weibo?q=%E5%88%98%E8%8A%B8%20%E7%AB%99%E5%A7%90%E8%BE%9B%E8%8B%A6%E4%BA%86&Refer=top) `526.0K 🔥`
 1. [钟汉良bg之光](https://s.weibo.com/weibo?q=%23%E9%92%9F%E6%B1%89%E8%89%AFbg%E4%B9%8B%E5%85%89%23&Refer=top) `525.8K 🔥`
@@ -48,14 +49,14 @@
 1. [山西古墓发现先秦果酒](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E8%A5%BF%E5%8F%A4%E5%A2%93%E5%8F%91%E7%8E%B0%E5%85%88%E7%A7%A6%E6%9E%9C%E9%85%92%23&Refer=top) `264.2K 🔥`
 1. [女孩做玩偶修复1年接200多单](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%A9%E5%81%9A%E7%8E%A9%E5%81%B6%E4%BF%AE%E5%A4%8D1%E5%B9%B4%E6%8E%A5200%E5%A4%9A%E5%8D%95%23&Refer=top) `262.5K 🔥`
 1. [暴风眼大结局](https://s.weibo.com/weibo?q=%E6%9A%B4%E9%A3%8E%E7%9C%BC%E5%A4%A7%E7%BB%93%E5%B1%80&Refer=top) `239.8K 🔥`
-1. [刘欣](https://s.weibo.com/weibo?q=%E5%88%98%E6%AC%A3&Refer=top) `234.7K 🔥`
 1. [上海首个家政本科专业开班](https://s.weibo.com/weibo?q=%E4%B8%8A%E6%B5%B7%E9%A6%96%E4%B8%AA%E5%AE%B6%E6%94%BF%E6%9C%AC%E7%A7%91%E4%B8%93%E4%B8%9A%E5%BC%80%E7%8F%AD&Refer=top) `219.9K 🔥`
+1. [司藤给秦放报仇](https://s.weibo.com/weibo?q=%E5%8F%B8%E8%97%A4%E7%BB%99%E7%A7%A6%E6%94%BE%E6%8A%A5%E4%BB%87&Refer=top) `219.2K 🔥`
 1. [肖思远母校7名学子赴英雄部队服役](https://s.weibo.com/weibo?q=%E8%82%96%E6%80%9D%E8%BF%9C%E6%AF%8D%E6%A0%A17%E5%90%8D%E5%AD%A6%E5%AD%90%E8%B5%B4%E8%8B%B1%E9%9B%84%E9%83%A8%E9%98%9F%E6%9C%8D%E5%BD%B9&Refer=top) `214.9K 🔥`
 1. [超380万平方公里国土遭遇沙尘天气](https://s.weibo.com/weibo?q=%23%E8%B6%85380%E4%B8%87%E5%B9%B3%E6%96%B9%E5%85%AC%E9%87%8C%E5%9B%BD%E5%9C%9F%E9%81%AD%E9%81%87%E6%B2%99%E5%B0%98%E5%A4%A9%E6%B0%94%23&Refer=top) `205.6K 🔥`
 1. [荣耀乒乓](https://s.weibo.com/weibo?q=%E8%8D%A3%E8%80%80%E4%B9%92%E4%B9%93&Refer=top) `198.3K 🔥`
-1. [司藤给秦放报仇](https://s.weibo.com/weibo?q=%E5%8F%B8%E8%97%A4%E7%BB%99%E7%A7%A6%E6%94%BE%E6%8A%A5%E4%BB%87&Refer=top) `181.1K 🔥`
+1. [华为将收取5G专利使用费](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E4%B8%BA%E5%B0%86%E6%94%B6%E5%8F%965G%E4%B8%93%E5%88%A9%E4%BD%BF%E7%94%A8%E8%B4%B9%23&Refer=top) `148.2K 🔥`
 
-数据更新于 2021-03-17 00:03:29
+数据更新于 2021-03-17 00:41:24
 
 <!-- END -->
 
