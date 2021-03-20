@@ -50,14 +50,14 @@
 1. [考研调剂](https://s.weibo.com/weibo?q=%E8%80%83%E7%A0%94%E8%B0%83%E5%89%82&Refer=top) `931.7K 🔥`
 1. [巴基斯坦总理新冠病毒检测呈阳性](https://s.weibo.com/weibo?q=%E5%B7%B4%E5%9F%BA%E6%96%AF%E5%9D%A6%E6%80%BB%E7%90%86%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E6%A3%80%E6%B5%8B%E5%91%88%E9%98%B3%E6%80%A7&Refer=top) `927.6K 🔥`
 1. [青铜神树](https://s.weibo.com/weibo?q=%E9%9D%92%E9%93%9C%E7%A5%9E%E6%A0%91&Refer=top) `921.8K 🔥`
-1. [青你3第一次排名](https://s.weibo.com/weibo?q=%E9%9D%92%E4%BD%A03%E7%AC%AC%E4%B8%80%E6%AC%A1%E6%8E%92%E5%90%8D&Refer=top) `920.5K 🔥`
+1. [青你3第一次排名](https://s.weibo.com/weibo?q=%E9%9D%92%E4%BD%A03%E7%AC%AC%E4%B8%80%E6%AC%A1%E6%8E%92%E5%90%8D&Refer=top) `921.5K 🔥`
 1. [厦门坠海直升机上4人全部遇难](https://s.weibo.com/weibo?q=%23%E5%8E%A6%E9%97%A8%E5%9D%A0%E6%B5%B7%E7%9B%B4%E5%8D%87%E6%9C%BA%E4%B8%8A4%E4%BA%BA%E5%85%A8%E9%83%A8%E9%81%87%E9%9A%BE%23&Refer=top) `909.6K 🔥`
 1. [三星堆遗址出土500余件重要文物](https://s.weibo.com/weibo?q=%23%E4%B8%89%E6%98%9F%E5%A0%86%E9%81%97%E5%9D%80%E5%87%BA%E5%9C%9F500%E4%BD%99%E4%BB%B6%E9%87%8D%E8%A6%81%E6%96%87%E7%89%A9%23&Refer=top) `905.9K 🔥`
 1. [战山为王](https://s.weibo.com/weibo?q=%E6%88%98%E5%B1%B1%E4%B8%BA%E7%8E%8B&Refer=top) `887.1K 🔥`
 1. [苏炳添创男子百米赛季世界最好成绩](https://s.weibo.com/weibo?q=%E8%8B%8F%E7%82%B3%E6%B7%BB%E5%88%9B%E7%94%B7%E5%AD%90%E7%99%BE%E7%B1%B3%E8%B5%9B%E5%AD%A3%E4%B8%96%E7%95%8C%E6%9C%80%E5%A5%BD%E6%88%90%E7%BB%A9&Refer=top) `870.2K 🔥`
 1. [柠檬身价暴涨](https://s.weibo.com/weibo?q=%23%E6%9F%A0%E6%AA%AC%E8%BA%AB%E4%BB%B7%E6%9A%B4%E6%B6%A8%23&Refer=top) `842.8K 🔥`
 
-数据更新于 2021-03-20 19:50:49
+数据更新于 2021-03-20 19:51:25
 
 <!-- END -->
 
