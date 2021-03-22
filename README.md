@@ -50,14 +50,14 @@
 1. [基金牛蛙](https://s.weibo.com/weibo?q=%23%E5%9F%BA%E9%87%91%E7%89%9B%E8%9B%99%23&Refer=top) `810.7K 🔥`
 1. [汪涵入学播音班时视频](https://s.weibo.com/weibo?q=%E6%B1%AA%E6%B6%B5%E5%85%A5%E5%AD%A6%E6%92%AD%E9%9F%B3%E7%8F%AD%E6%97%B6%E8%A7%86%E9%A2%91&Refer=top) `796.9K 🔥`
 1. [中国计算机博士生在美自杀](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E8%AE%A1%E7%AE%97%E6%9C%BA%E5%8D%9A%E5%A3%AB%E7%94%9F%E5%9C%A8%E7%BE%8E%E8%87%AA%E6%9D%80%23&Refer=top) `780.0K 🔥`
+1. [考古人员感慨三星堆祭祀坑太难得](https://s.weibo.com/weibo?q=%23%E8%80%83%E5%8F%A4%E4%BA%BA%E5%91%98%E6%84%9F%E6%85%A8%E4%B8%89%E6%98%9F%E5%A0%86%E7%A5%AD%E7%A5%80%E5%9D%91%E5%A4%AA%E9%9A%BE%E5%BE%97%23&Refer=top) `744.5K 🔥`
 1. [饿了么回应7道菜仅1道正品事件](https://s.weibo.com/weibo?q=%E9%A5%BF%E4%BA%86%E4%B9%88%E5%9B%9E%E5%BA%947%E9%81%93%E8%8F%9C%E4%BB%851%E9%81%93%E6%AD%A3%E5%93%81%E4%BA%8B%E4%BB%B6&Refer=top) `742.4K 🔥`
 1. [退伍半年女大学生二次入伍](https://s.weibo.com/weibo?q=%E9%80%80%E4%BC%8D%E5%8D%8A%E5%B9%B4%E5%A5%B3%E5%A4%A7%E5%AD%A6%E7%94%9F%E4%BA%8C%E6%AC%A1%E5%85%A5%E4%BC%8D&Refer=top) `741.0K 🔥`
 1. [利路修想跟着淘汰选手一起走](https://s.weibo.com/weibo?q=%23%E5%88%A9%E8%B7%AF%E4%BF%AE%E6%83%B3%E8%B7%9F%E7%9D%80%E6%B7%98%E6%B1%B0%E9%80%89%E6%89%8B%E4%B8%80%E8%B5%B7%E8%B5%B0%23&Refer=top) `740.8K 🔥`
-1. [考古人员感慨三星堆祭祀坑太难得](https://s.weibo.com/weibo?q=%23%E8%80%83%E5%8F%A4%E4%BA%BA%E5%91%98%E6%84%9F%E6%85%A8%E4%B8%89%E6%98%9F%E5%A0%86%E7%A5%AD%E7%A5%80%E5%9D%91%E5%A4%AA%E9%9A%BE%E5%BE%97%23&Refer=top) `734.0K 🔥`
 1. [杨笠](https://s.weibo.com/weibo?q=%E6%9D%A8%E7%AC%A0&Refer=top) `724.3K 🔥`
 1. [英特尔回应杨笠代言争议](https://s.weibo.com/weibo?q=%23%E8%8B%B1%E7%89%B9%E5%B0%94%E5%9B%9E%E5%BA%94%E6%9D%A8%E7%AC%A0%E4%BB%A3%E8%A8%80%E4%BA%89%E8%AE%AE%23&Refer=top) `716.7K 🔥`
 
-数据更新于 2021-03-22 15:29:12
+数据更新于 2021-03-22 15:40:35
 
 <!-- END -->
 
