@@ -57,7 +57,7 @@
 1. [亚裔69岁老人遭暴力拖拽抢劫](https://s.weibo.com/weibo?q=%E4%BA%9A%E8%A3%9469%E5%B2%81%E8%80%81%E4%BA%BA%E9%81%AD%E6%9A%B4%E5%8A%9B%E6%8B%96%E6%8B%BD%E6%8A%A2%E5%8A%AB&Refer=top) `784.2K 🔥`
 1. [中国计算机博士生在美自杀](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E8%AE%A1%E7%AE%97%E6%9C%BA%E5%8D%9A%E5%A3%AB%E7%94%9F%E5%9C%A8%E7%BE%8E%E8%87%AA%E6%9D%80%23&Refer=top) `780.0K 🔥`
 
-数据更新于 2021-03-22 16:01:30
+数据更新于 2021-03-22 16:02:13
 
 <!-- END -->
 
