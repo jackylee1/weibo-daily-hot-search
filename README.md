@@ -21,13 +21,13 @@
 1. [漫画腰 腰椎过伸](https://s.weibo.com/weibo?q=%E6%BC%AB%E7%94%BB%E8%85%B0%20%E8%85%B0%E6%A4%8E%E8%BF%87%E4%BC%B8&Refer=top) `1.9M 🔥`
 1. [中共中央将召开2021年首场新闻发布会](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%85%B1%E4%B8%AD%E5%A4%AE%E5%B0%86%E5%8F%AC%E5%BC%802021%E5%B9%B4%E9%A6%96%E5%9C%BA%E6%96%B0%E9%97%BB%E5%8F%91%E5%B8%83%E4%BC%9A%23&Refer=top) `1.8M 🔥`
 1. [骑手跑腿买7道菜仅一道是正品](https://s.weibo.com/weibo?q=%23%E9%AA%91%E6%89%8B%E8%B7%91%E8%85%BF%E4%B9%B07%E9%81%93%E8%8F%9C%E4%BB%85%E4%B8%80%E9%81%93%E6%98%AF%E6%AD%A3%E5%93%81%23&Refer=top) `1.8M 🔥`
+1. [GAI方否认吸毒](https://s.weibo.com/weibo?q=%23GAI%E6%96%B9%E5%90%A6%E8%AE%A4%E5%90%B8%E6%AF%92%23&Refer=top) `1.8M 🔥`
 1. [张彬彬早期微博画风](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%BD%AC%E5%BD%AC%E6%97%A9%E6%9C%9F%E5%BE%AE%E5%8D%9A%E7%94%BB%E9%A3%8E%23&Refer=top) `1.8M 🔥`
 1. [大宋宫词评分暴跌](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%AE%8B%E5%AE%AB%E8%AF%8D%E8%AF%84%E5%88%86%E6%9A%B4%E8%B7%8C%23&Refer=top) `1.7M 🔥`
 1. [世界每3人有1人无法获得安全饮水](https://s.weibo.com/weibo?q=%23%E4%B8%96%E7%95%8C%E6%AF%8F3%E4%BA%BA%E6%9C%891%E4%BA%BA%E6%97%A0%E6%B3%95%E8%8E%B7%E5%BE%97%E5%AE%89%E5%85%A8%E9%A5%AE%E6%B0%B4%23&Refer=top) `1.7M 🔥`
 1. [南京一双子楼顶现3000平米违建](https://s.weibo.com/weibo?q=%23%E5%8D%97%E4%BA%AC%E4%B8%80%E5%8F%8C%E5%AD%90%E6%A5%BC%E9%A1%B6%E7%8E%B03000%E5%B9%B3%E7%B1%B3%E8%BF%9D%E5%BB%BA%23&Refer=top) `1.7M 🔥`
 1. [山河令 演唱会](https://s.weibo.com/weibo?q=%E5%B1%B1%E6%B2%B3%E4%BB%A4%20%E6%BC%94%E5%94%B1%E4%BC%9A&Refer=top) `1.7M 🔥`
 1. [俄外长称中国是俄罗斯真正的战略伙伴](https://s.weibo.com/weibo?q=%23%E4%BF%84%E5%A4%96%E9%95%BF%E7%A7%B0%E4%B8%AD%E5%9B%BD%E6%98%AF%E4%BF%84%E7%BD%97%E6%96%AF%E7%9C%9F%E6%AD%A3%E7%9A%84%E6%88%98%E7%95%A5%E4%BC%99%E4%BC%B4%23&Refer=top) `1.6M 🔥`
-1. [GAI方否认吸毒](https://s.weibo.com/weibo?q=GAI%E6%96%B9%E5%90%A6%E8%AE%A4%E5%90%B8%E6%AF%92&Refer=top) `1.6M 🔥`
 1. [易烊千玺登上烂番茄](https://s.weibo.com/weibo?q=%23%E6%98%93%E7%83%8A%E5%8D%83%E7%8E%BA%E7%99%BB%E4%B8%8A%E7%83%82%E7%95%AA%E8%8C%84%23&Refer=top) `1.6M 🔥`
 1. [这也是乾隆审美](https://s.weibo.com/weibo?q=%23%E8%BF%99%E4%B9%9F%E6%98%AF%E4%B9%BE%E9%9A%86%E5%AE%A1%E7%BE%8E%23&Refer=top) `1.6M 🔥`
 1. [张萌说好男人要经得起查手机](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%90%8C%E8%AF%B4%E5%A5%BD%E7%94%B7%E4%BA%BA%E8%A6%81%E7%BB%8F%E5%BE%97%E8%B5%B7%E6%9F%A5%E6%89%8B%E6%9C%BA%23&Refer=top) `1.4M 🔥`
@@ -57,7 +57,7 @@
 1. [亚裔69岁老人遭暴力拖拽抢劫](https://s.weibo.com/weibo?q=%E4%BA%9A%E8%A3%9469%E5%B2%81%E8%80%81%E4%BA%BA%E9%81%AD%E6%9A%B4%E5%8A%9B%E6%8B%96%E6%8B%BD%E6%8A%A2%E5%8A%AB&Refer=top) `784.2K 🔥`
 1. [中国计算机博士生在美自杀](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E8%AE%A1%E7%AE%97%E6%9C%BA%E5%8D%9A%E5%A3%AB%E7%94%9F%E5%9C%A8%E7%BE%8E%E8%87%AA%E6%9D%80%23&Refer=top) `780.0K 🔥`
 
-数据更新于 2021-03-22 15:56:42
+数据更新于 2021-03-22 15:58:27
 
 <!-- END -->
 
