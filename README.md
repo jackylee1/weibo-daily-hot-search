@@ -26,6 +26,7 @@
 1. [白敬亭童年照](https://s.weibo.com/weibo?q=%23%E7%99%BD%E6%95%AC%E4%BA%AD%E7%AB%A5%E5%B9%B4%E7%85%A7%23&Refer=top) `1.8M 🔥`
 1. [Ella拿厨房剪刀给妈妈剪头发](https://s.weibo.com/weibo?q=Ella%E6%8B%BF%E5%8E%A8%E6%88%BF%E5%89%AA%E5%88%80%E7%BB%99%E5%A6%88%E5%A6%88%E5%89%AA%E5%A4%B4%E5%8F%91&Refer=top) `1.8M 🔥`
 1. [突然降温后的海南街头](https://s.weibo.com/weibo?q=%23%E7%AA%81%E7%84%B6%E9%99%8D%E6%B8%A9%E5%90%8E%E7%9A%84%E6%B5%B7%E5%8D%97%E8%A1%97%E5%A4%B4%23&Refer=top) `1.6M 🔥`
+1. [阿湘死了](https://s.weibo.com/weibo?q=%E9%98%BF%E6%B9%98%E6%AD%BB%E4%BA%86&Refer=top) `1.6M 🔥`
 1. [王毅回应中国搞疫苗外交](https://s.weibo.com/weibo?q=%E7%8E%8B%E6%AF%85%E5%9B%9E%E5%BA%94%E4%B8%AD%E5%9B%BD%E6%90%9E%E7%96%AB%E8%8B%97%E5%A4%96%E4%BA%A4&Refer=top) `1.5M 🔥`
 1. [山河令大结局](https://s.weibo.com/weibo?q=%E5%B1%B1%E6%B2%B3%E4%BB%A4%E5%A4%A7%E7%BB%93%E5%B1%80&Refer=top) `1.5M 🔥`
 1. [姐看看月亮组吧](https://s.weibo.com/weibo?q=%E5%A7%90%E7%9C%8B%E7%9C%8B%E6%9C%88%E4%BA%AE%E7%BB%84%E5%90%A7&Refer=top) `1.5M 🔥`
@@ -43,10 +44,10 @@
 1. [亚裔奶奶捐出网友捐款帮助亚裔群体](https://s.weibo.com/weibo?q=%E4%BA%9A%E8%A3%94%E5%A5%B6%E5%A5%B6%E6%8D%90%E5%87%BA%E7%BD%91%E5%8F%8B%E6%8D%90%E6%AC%BE%E5%B8%AE%E5%8A%A9%E4%BA%9A%E8%A3%94%E7%BE%A4%E4%BD%93&Refer=top) `956.5K 🔥`
 1. [第一视角体验家暴](https://s.weibo.com/weibo?q=%23%E7%AC%AC%E4%B8%80%E8%A7%86%E8%A7%92%E4%BD%93%E9%AA%8C%E5%AE%B6%E6%9A%B4%23&Refer=top) `945.8K 🔥`
 1. [西藏冒险王亲属称将尸检查明死因](https://s.weibo.com/weibo?q=%E8%A5%BF%E8%97%8F%E5%86%92%E9%99%A9%E7%8E%8B%E4%BA%B2%E5%B1%9E%E7%A7%B0%E5%B0%86%E5%B0%B8%E6%A3%80%E6%9F%A5%E6%98%8E%E6%AD%BB%E5%9B%A0&Refer=top) `944.3K 🔥`
+1. [龚俊说是rapper担当时比的手势](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E8%AF%B4%E6%98%AFrapper%E6%8B%85%E5%BD%93%E6%97%B6%E6%AF%94%E7%9A%84%E6%89%8B%E5%8A%BF%23&Refer=top) `919.3K 🔥`
 1. [吉林发现巨型黑曜岩石叶石核](https://s.weibo.com/weibo?q=%E5%90%89%E6%9E%97%E5%8F%91%E7%8E%B0%E5%B7%A8%E5%9E%8B%E9%BB%91%E6%9B%9C%E5%B2%A9%E7%9F%B3%E5%8F%B6%E7%9F%B3%E6%A0%B8&Refer=top) `918.6K 🔥`
 1. [三星堆](https://s.weibo.com/weibo?q=%E4%B8%89%E6%98%9F%E5%A0%86&Refer=top) `881.9K 🔥`
 1. [中共中央2021年首场新闻发布会](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%85%B1%E4%B8%AD%E5%A4%AE2021%E5%B9%B4%E9%A6%96%E5%9C%BA%E6%96%B0%E9%97%BB%E5%8F%91%E5%B8%83%E4%BC%9A%23&Refer=top) `839.7K 🔥`
-1. [龚俊说是rapper担当时比的手势](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E8%AF%B4%E6%98%AFrapper%E6%8B%85%E5%BD%93%E6%97%B6%E6%AF%94%E7%9A%84%E6%89%8B%E5%8A%BF%23&Refer=top) `832.7K 🔥`
 1. [利路修重复最多的话是我想回家](https://s.weibo.com/weibo?q=%23%E5%88%A9%E8%B7%AF%E4%BF%AE%E9%87%8D%E5%A4%8D%E6%9C%80%E5%A4%9A%E7%9A%84%E8%AF%9D%E6%98%AF%E6%88%91%E6%83%B3%E5%9B%9E%E5%AE%B6%23&Refer=top) `819.7K 🔥`
 1. [上海链家回应下架万套二手房源](https://s.weibo.com/weibo?q=%E4%B8%8A%E6%B5%B7%E9%93%BE%E5%AE%B6%E5%9B%9E%E5%BA%94%E4%B8%8B%E6%9E%B6%E4%B8%87%E5%A5%97%E4%BA%8C%E6%89%8B%E6%88%BF%E6%BA%90&Refer=top) `803.1K 🔥`
 1. [火箭军直接选拔招录军官宣传片](https://s.weibo.com/weibo?q=%E7%81%AB%E7%AE%AD%E5%86%9B%E7%9B%B4%E6%8E%A5%E9%80%89%E6%8B%94%E6%8B%9B%E5%BD%95%E5%86%9B%E5%AE%98%E5%AE%A3%E4%BC%A0%E7%89%87&Refer=top) `798.9K 🔥`
@@ -55,9 +56,8 @@
 1. [浙江居家隔离允许外出](https://s.weibo.com/weibo?q=%23%E6%B5%99%E6%B1%9F%E5%B1%85%E5%AE%B6%E9%9A%94%E7%A6%BB%E5%85%81%E8%AE%B8%E5%A4%96%E5%87%BA%23&Refer=top) `784.7K 🔥`
 1. [七一勋章](https://s.weibo.com/weibo?q=%23%E4%B8%83%E4%B8%80%E5%8B%8B%E7%AB%A0%23&Refer=top) `780.3K 🔥`
 1. [建党百年庆祝活动没有安排阅兵](https://s.weibo.com/weibo?q=%E5%BB%BA%E5%85%9A%E7%99%BE%E5%B9%B4%E5%BA%86%E7%A5%9D%E6%B4%BB%E5%8A%A8%E6%B2%A1%E6%9C%89%E5%AE%89%E6%8E%92%E9%98%85%E5%85%B5&Refer=top) `777.0K 🔥`
-1. [推特CEO第一条推文拍出290万美元](https://s.weibo.com/weibo?q=%E6%8E%A8%E7%89%B9CEO%E7%AC%AC%E4%B8%80%E6%9D%A1%E6%8E%A8%E6%96%87%E6%8B%8D%E5%87%BA290%E4%B8%87%E7%BE%8E%E5%85%83&Refer=top) `774.7K 🔥`
 
-数据更新于 2021-03-23 18:44:48
+数据更新于 2021-03-23 18:56:35
 
 <!-- END -->
 
