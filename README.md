@@ -20,6 +20,7 @@
 1. [得物耐克交易量](https://s.weibo.com/weibo?q=%23%E5%BE%97%E7%89%A9%E8%80%90%E5%85%8B%E4%BA%A4%E6%98%93%E9%87%8F%23&Refer=top) `4.6M 🔥`
 1. [王子文 吴永恩](https://s.weibo.com/weibo?q=%E7%8E%8B%E5%AD%90%E6%96%87%20%E5%90%B4%E6%B0%B8%E6%81%A9&Refer=top) `4.5M 🔥`
 1. [陈学冬晒购物记录支持新疆棉](https://s.weibo.com/weibo?q=%23%E9%99%88%E5%AD%A6%E5%86%AC%E6%99%92%E8%B4%AD%E7%89%A9%E8%AE%B0%E5%BD%95%E6%94%AF%E6%8C%81%E6%96%B0%E7%96%86%E6%A3%89%23&Refer=top) `4.4M 🔥`
+1. [张少华去世](https://s.weibo.com/weibo?q=%E5%BC%A0%E5%B0%91%E5%8D%8E%E5%8E%BB%E4%B8%96&Refer=top) `3.9M 🔥`
 1. [央视评HM抵制新疆棉花](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E8%AF%84HM%E6%8A%B5%E5%88%B6%E6%96%B0%E7%96%86%E6%A3%89%E8%8A%B1%23&Refer=top) `3.9M 🔥`
 1. [李宁股价大涨逾7%](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E5%AE%81%E8%82%A1%E4%BB%B7%E5%A4%A7%E6%B6%A8%E9%80%BE7%25%23&Refer=top) `3.8M 🔥`
 1. [听完日媒记者的提问华春莹笑了](https://s.weibo.com/weibo?q=%23%E5%90%AC%E5%AE%8C%E6%97%A5%E5%AA%92%E8%AE%B0%E8%80%85%E7%9A%84%E6%8F%90%E9%97%AE%E5%8D%8E%E6%98%A5%E8%8E%B9%E7%AC%91%E4%BA%86%23&Refer=top) `3.6M 🔥`
@@ -55,9 +56,8 @@
 1. [多款地图APP屏蔽HM店铺](https://s.weibo.com/weibo?q=%23%E5%A4%9A%E6%AC%BE%E5%9C%B0%E5%9B%BEAPP%E5%B1%8F%E8%94%BDHM%E5%BA%97%E9%93%BA%23&Refer=top) `1.1M 🔥`
 1. [快乐大本营录制](https://s.weibo.com/weibo?q=%E5%BF%AB%E4%B9%90%E5%A4%A7%E6%9C%AC%E8%90%A5%E5%BD%95%E5%88%B6&Refer=top) `1.1M 🔥`
 1. [宋茜终止与HM合作](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E8%8C%9C%E7%BB%88%E6%AD%A2%E4%B8%8EHM%E5%90%88%E4%BD%9C%23&Refer=top) `1.1M 🔥`
-1. [共青团中央点名HM](https://s.weibo.com/weibo?q=%23%E5%85%B1%E9%9D%92%E5%9B%A2%E4%B8%AD%E5%A4%AE%E7%82%B9%E5%90%8DHM%23&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-03-25 14:41:22
+数据更新于 2021-03-25 14:59:23
 
 <!-- END -->
 
