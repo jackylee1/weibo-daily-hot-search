@@ -29,6 +29,7 @@
 1. [央视评HM抵制新疆棉花](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E8%AF%84HM%E6%8A%B5%E5%88%B6%E6%96%B0%E7%96%86%E6%A3%89%E8%8A%B1%23&Refer=top) `3.9M 🔥`
 1. [李宁股价大涨逾7%](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E5%AE%81%E8%82%A1%E4%BB%B7%E5%A4%A7%E6%B6%A8%E9%80%BE7%25%23&Refer=top) `3.8M 🔥`
 1. [华春莹展示美国黑奴被迫采棉花照片](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E6%98%A5%E8%8E%B9%E5%B1%95%E7%A4%BA%E7%BE%8E%E5%9B%BD%E9%BB%91%E5%A5%B4%E8%A2%AB%E8%BF%AB%E9%87%87%E6%A3%89%E8%8A%B1%E7%85%A7%E7%89%87%23&Refer=top) `3.6M 🔥`
+1. [陈奕迅终止与阿迪达斯合作](https://s.weibo.com/weibo?q=%23%E9%99%88%E5%A5%95%E8%BF%85%E7%BB%88%E6%AD%A2%E4%B8%8E%E9%98%BF%E8%BF%AA%E8%BE%BE%E6%96%AF%E5%90%88%E4%BD%9C%23&Refer=top) `3.6M 🔥`
 1. [听完日媒记者的提问华春莹笑了](https://s.weibo.com/weibo?q=%23%E5%90%AC%E5%AE%8C%E6%97%A5%E5%AA%92%E8%AE%B0%E8%80%85%E7%9A%84%E6%8F%90%E9%97%AE%E5%8D%8E%E6%98%A5%E8%8E%B9%E7%AC%91%E4%BA%86%23&Refer=top) `3.6M 🔥`
 1. [不要为难打工人](https://s.weibo.com/weibo?q=%23%E4%B8%8D%E8%A6%81%E4%B8%BA%E9%9A%BE%E6%89%93%E5%B7%A5%E4%BA%BA%23&Refer=top) `3.4M 🔥`
 1. [优衣库](https://s.weibo.com/weibo?q=%E4%BC%98%E8%A1%A3%E5%BA%93&Refer=top) `3.4M 🔥`
@@ -37,7 +38,6 @@
 1. [中国棉花协会发文](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E6%A3%89%E8%8A%B1%E5%8D%8F%E4%BC%9A%E5%8F%91%E6%96%87%23&Refer=top) `2.8M 🔥`
 1. [中消协称严重关切HM事件](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E6%B6%88%E5%8D%8F%E7%A7%B0%E4%B8%A5%E9%87%8D%E5%85%B3%E5%88%87HM%E4%BA%8B%E4%BB%B6%23&Refer=top) `2.8M 🔥`
 1. [易烊千玺终止与阿迪达斯合作](https://s.weibo.com/weibo?q=%23%E6%98%93%E7%83%8A%E5%8D%83%E7%8E%BA%E7%BB%88%E6%AD%A2%E4%B8%8E%E9%98%BF%E8%BF%AA%E8%BE%BE%E6%96%AF%E5%90%88%E4%BD%9C%23&Refer=top) `2.8M 🔥`
-1. [陈奕迅终止与阿迪达斯合作](https://s.weibo.com/weibo?q=%23%E9%99%88%E5%A5%95%E8%BF%85%E7%BB%88%E6%AD%A2%E4%B8%8E%E9%98%BF%E8%BF%AA%E8%BE%BE%E6%96%AF%E5%90%88%E4%BD%9C%23&Refer=top) `2.7M 🔥`
 1. [小学生飞奔过马路被撞身亡](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E5%AD%A6%E7%94%9F%E9%A3%9E%E5%A5%94%E8%BF%87%E9%A9%AC%E8%B7%AF%E8%A2%AB%E6%92%9E%E8%BA%AB%E4%BA%A1%23&Refer=top) `2.7M 🔥`
 1. [变形金刚摘棉花](https://s.weibo.com/weibo?q=%23%E5%8F%98%E5%BD%A2%E9%87%91%E5%88%9A%E6%91%98%E6%A3%89%E8%8A%B1%23&Refer=top) `2.6M 🔥`
 1. [IU回归](https://s.weibo.com/weibo?q=IU%E5%9B%9E%E5%BD%92&Refer=top) `2.5M 🔥`
@@ -57,7 +57,7 @@
 1. [一线城市年轻人租房时间越来越长](https://s.weibo.com/weibo?q=%23%E4%B8%80%E7%BA%BF%E5%9F%8E%E5%B8%82%E5%B9%B4%E8%BD%BB%E4%BA%BA%E7%A7%9F%E6%88%BF%E6%97%B6%E9%97%B4%E8%B6%8A%E6%9D%A5%E8%B6%8A%E9%95%BF%23&Refer=top) `2.0M 🔥`
 1. [安踏退出BCI组织](https://s.weibo.com/weibo?q=%E5%AE%89%E8%B8%8F%E9%80%80%E5%87%BABCI%E7%BB%84%E7%BB%87&Refer=top) `2.0M 🔥`
 
-数据更新于 2021-03-25 19:36:55
+数据更新于 2021-03-25 19:47:12
 
 <!-- END -->
 
