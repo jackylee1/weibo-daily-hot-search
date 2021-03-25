@@ -44,6 +44,8 @@
 1. [中国棉花协会发文](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E6%A3%89%E8%8A%B1%E5%8D%8F%E4%BC%9A%E5%8F%91%E6%96%87%23&Refer=top) `2.8M 🔥`
 1. [中消协称严重关切HM事件](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E6%B6%88%E5%8D%8F%E7%A7%B0%E4%B8%A5%E9%87%8D%E5%85%B3%E5%88%87HM%E4%BA%8B%E4%BB%B6%23&Refer=top) `2.8M 🔥`
 1. [易烊千玺终止与阿迪达斯合作](https://s.weibo.com/weibo?q=%23%E6%98%93%E7%83%8A%E5%8D%83%E7%8E%BA%E7%BB%88%E6%AD%A2%E4%B8%8E%E9%98%BF%E8%BF%AA%E8%BE%BE%E6%96%AF%E5%90%88%E4%BD%9C%23&Refer=top) `2.8M 🔥`
+1. [国产车厘子价格升至120元每斤](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E4%BA%A7%E8%BD%A6%E5%8E%98%E5%AD%90%E4%BB%B7%E6%A0%BC%E5%8D%87%E8%87%B3120%E5%85%83%E6%AF%8F%E6%96%A4%23&Refer=top) `2.7M 🔥`
+1. [白敬亭误机](https://s.weibo.com/weibo?q=%23%E7%99%BD%E6%95%AC%E4%BA%AD%E8%AF%AF%E6%9C%BA%23&Refer=top) `2.7M 🔥`
 1. [小学生飞奔过马路被撞身亡](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E5%AD%A6%E7%94%9F%E9%A3%9E%E5%A5%94%E8%BF%87%E9%A9%AC%E8%B7%AF%E8%A2%AB%E6%92%9E%E8%BA%AB%E4%BA%A1%23&Refer=top) `2.7M 🔥`
 1. [刘亦菲终止与阿迪达斯合作](https://s.weibo.com/weibo?q=%23%E5%88%98%E4%BA%A6%E8%8F%B2%E7%BB%88%E6%AD%A2%E4%B8%8E%E9%98%BF%E8%BF%AA%E8%BE%BE%E6%96%AF%E5%90%88%E4%BD%9C%23&Refer=top) `2.6M 🔥`
 1. [变形金刚摘棉花](https://s.weibo.com/weibo?q=%23%E5%8F%98%E5%BD%A2%E9%87%91%E5%88%9A%E6%91%98%E6%A3%89%E8%8A%B1%23&Refer=top) `2.6M 🔥`
@@ -54,10 +56,8 @@
 1. [一个学校能有多大](https://s.weibo.com/weibo?q=%23%E4%B8%80%E4%B8%AA%E5%AD%A6%E6%A0%A1%E8%83%BD%E6%9C%89%E5%A4%9A%E5%A4%A7%23&Refer=top) `2.4M 🔥`
 1. [幼师多次针刺9幼儿被公诉](https://s.weibo.com/weibo?q=%E5%B9%BC%E5%B8%88%E5%A4%9A%E6%AC%A1%E9%92%88%E5%88%BA9%E5%B9%BC%E5%84%BF%E8%A2%AB%E5%85%AC%E8%AF%89&Refer=top) `2.4M 🔥`
 1. [欧阳娜娜终止与匡威合作](https://s.weibo.com/weibo?q=%E6%AC%A7%E9%98%B3%E5%A8%9C%E5%A8%9C%E7%BB%88%E6%AD%A2%E4%B8%8E%E5%8C%A1%E5%A8%81%E5%90%88%E4%BD%9C&Refer=top) `2.4M 🔥`
-1. [得物APP客服回应下架耐克](https://s.weibo.com/weibo?q=%23%E5%BE%97%E7%89%A9APP%E5%AE%A2%E6%9C%8D%E5%9B%9E%E5%BA%94%E4%B8%8B%E6%9E%B6%E8%80%90%E5%85%8B%23&Refer=top) `2.3M 🔥`
-1. [薇娅下架涉及污蔑新疆棉品牌](https://s.weibo.com/weibo?q=%23%E8%96%87%E5%A8%85%E4%B8%8B%E6%9E%B6%E6%B6%89%E5%8F%8A%E6%B1%A1%E8%94%91%E6%96%B0%E7%96%86%E6%A3%89%E5%93%81%E7%89%8C%23&Refer=top) `2.2M 🔥`
 
-数据更新于 2021-03-25 22:58:01
+数据更新于 2021-03-25 23:10:08
 
 <!-- END -->
 
