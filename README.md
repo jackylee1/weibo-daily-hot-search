@@ -11,7 +11,7 @@
 1. [耐克](https://s.weibo.com/weibo?q=%E8%80%90%E5%85%8B&Refer=top) `14.6M 🔥`
 1. [张少华去世](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%B0%91%E5%8D%8E%E5%8E%BB%E4%B8%96%23&Refer=top) `12.0M 🔥`
 1. [新疆棉花中国自己还不够用](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%96%86%E6%A3%89%E8%8A%B1%E4%B8%AD%E5%9B%BD%E8%87%AA%E5%B7%B1%E8%BF%98%E4%B8%8D%E5%A4%9F%E7%94%A8%23&Refer=top) `10.1M 🔥`
-1. [FILA中国退出BCI](https://s.weibo.com/weibo?q=FILA%E4%B8%AD%E5%9B%BD%E9%80%80%E5%87%BABCI&Refer=top) `8.5M 🔥`
+1. [FILA中国退出BCI](https://s.weibo.com/weibo?q=FILA%E4%B8%AD%E5%9B%BD%E9%80%80%E5%87%BABCI&Refer=top) `8.6M 🔥`
 1. [无印良品求生欲](https://s.weibo.com/weibo?q=%23%E6%97%A0%E5%8D%B0%E8%89%AF%E5%93%81%E6%B1%82%E7%94%9F%E6%AC%B2%23&Refer=top) `8.4M 🔥`
 1. [杨幂迪丽热巴终止与阿迪达斯合作](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E5%B9%82%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E7%BB%88%E6%AD%A2%E4%B8%8E%E9%98%BF%E8%BF%AA%E8%BE%BE%E6%96%AF%E5%90%88%E4%BD%9C%23&Refer=top) `8.2M 🔥`
 1. [白敬亭终止与匡威合作](https://s.weibo.com/weibo?q=%23%E7%99%BD%E6%95%AC%E4%BA%AD%E7%BB%88%E6%AD%A2%E4%B8%8E%E5%8C%A1%E5%A8%81%E5%90%88%E4%BD%9C%23&Refer=top) `7.6M 🔥`
@@ -57,7 +57,7 @@
 1. [得物APP客服回应下架耐克](https://s.weibo.com/weibo?q=%23%E5%BE%97%E7%89%A9APP%E5%AE%A2%E6%9C%8D%E5%9B%9E%E5%BA%94%E4%B8%8B%E6%9E%B6%E8%80%90%E5%85%8B%23&Refer=top) `2.3M 🔥`
 1. [薇娅下架涉及污蔑新疆棉品牌](https://s.weibo.com/weibo?q=%23%E8%96%87%E5%A8%85%E4%B8%8B%E6%9E%B6%E6%B6%89%E5%8F%8A%E6%B1%A1%E8%94%91%E6%96%B0%E7%96%86%E6%A3%89%E5%93%81%E7%89%8C%23&Refer=top) `2.2M 🔥`
 
-数据更新于 2021-03-25 22:51:17
+数据更新于 2021-03-25 22:55:35
 
 <!-- END -->
 
