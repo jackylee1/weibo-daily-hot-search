@@ -57,7 +57,7 @@
 1. [安踏退出BCI组织](https://s.weibo.com/weibo?q=%E5%AE%89%E8%B8%8F%E9%80%80%E5%87%BABCI%E7%BB%84%E7%BB%87&Refer=top) `2.0M 🔥`
 1. [陈伟霆终止与TommyHilfiger合作](https://s.weibo.com/weibo?q=%23%E9%99%88%E4%BC%9F%E9%9C%86%E7%BB%88%E6%AD%A2%E4%B8%8ETommyHilfiger%E5%90%88%E4%BD%9C%23&Refer=top) `2.0M 🔥`
 
-数据更新于 2021-03-25 19:22:44
+数据更新于 2021-03-25 19:31:27
 
 <!-- END -->
 
