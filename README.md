@@ -25,6 +25,7 @@
 1. [张艺兴终止与CK匡威合作](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%89%BA%E5%85%B4%E7%BB%88%E6%AD%A2%E4%B8%8ECK%E5%8C%A1%E5%A8%81%E5%90%88%E4%BD%9C%23&Refer=top) `4.6M 🔥`
 1. [王子文 吴永恩](https://s.weibo.com/weibo?q=%E7%8E%8B%E5%AD%90%E6%96%87%20%E5%90%B4%E6%B0%B8%E6%81%A9&Refer=top) `4.5M 🔥`
 1. [陈学冬晒购物记录支持新疆棉](https://s.weibo.com/weibo?q=%23%E9%99%88%E5%AD%A6%E5%86%AC%E6%99%92%E8%B4%AD%E7%89%A9%E8%AE%B0%E5%BD%95%E6%94%AF%E6%8C%81%E6%96%B0%E7%96%86%E6%A3%89%23&Refer=top) `4.4M 🔥`
+1. [李现杨洋刘昊然终止与彪马合作](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E7%8E%B0%E6%9D%A8%E6%B4%8B%E5%88%98%E6%98%8A%E7%84%B6%E7%BB%88%E6%AD%A2%E4%B8%8E%E5%BD%AA%E9%A9%AC%E5%90%88%E4%BD%9C%23&Refer=top) `3.9M 🔥`
 1. [央视评HM抵制新疆棉花](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E8%AF%84HM%E6%8A%B5%E5%88%B6%E6%96%B0%E7%96%86%E6%A3%89%E8%8A%B1%23&Refer=top) `3.9M 🔥`
 1. [李宁股价大涨逾7%](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E5%AE%81%E8%82%A1%E4%BB%B7%E5%A4%A7%E6%B6%A8%E9%80%BE7%25%23&Refer=top) `3.8M 🔥`
 1. [华春莹展示美国黑奴被迫采棉花照片](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E6%98%A5%E8%8E%B9%E5%B1%95%E7%A4%BA%E7%BE%8E%E5%9B%BD%E9%BB%91%E5%A5%B4%E8%A2%AB%E8%BF%AB%E9%87%87%E6%A3%89%E8%8A%B1%E7%85%A7%E7%89%87%23&Refer=top) `3.6M 🔥`
@@ -55,9 +56,8 @@
 1. [安踏退出BCI组织](https://s.weibo.com/weibo?q=%E5%AE%89%E8%B8%8F%E9%80%80%E5%87%BABCI%E7%BB%84%E7%BB%87&Refer=top) `2.0M 🔥`
 1. [陈伟霆终止与TommyHilfiger合作](https://s.weibo.com/weibo?q=%23%E9%99%88%E4%BC%9F%E9%9C%86%E7%BB%88%E6%AD%A2%E4%B8%8ETommyHilfiger%E5%90%88%E4%BD%9C%23&Refer=top) `2.0M 🔥`
 1. [HM替代品合集](https://s.weibo.com/weibo?q=%23HM%E6%9B%BF%E4%BB%A3%E5%93%81%E5%90%88%E9%9B%86%23&Refer=top) `2.0M 🔥`
-1. [李现杨洋刘昊然终止与彪马合作](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E7%8E%B0%E6%9D%A8%E6%B4%8B%E5%88%98%E6%98%8A%E7%84%B6%E7%BB%88%E6%AD%A2%E4%B8%8E%E5%BD%AA%E9%A9%AC%E5%90%88%E4%BD%9C%23&Refer=top) `2.0M 🔥`
 
-数据更新于 2021-03-25 18:33:11
+数据更新于 2021-03-25 18:46:09
 
 <!-- END -->
 
