@@ -50,14 +50,14 @@
 1. [一个学校能有多大](https://s.weibo.com/weibo?q=%23%E4%B8%80%E4%B8%AA%E5%AD%A6%E6%A0%A1%E8%83%BD%E6%9C%89%E5%A4%9A%E5%A4%A7%23&Refer=top) `2.4M 🔥`
 1. [幼师多次针刺9幼儿被公诉](https://s.weibo.com/weibo?q=%E5%B9%BC%E5%B8%88%E5%A4%9A%E6%AC%A1%E9%92%88%E5%88%BA9%E5%B9%BC%E5%84%BF%E8%A2%AB%E5%85%AC%E8%AF%89&Refer=top) `2.4M 🔥`
 1. [欧阳娜娜终止与匡威合作](https://s.weibo.com/weibo?q=%E6%AC%A7%E9%98%B3%E5%A8%9C%E5%A8%9C%E7%BB%88%E6%AD%A2%E4%B8%8E%E5%8C%A1%E5%A8%81%E5%90%88%E4%BD%9C&Refer=top) `2.4M 🔥`
+1. [一张支持新疆棉的大长图](https://s.weibo.com/weibo?q=%23%E4%B8%80%E5%BC%A0%E6%94%AF%E6%8C%81%E6%96%B0%E7%96%86%E6%A3%89%E7%9A%84%E5%A4%A7%E9%95%BF%E5%9B%BE%23&Refer=top) `2.3M 🔥`
 1. [得物APP客服回应下架耐克](https://s.weibo.com/weibo?q=%23%E5%BE%97%E7%89%A9APP%E5%AE%A2%E6%9C%8D%E5%9B%9E%E5%BA%94%E4%B8%8B%E6%9E%B6%E8%80%90%E5%85%8B%23&Refer=top) `2.3M 🔥`
 1. [薇娅下架涉及污蔑新疆棉品牌](https://s.weibo.com/weibo?q=%23%E8%96%87%E5%A8%85%E4%B8%8B%E6%9E%B6%E6%B6%89%E5%8F%8A%E6%B1%A1%E8%94%91%E6%96%B0%E7%96%86%E6%A3%89%E5%93%81%E7%89%8C%23&Refer=top) `2.2M 🔥`
 1. [王嘉尔终止与阿迪达斯合作](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E5%98%89%E5%B0%94%E7%BB%88%E6%AD%A2%E4%B8%8E%E9%98%BF%E8%BF%AA%E8%BE%BE%E6%96%AF%E5%90%88%E4%BD%9C%23&Refer=top) `2.2M 🔥`
 1. [BCI是个什么组织](https://s.weibo.com/weibo?q=BCI%E6%98%AF%E4%B8%AA%E4%BB%80%E4%B9%88%E7%BB%84%E7%BB%87&Refer=top) `2.0M 🔥`
 1. [淘宝特价版已向微信提交小程序申请](https://s.weibo.com/weibo?q=%23%E6%B7%98%E5%AE%9D%E7%89%B9%E4%BB%B7%E7%89%88%E5%B7%B2%E5%90%91%E5%BE%AE%E4%BF%A1%E6%8F%90%E4%BA%A4%E5%B0%8F%E7%A8%8B%E5%BA%8F%E7%94%B3%E8%AF%B7%23&Refer=top) `2.0M 🔥`
-1. [央视主播为新疆代言](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E4%B8%BB%E6%92%AD%E4%B8%BA%E6%96%B0%E7%96%86%E4%BB%A3%E8%A8%80%23&Refer=top) `2.0M 🔥`
 
-数据更新于 2021-03-25 20:16:20
+数据更新于 2021-03-25 20:38:53
 
 <!-- END -->
 
