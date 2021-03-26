@@ -57,7 +57,7 @@
 1. [中国大使谴责CNN误报新疆](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%A4%A7%E4%BD%BF%E8%B0%B4%E8%B4%A3CNN%E8%AF%AF%E6%8A%A5%E6%96%B0%E7%96%86%23&Refer=top) `1.3M 🔥`
 1. [景甜让吴彤把司藤作为头像](https://s.weibo.com/weibo?q=%23%E6%99%AF%E7%94%9C%E8%AE%A9%E5%90%B4%E5%BD%A4%E6%8A%8A%E5%8F%B8%E8%97%A4%E4%BD%9C%E4%B8%BA%E5%A4%B4%E5%83%8F%23&Refer=top) `1.3M 🔥`
 
-数据更新于 2021-03-26 18:01:38
+数据更新于 2021-03-26 18:01:58
 
 <!-- END -->
 
