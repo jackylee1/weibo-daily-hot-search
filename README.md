@@ -57,7 +57,7 @@
 1. [医院回应拒绝戴黑色口罩市民进入](https://s.weibo.com/weibo?q=%E5%8C%BB%E9%99%A2%E5%9B%9E%E5%BA%94%E6%8B%92%E7%BB%9D%E6%88%B4%E9%BB%91%E8%89%B2%E5%8F%A3%E7%BD%A9%E5%B8%82%E6%B0%91%E8%BF%9B%E5%85%A5&Refer=top) `1.3M 🔥`
 1. [中国大使谴责CNN误报新疆](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%A4%A7%E4%BD%BF%E8%B0%B4%E8%B4%A3CNN%E8%AF%AF%E6%8A%A5%E6%96%B0%E7%96%86%23&Refer=top) `1.3M 🔥`
 
-数据更新于 2021-03-26 18:29:35
+数据更新于 2021-03-26 18:30:08
 
 <!-- END -->
 
