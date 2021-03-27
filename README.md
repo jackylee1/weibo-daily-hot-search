@@ -34,7 +34,7 @@
 1. [好多宇](https://s.weibo.com/weibo?q=%E5%A5%BD%E5%A4%9A%E5%AE%87&Refer=top) `629.3K 🔥`
 1. [美国非裔男子15年被误抓超60次](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E9%9D%9E%E8%A3%94%E7%94%B7%E5%AD%9015%E5%B9%B4%E8%A2%AB%E8%AF%AF%E6%8A%93%E8%B6%8560%E6%AC%A1%23&Refer=top) `623.8K 🔥`
 1. [怦然再心动](https://s.weibo.com/weibo?q=%E6%80%A6%E7%84%B6%E5%86%8D%E5%BF%83%E5%8A%A8&Refer=top) `612.7K 🔥`
-1. [央视揭新疆白棉花为何上了黑名单](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E6%8F%AD%E6%96%B0%E7%96%86%E7%99%BD%E6%A3%89%E8%8A%B1%E4%B8%BA%E4%BD%95%E4%B8%8A%E4%BA%86%E9%BB%91%E5%90%8D%E5%8D%95%23&Refer=top) `578.2K 🔥`
+1. [央视揭新疆白棉花为何上了黑名单](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E6%8F%AD%E6%96%B0%E7%96%86%E7%99%BD%E6%A3%89%E8%8A%B1%E4%B8%BA%E4%BD%95%E4%B8%8A%E4%BA%86%E9%BB%91%E5%90%8D%E5%8D%95%23&Refer=top) `590.3K 🔥`
 1. [文森佐](https://s.weibo.com/weibo?q=%E6%96%87%E6%A3%AE%E4%BD%90&Refer=top) `552.5K 🔥`
 1. [爱情鸟又土又潮](https://s.weibo.com/weibo?q=%E7%88%B1%E6%83%85%E9%B8%9F%E5%8F%88%E5%9C%9F%E5%8F%88%E6%BD%AE&Refer=top) `550.9K 🔥`
 1. [公务员的考题有多难](https://s.weibo.com/weibo?q=%23%E5%85%AC%E5%8A%A1%E5%91%98%E7%9A%84%E8%80%83%E9%A2%98%E6%9C%89%E5%A4%9A%E9%9A%BE%23&Refer=top) `509.7K 🔥`
@@ -57,7 +57,7 @@
 1. [老人超市拿鸡蛋被拦猝死案始末](https://s.weibo.com/weibo?q=%23%E8%80%81%E4%BA%BA%E8%B6%85%E5%B8%82%E6%8B%BF%E9%B8%A1%E8%9B%8B%E8%A2%AB%E6%8B%A6%E7%8C%9D%E6%AD%BB%E6%A1%88%E5%A7%8B%E6%9C%AB%23&Refer=top) `242.7K 🔥`
 1. [曾涵江rap实力](https://s.weibo.com/weibo?q=%E6%9B%BE%E6%B6%B5%E6%B1%9Frap%E5%AE%9E%E5%8A%9B&Refer=top) `236.8K 🔥`
 
-数据更新于 2021-03-28 01:33:19
+数据更新于 2021-03-28 01:33:57
 
 <!-- END -->
 
