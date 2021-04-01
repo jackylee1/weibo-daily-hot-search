@@ -23,6 +23,7 @@
 1. [张恒被判归还借款2000万](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%81%92%E8%A2%AB%E5%88%A4%E5%BD%92%E8%BF%98%E5%80%9F%E6%AC%BE2000%E4%B8%87%23&Refer=top) `2.5M 🔥`
 1. [iOS14.5不再默认为女性语音](https://s.weibo.com/weibo?q=%23iOS14.5%E4%B8%8D%E5%86%8D%E9%BB%98%E8%AE%A4%E4%B8%BA%E5%A5%B3%E6%80%A7%E8%AF%AD%E9%9F%B3%23&Refer=top) `2.4M 🔥`
 1. [愚人节文案](https://s.weibo.com/weibo?q=%23%E6%84%9A%E4%BA%BA%E8%8A%82%E6%96%87%E6%A1%88%23&Refer=top) `2.3M 🔥`
+1. [蛇头将孩子扔过美墨边境墙](https://s.weibo.com/weibo?q=%23%E8%9B%87%E5%A4%B4%E5%B0%86%E5%AD%A9%E5%AD%90%E6%89%94%E8%BF%87%E7%BE%8E%E5%A2%A8%E8%BE%B9%E5%A2%83%E5%A2%99%23&Refer=top) `2.3M 🔥`
 1. [李现看到杨紫穿马丁靴比了个赞](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E7%8E%B0%E7%9C%8B%E5%88%B0%E6%9D%A8%E7%B4%AB%E7%A9%BF%E9%A9%AC%E4%B8%81%E9%9D%B4%E6%AF%94%E4%BA%86%E4%B8%AA%E8%B5%9E%23&Refer=top) `2.2M 🔥`
 1. [劝邻桌勿吸烟女子已获道歉赔偿](https://s.weibo.com/weibo?q=%23%E5%8A%9D%E9%82%BB%E6%A1%8C%E5%8B%BF%E5%90%B8%E7%83%9F%E5%A5%B3%E5%AD%90%E5%B7%B2%E8%8E%B7%E9%81%93%E6%AD%89%E8%B5%94%E5%81%BF%23&Refer=top) `2.0M 🔥`
 1. [白敬亭说马思纯咬了他一口](https://s.weibo.com/weibo?q=%23%E7%99%BD%E6%95%AC%E4%BA%AD%E8%AF%B4%E9%A9%AC%E6%80%9D%E7%BA%AF%E5%92%AC%E4%BA%86%E4%BB%96%E4%B8%80%E5%8F%A3%23&Refer=top) `2.0M 🔥`
@@ -46,18 +47,17 @@
 1. [妻子的浪漫旅行5阵容](https://s.weibo.com/weibo?q=%23%E5%A6%BB%E5%AD%90%E7%9A%84%E6%B5%AA%E6%BC%AB%E6%97%85%E8%A1%8C5%E9%98%B5%E5%AE%B9%23&Refer=top) `1.1M 🔥`
 1. [镇江男子勒死妻女后自缢身亡](https://s.weibo.com/weibo?q=%E9%95%87%E6%B1%9F%E7%94%B7%E5%AD%90%E5%8B%92%E6%AD%BB%E5%A6%BB%E5%A5%B3%E5%90%8E%E8%87%AA%E7%BC%A2%E8%BA%AB%E4%BA%A1&Refer=top) `1.1M 🔥`
 1. [求白敬亭交出王嘉尔的直拍](https://s.weibo.com/weibo?q=%23%E6%B1%82%E7%99%BD%E6%95%AC%E4%BA%AD%E4%BA%A4%E5%87%BA%E7%8E%8B%E5%98%89%E5%B0%94%E7%9A%84%E7%9B%B4%E6%8B%8D%23&Refer=top) `1.0M 🔥`
+1. [扫黑纪录片看傻了](https://s.weibo.com/weibo?q=%23%E6%89%AB%E9%BB%91%E7%BA%AA%E5%BD%95%E7%89%87%E7%9C%8B%E5%82%BB%E4%BA%86%23&Refer=top) `1.0M 🔥`
 1. [唐鹤德晒照缅怀张国荣](https://s.weibo.com/weibo?q=%23%E5%94%90%E9%B9%A4%E5%BE%B7%E6%99%92%E7%85%A7%E7%BC%85%E6%80%80%E5%BC%A0%E5%9B%BD%E8%8D%A3%23&Refer=top) `1.0M 🔥`
 1. [时尚芭莎年度派对](https://s.weibo.com/weibo?q=%E6%97%B6%E5%B0%9A%E8%8A%AD%E8%8E%8E%E5%B9%B4%E5%BA%A6%E6%B4%BE%E5%AF%B9&Refer=top) `1.0M 🔥`
 1. [龚俊口型 才不是花蝴蝶](https://s.weibo.com/weibo?q=%E9%BE%9A%E4%BF%8A%E5%8F%A3%E5%9E%8B%20%E6%89%8D%E4%B8%8D%E6%98%AF%E8%8A%B1%E8%9D%B4%E8%9D%B6&Refer=top) `1.0M 🔥`
+1. [中科院化学所发生爆炸](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E7%A7%91%E9%99%A2%E5%8C%96%E5%AD%A6%E6%89%80%E5%8F%91%E7%94%9F%E7%88%86%E7%82%B8%23&Refer=top) `1.0M 🔥`
 1. [雄安新区设立4周年](https://s.weibo.com/weibo?q=%23%E9%9B%84%E5%AE%89%E6%96%B0%E5%8C%BA%E8%AE%BE%E7%AB%8B4%E5%91%A8%E5%B9%B4%23&Refer=top) `989.3K 🔥`
 1. [中化集团与中国化工实施联合重组](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%8C%96%E9%9B%86%E5%9B%A2%E4%B8%8E%E4%B8%AD%E5%9B%BD%E5%8C%96%E5%B7%A5%E5%AE%9E%E6%96%BD%E8%81%94%E5%90%88%E9%87%8D%E7%BB%84&Refer=top) `965.7K 🔥`
 1. [杨笠想跟女保镖交朋友](https://s.weibo.com/weibo?q=%E6%9D%A8%E7%AC%A0%E6%83%B3%E8%B7%9F%E5%A5%B3%E4%BF%9D%E9%95%96%E4%BA%A4%E6%9C%8B%E5%8F%8B&Refer=top) `953.1K 🔥`
 1. [HM在华关闭约20家门店](https://s.weibo.com/weibo?q=%23HM%E5%9C%A8%E5%8D%8E%E5%85%B3%E9%97%AD%E7%BA%A620%E5%AE%B6%E9%97%A8%E5%BA%97%23&Refer=top) `936.5K 🔥`
-1. [日本宠物数量已超儿童人数](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E5%AE%A0%E7%89%A9%E6%95%B0%E9%87%8F%E5%B7%B2%E8%B6%85%E5%84%BF%E7%AB%A5%E4%BA%BA%E6%95%B0%23&Refer=top) `901.6K 🔥`
-1. [吴磊荷尔蒙](https://s.weibo.com/weibo?q=%23%E5%90%B4%E7%A3%8A%E8%8D%B7%E5%B0%94%E8%92%99%23&Refer=top) `894.5K 🔥`
-1. [张韶涵卡斯柏新歌MV](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E9%9F%B6%E6%B6%B5%E5%8D%A1%E6%96%AF%E6%9F%8F%E6%96%B0%E6%AD%8CMV%23&Refer=top) `881.4K 🔥`
 
-数据更新于 2021-04-01 15:32:05
+数据更新于 2021-04-01 15:41:46
 
 <!-- END -->
 
