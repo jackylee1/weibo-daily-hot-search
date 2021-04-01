@@ -53,11 +53,11 @@
 1. [医院引进自动麻将机助患者康复](https://s.weibo.com/weibo?q=%23%E5%8C%BB%E9%99%A2%E5%BC%95%E8%BF%9B%E8%87%AA%E5%8A%A8%E9%BA%BB%E5%B0%86%E6%9C%BA%E5%8A%A9%E6%82%A3%E8%80%85%E5%BA%B7%E5%A4%8D%23&Refer=top) `595.3K 🔥`
 1. [见过最朴素的机场](https://s.weibo.com/weibo?q=%23%E8%A7%81%E8%BF%87%E6%9C%80%E6%9C%B4%E7%B4%A0%E7%9A%84%E6%9C%BA%E5%9C%BA%23&Refer=top) `594.0K 🔥`
 1. [龚俊牵辛芷蕾下台](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E7%89%B5%E8%BE%9B%E8%8A%B7%E8%95%BE%E4%B8%8B%E5%8F%B0%23&Refer=top) `583.1K 🔥`
+1. [吴磊荷尔蒙](https://s.weibo.com/weibo?q=%23%E5%90%B4%E7%A3%8A%E8%8D%B7%E5%B0%94%E8%92%99%23&Refer=top) `565.8K 🔥`
 1. [哈登伤退](https://s.weibo.com/weibo?q=%E5%93%88%E7%99%BB%E4%BC%A4%E9%80%80&Refer=top) `563.8K 🔥`
 1. [人被逼急了能干出什么事](https://s.weibo.com/weibo?q=%23%E4%BA%BA%E8%A2%AB%E9%80%BC%E6%80%A5%E4%BA%86%E8%83%BD%E5%B9%B2%E5%87%BA%E4%BB%80%E4%B9%88%E4%BA%8B%23&Refer=top) `556.2K 🔥`
-1. [迪丽热巴哭戏](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E5%93%AD%E6%88%8F%23&Refer=top) `551.7K 🔥`
 
-数据更新于 2021-04-01 11:35:02
+数据更新于 2021-04-01 11:54:14
 
 <!-- END -->
 
