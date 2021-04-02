@@ -21,6 +21,7 @@
 1. [杨丞琳说心疼吴青峰](https://s.weibo.com/weibo?q=%E6%9D%A8%E4%B8%9E%E7%90%B3%E8%AF%B4%E5%BF%83%E7%96%BC%E5%90%B4%E9%9D%92%E5%B3%B0&Refer=top) `1.8M 🔥`
 1. [十年一品温如言选角](https://s.weibo.com/weibo?q=%E5%8D%81%E5%B9%B4%E4%B8%80%E5%93%81%E6%B8%A9%E5%A6%82%E8%A8%80%E9%80%89%E8%A7%92&Refer=top) `1.8M 🔥`
 1. [迪丽热巴赵露思CP名](https://s.weibo.com/weibo?q=%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E8%B5%B5%E9%9C%B2%E6%80%9DCP%E5%90%8D&Refer=top) `1.7M 🔥`
+1. [刘昊然说袜子不同色是fashion](https://s.weibo.com/weibo?q=%23%E5%88%98%E6%98%8A%E7%84%B6%E8%AF%B4%E8%A2%9C%E5%AD%90%E4%B8%8D%E5%90%8C%E8%89%B2%E6%98%AFfashion%23&Refer=top) `1.5M 🔥`
 1. [清明假期全国天气预报地图](https://s.weibo.com/weibo?q=%23%E6%B8%85%E6%98%8E%E5%81%87%E6%9C%9F%E5%85%A8%E5%9B%BD%E5%A4%A9%E6%B0%94%E9%A2%84%E6%8A%A5%E5%9C%B0%E5%9B%BE%23&Refer=top) `1.5M 🔥`
 1. [李荣浩说同事给他拍的照片像村痞](https://s.weibo.com/weibo?q=%E6%9D%8E%E8%8D%A3%E6%B5%A9%E8%AF%B4%E5%90%8C%E4%BA%8B%E7%BB%99%E4%BB%96%E6%8B%8D%E7%9A%84%E7%85%A7%E7%89%87%E5%83%8F%E6%9D%91%E7%97%9E&Refer=top) `1.5M 🔥`
 1. [教育部明确3个重要时间保睡眠](https://s.weibo.com/weibo?q=%23%E6%95%99%E8%82%B2%E9%83%A8%E6%98%8E%E7%A1%AE3%E4%B8%AA%E9%87%8D%E8%A6%81%E6%97%B6%E9%97%B4%E4%BF%9D%E7%9D%A1%E7%9C%A0%23&Refer=top) `1.4M 🔥`
@@ -55,9 +56,8 @@
 1. [86岁的院士打疫苗](https://s.weibo.com/weibo?q=%2386%E5%B2%81%E7%9A%84%E9%99%A2%E5%A3%AB%E6%89%93%E7%96%AB%E8%8B%97%23&Refer=top) `862.1K 🔥`
 1. [95岁一等功老兵深藏功名72年](https://s.weibo.com/weibo?q=%2395%E5%B2%81%E4%B8%80%E7%AD%89%E5%8A%9F%E8%80%81%E5%85%B5%E6%B7%B1%E8%97%8F%E5%8A%9F%E5%90%8D72%E5%B9%B4%23&Refer=top) `825.7K 🔥`
 1. [Rookie 最近状态有点低迷对不起大家](https://s.weibo.com/weibo?q=Rookie%20%E6%9C%80%E8%BF%91%E7%8A%B6%E6%80%81%E6%9C%89%E7%82%B9%E4%BD%8E%E8%BF%B7%E5%AF%B9%E4%B8%8D%E8%B5%B7%E5%A4%A7%E5%AE%B6&Refer=top) `823.4K 🔥`
-1. [瑞丽疫情防控现状如何](https://s.weibo.com/weibo?q=%23%E7%91%9E%E4%B8%BD%E7%96%AB%E6%83%85%E9%98%B2%E6%8E%A7%E7%8E%B0%E7%8A%B6%E5%A6%82%E4%BD%95%23&Refer=top) `817.0K 🔥`
 
-数据更新于 2021-04-02 16:09:16
+数据更新于 2021-04-02 16:25:27
 
 <!-- END -->
 
