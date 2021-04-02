@@ -39,6 +39,7 @@
 1. [西班牙诞生世界首个带新冠抗体婴儿](https://s.weibo.com/weibo?q=%E8%A5%BF%E7%8F%AD%E7%89%99%E8%AF%9E%E7%94%9F%E4%B8%96%E7%95%8C%E9%A6%96%E4%B8%AA%E5%B8%A6%E6%96%B0%E5%86%A0%E6%8A%97%E4%BD%93%E5%A9%B4%E5%84%BF&Refer=top) `982.5K 🔥`
 1. [极端分子脑中的天堂什么样](https://s.weibo.com/weibo?q=%23%E6%9E%81%E7%AB%AF%E5%88%86%E5%AD%90%E8%84%91%E4%B8%AD%E7%9A%84%E5%A4%A9%E5%A0%82%E4%BB%80%E4%B9%88%E6%A0%B7%23&Refer=top) `966.8K 🔥`
 1. [ATM机一年减少8万台](https://s.weibo.com/weibo?q=ATM%E6%9C%BA%E4%B8%80%E5%B9%B4%E5%87%8F%E5%B0%918%E4%B8%87%E5%8F%B0&Refer=top) `962.6K 🔥`
+1. [国际泳联取消跳水世界杯](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E9%99%85%E6%B3%B3%E8%81%94%E5%8F%96%E6%B6%88%E8%B7%B3%E6%B0%B4%E4%B8%96%E7%95%8C%E6%9D%AF%23&Refer=top) `959.3K 🔥`
 1. [深圳茶颜悦色](https://s.weibo.com/weibo?q=%E6%B7%B1%E5%9C%B3%E8%8C%B6%E9%A2%9C%E6%82%A6%E8%89%B2&Refer=top) `957.4K 🔥`
 1. [汪东城 希望我明年是真的公开了](https://s.weibo.com/weibo?q=%E6%B1%AA%E4%B8%9C%E5%9F%8E%20%E5%B8%8C%E6%9C%9B%E6%88%91%E6%98%8E%E5%B9%B4%E6%98%AF%E7%9C%9F%E7%9A%84%E5%85%AC%E5%BC%80%E4%BA%86&Refer=top) `952.3K 🔥`
 1. [虞书欣为赵小棠庆生](https://s.weibo.com/weibo?q=%23%E8%99%9E%E4%B9%A6%E6%AC%A3%E4%B8%BA%E8%B5%B5%E5%B0%8F%E6%A3%A0%E5%BA%86%E7%94%9F%23&Refer=top) `948.4K 🔥`
@@ -49,7 +50,6 @@
 1. [papi酱新电影台词](https://s.weibo.com/weibo?q=papi%E9%85%B1%E6%96%B0%E7%94%B5%E5%BD%B1%E5%8F%B0%E8%AF%8D&Refer=top) `943.1K 🔥`
 1. [赵露思演的李乐嫣](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E9%9C%B2%E6%80%9D%E6%BC%94%E7%9A%84%E6%9D%8E%E4%B9%90%E5%AB%A3%23&Refer=top) `924.2K 🔥`
 1. [赵英俊留给世界最后的话](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E8%8B%B1%E4%BF%8A%E7%95%99%E7%BB%99%E4%B8%96%E7%95%8C%E6%9C%80%E5%90%8E%E7%9A%84%E8%AF%9D%23&Refer=top) `906.0K 🔥`
-1. [国际泳联取消跳水世界杯](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E9%99%85%E6%B3%B3%E8%81%94%E5%8F%96%E6%B6%88%E8%B7%B3%E6%B0%B4%E4%B8%96%E7%95%8C%E6%9D%AF%23&Refer=top) `900.6K 🔥`
 1. [银行取款进入刷脸时代](https://s.weibo.com/weibo?q=%23%E9%93%B6%E8%A1%8C%E5%8F%96%E6%AC%BE%E8%BF%9B%E5%85%A5%E5%88%B7%E8%84%B8%E6%97%B6%E4%BB%A3%23&Refer=top) `893.1K 🔥`
 1. [浓颜明星的视觉冲击](https://s.weibo.com/weibo?q=%23%E6%B5%93%E9%A2%9C%E6%98%8E%E6%98%9F%E7%9A%84%E8%A7%86%E8%A7%89%E5%86%B2%E5%87%BB%23&Refer=top) `883.6K 🔥`
 1. [86岁的院士打疫苗](https://s.weibo.com/weibo?q=%2386%E5%B2%81%E7%9A%84%E9%99%A2%E5%A3%AB%E6%89%93%E7%96%AB%E8%8B%97%23&Refer=top) `862.1K 🔥`
@@ -57,7 +57,7 @@
 1. [Rookie 最近状态有点低迷对不起大家](https://s.weibo.com/weibo?q=Rookie%20%E6%9C%80%E8%BF%91%E7%8A%B6%E6%80%81%E6%9C%89%E7%82%B9%E4%BD%8E%E8%BF%B7%E5%AF%B9%E4%B8%8D%E8%B5%B7%E5%A4%A7%E5%AE%B6&Refer=top) `823.4K 🔥`
 1. [瑞丽疫情防控现状如何](https://s.weibo.com/weibo?q=%23%E7%91%9E%E4%B8%BD%E7%96%AB%E6%83%85%E9%98%B2%E6%8E%A7%E7%8E%B0%E7%8A%B6%E5%A6%82%E4%BD%95%23&Refer=top) `817.0K 🔥`
 
-数据更新于 2021-04-02 15:29:30
+数据更新于 2021-04-02 15:40:57
 
 <!-- END -->
 
