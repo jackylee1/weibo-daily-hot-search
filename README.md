@@ -57,7 +57,7 @@
 1. [Schoolgirlbyebye成员自曝学术造假](https://s.weibo.com/weibo?q=%23Schoolgirlbyebye%E6%88%90%E5%91%98%E8%87%AA%E6%9B%9D%E5%AD%A6%E6%9C%AF%E9%80%A0%E5%81%87%23&Refer=top) `1.1M 🔥`
 1. [新疆问题教材使用长达13年](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%96%86%E9%97%AE%E9%A2%98%E6%95%99%E6%9D%90%E4%BD%BF%E7%94%A8%E9%95%BF%E8%BE%BE13%E5%B9%B4%23&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-04-02 22:30:26
+数据更新于 2021-04-02 22:34:27
 
 <!-- END -->
 
