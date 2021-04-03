@@ -18,6 +18,7 @@
 1. [台铁事故中一名大陆学生轻微擦伤](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E9%93%81%E4%BA%8B%E6%95%85%E4%B8%AD%E4%B8%80%E5%90%8D%E5%A4%A7%E9%99%86%E5%AD%A6%E7%94%9F%E8%BD%BB%E5%BE%AE%E6%93%A6%E4%BC%A4%23&Refer=top) `2.5M 🔥`
 1. [黄子韬 我宁愿用十年寿命换我爸一年](https://s.weibo.com/weibo?q=%E9%BB%84%E5%AD%90%E9%9F%AC%20%E6%88%91%E5%AE%81%E6%84%BF%E7%94%A8%E5%8D%81%E5%B9%B4%E5%AF%BF%E5%91%BD%E6%8D%A2%E6%88%91%E7%88%B8%E4%B8%80%E5%B9%B4&Refer=top) `2.4M 🔥`
 1. [黄英儿子给Lucky写信](https://s.weibo.com/weibo?q=%E9%BB%84%E8%8B%B1%E5%84%BF%E5%AD%90%E7%BB%99Lucky%E5%86%99%E4%BF%A1&Refer=top) `2.2M 🔥`
+1. [杨幂 姐姐就是嘴甜](https://s.weibo.com/weibo?q=%E6%9D%A8%E5%B9%82%20%E5%A7%90%E5%A7%90%E5%B0%B1%E6%98%AF%E5%98%B4%E7%94%9C&Refer=top) `1.9M 🔥`
 1. [顶楼主演囚服自拍](https://s.weibo.com/weibo?q=%23%E9%A1%B6%E6%A5%BC%E4%B8%BB%E6%BC%94%E5%9B%9A%E6%9C%8D%E8%87%AA%E6%8B%8D%23&Refer=top) `1.8M 🔥`
 1. [原来派大星的坐姿是真的](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E6%B4%BE%E5%A4%A7%E6%98%9F%E7%9A%84%E5%9D%90%E5%A7%BF%E6%98%AF%E7%9C%9F%E7%9A%84%23&Refer=top) `1.8M 🔥`
 1. [吴磊把粉丝送的笋吃了](https://s.weibo.com/weibo?q=%23%E5%90%B4%E7%A3%8A%E6%8A%8A%E7%B2%89%E4%B8%9D%E9%80%81%E7%9A%84%E7%AC%8B%E5%90%83%E4%BA%86%23&Refer=top) `1.7M 🔥`
@@ -55,9 +56,8 @@
 1. [美国国会大厦发生袭警](https://s.weibo.com/weibo?q=%E7%BE%8E%E5%9B%BD%E5%9B%BD%E4%BC%9A%E5%A4%A7%E5%8E%A6%E5%8F%91%E7%94%9F%E8%A2%AD%E8%AD%A6&Refer=top) `755.6K 🔥`
 1. [椰树集团发文称广告没违法](https://s.weibo.com/weibo?q=%E6%A4%B0%E6%A0%91%E9%9B%86%E5%9B%A2%E5%8F%91%E6%96%87%E7%A7%B0%E5%B9%BF%E5%91%8A%E6%B2%A1%E8%BF%9D%E6%B3%95&Refer=top) `742.6K 🔥`
 1. [大学老师课上讲焦裕禄故事动情落泪](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%AD%A6%E8%80%81%E5%B8%88%E8%AF%BE%E4%B8%8A%E8%AE%B2%E7%84%A6%E8%A3%95%E7%A6%84%E6%95%85%E4%BA%8B%E5%8A%A8%E6%83%85%E8%90%BD%E6%B3%AA%23&Refer=top) `738.5K 🔥`
-1. [多所高校开设死亡教育课](https://s.weibo.com/weibo?q=%23%E5%A4%9A%E6%89%80%E9%AB%98%E6%A0%A1%E5%BC%80%E8%AE%BE%E6%AD%BB%E4%BA%A1%E6%95%99%E8%82%B2%E8%AF%BE%23&Refer=top) `718.9K 🔥`
 
-数据更新于 2021-04-03 15:59:49
+数据更新于 2021-04-03 16:25:23
 
 <!-- END -->
 
