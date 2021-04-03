@@ -17,6 +17,7 @@
 1. [我国有约2000万名烈士](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD%E6%9C%89%E7%BA%A62000%E4%B8%87%E5%90%8D%E7%83%88%E5%A3%AB%23&Refer=top) `1.9M 🔥`
 1. [顶楼主演囚服自拍](https://s.weibo.com/weibo?q=%23%E9%A1%B6%E6%A5%BC%E4%B8%BB%E6%BC%94%E5%9B%9A%E6%9C%8D%E8%87%AA%E6%8B%8D%23&Refer=top) `1.8M 🔥`
 1. [原来派大星的坐姿是真的](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E6%B4%BE%E5%A4%A7%E6%98%9F%E7%9A%84%E5%9D%90%E5%A7%BF%E6%98%AF%E7%9C%9F%E7%9A%84%23&Refer=top) `1.8M 🔥`
+1. [吴磊把粉丝送的笋吃了](https://s.weibo.com/weibo?q=%23%E5%90%B4%E7%A3%8A%E6%8A%8A%E7%B2%89%E4%B8%9D%E9%80%81%E7%9A%84%E7%AC%8B%E5%90%83%E4%BA%86%23&Refer=top) `1.7M 🔥`
 1. [吴尊友解释国内疫情不严重为何打疫苗](https://s.weibo.com/weibo?q=%23%E5%90%B4%E5%B0%8A%E5%8F%8B%E8%A7%A3%E9%87%8A%E5%9B%BD%E5%86%85%E7%96%AB%E6%83%85%E4%B8%8D%E4%B8%A5%E9%87%8D%E4%B8%BA%E4%BD%95%E6%89%93%E7%96%AB%E8%8B%97%23&Refer=top) `1.7M 🔥`
 1. [王一博 将门毒后](https://s.weibo.com/weibo?q=%E7%8E%8B%E4%B8%80%E5%8D%9A%20%E5%B0%86%E9%97%A8%E6%AF%92%E5%90%8E&Refer=top) `1.6M 🔥`
 1. [印度推出造价90万元的飞机](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E6%8E%A8%E5%87%BA%E9%80%A0%E4%BB%B790%E4%B8%87%E5%85%83%E7%9A%84%E9%A3%9E%E6%9C%BA%23&Refer=top) `1.4M 🔥`
@@ -41,6 +42,7 @@
 1. [迅猛龙](https://s.weibo.com/weibo?q=%E8%BF%85%E7%8C%9B%E9%BE%99&Refer=top) `1.1M 🔥`
 1. [妈妈在陈红军墓前摆满他爱吃的菜](https://s.weibo.com/weibo?q=%23%E5%A6%88%E5%A6%88%E5%9C%A8%E9%99%88%E7%BA%A2%E5%86%9B%E5%A2%93%E5%89%8D%E6%91%86%E6%BB%A1%E4%BB%96%E7%88%B1%E5%90%83%E7%9A%84%E8%8F%9C%23&Refer=top) `946.6K 🔥`
 1. [记者播报时被狗狗抢走话筒](https://s.weibo.com/weibo?q=%E8%AE%B0%E8%80%85%E6%92%AD%E6%8A%A5%E6%97%B6%E8%A2%AB%E7%8B%97%E7%8B%97%E6%8A%A2%E8%B5%B0%E8%AF%9D%E7%AD%92&Refer=top) `886.7K 🔥`
+1. [独居女生坐电梯的小心机](https://s.weibo.com/weibo?q=%23%E7%8B%AC%E5%B1%85%E5%A5%B3%E7%94%9F%E5%9D%90%E7%94%B5%E6%A2%AF%E7%9A%84%E5%B0%8F%E5%BF%83%E6%9C%BA%23&Refer=top) `852.4K 🔥`
 1. [美式咖啡用英语怎么说](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%BC%8F%E5%92%96%E5%95%A1%E7%94%A8%E8%8B%B1%E8%AF%AD%E6%80%8E%E4%B9%88%E8%AF%B4%23&Refer=top) `847.5K 🔥`
 1. [科研人员发现中医经络存在证据](https://s.weibo.com/weibo?q=%E7%A7%91%E7%A0%94%E4%BA%BA%E5%91%98%E5%8F%91%E7%8E%B0%E4%B8%AD%E5%8C%BB%E7%BB%8F%E7%BB%9C%E5%AD%98%E5%9C%A8%E8%AF%81%E6%8D%AE&Refer=top) `833.4K 🔥`
 1. [拜登下令白宫降半旗向埃文斯致哀](https://s.weibo.com/weibo?q=%23%E6%8B%9C%E7%99%BB%E4%B8%8B%E4%BB%A4%E7%99%BD%E5%AE%AB%E9%99%8D%E5%8D%8A%E6%97%97%E5%90%91%E5%9F%83%E6%96%87%E6%96%AF%E8%87%B4%E5%93%80%23&Refer=top) `809.9K 🔥`
@@ -54,10 +56,8 @@
 1. [男子水下闭气24分33秒破纪录](https://s.weibo.com/weibo?q=%E7%94%B7%E5%AD%90%E6%B0%B4%E4%B8%8B%E9%97%AD%E6%B0%9424%E5%88%8633%E7%A7%92%E7%A0%B4%E7%BA%AA%E5%BD%95&Refer=top) `681.5K 🔥`
 1. [对付猫的一百种损招](https://s.weibo.com/weibo?q=%23%E5%AF%B9%E4%BB%98%E7%8C%AB%E7%9A%84%E4%B8%80%E7%99%BE%E7%A7%8D%E6%8D%9F%E6%8B%9B%23&Refer=top) `679.8K 🔥`
 1. [Angelababy晒樱花自拍](https://s.weibo.com/weibo?q=%23Angelababy%E6%99%92%E6%A8%B1%E8%8A%B1%E8%87%AA%E6%8B%8D%23&Refer=top) `666.5K 🔥`
-1. [王源粉色头发](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E6%BA%90%E7%B2%89%E8%89%B2%E5%A4%B4%E5%8F%91%23&Refer=top) `662.3K 🔥`
-1. [官方回应女鼓手称父亲操作大学成绩](https://s.weibo.com/weibo?q=%E5%AE%98%E6%96%B9%E5%9B%9E%E5%BA%94%E5%A5%B3%E9%BC%93%E6%89%8B%E7%A7%B0%E7%88%B6%E4%BA%B2%E6%93%8D%E4%BD%9C%E5%A4%A7%E5%AD%A6%E6%88%90%E7%BB%A9&Refer=top) `649.9K 🔥`
 
-数据更新于 2021-04-03 14:15:58
+数据更新于 2021-04-03 14:43:07
 
 <!-- END -->
 
