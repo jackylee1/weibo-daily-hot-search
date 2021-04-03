@@ -24,6 +24,7 @@
 1. [台铁事故中一名大陆学生轻微擦伤](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E9%93%81%E4%BA%8B%E6%95%85%E4%B8%AD%E4%B8%80%E5%90%8D%E5%A4%A7%E9%99%86%E5%AD%A6%E7%94%9F%E8%BD%BB%E5%BE%AE%E6%93%A6%E4%BC%A4%23&Refer=top) `2.5M 🔥`
 1. [黄子韬 我宁愿用十年寿命换我爸一年](https://s.weibo.com/weibo?q=%E9%BB%84%E5%AD%90%E9%9F%AC%20%E6%88%91%E5%AE%81%E6%84%BF%E7%94%A8%E5%8D%81%E5%B9%B4%E5%AF%BF%E5%91%BD%E6%8D%A2%E6%88%91%E7%88%B8%E4%B8%80%E5%B9%B4&Refer=top) `2.4M 🔥`
 1. [黄英儿子给Lucky写信](https://s.weibo.com/weibo?q=%E9%BB%84%E8%8B%B1%E5%84%BF%E5%AD%90%E7%BB%99Lucky%E5%86%99%E4%BF%A1&Refer=top) `2.2M 🔥`
+1. [赵一曼给7岁儿子的绝笔信](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E4%B8%80%E6%9B%BC%E7%BB%997%E5%B2%81%E5%84%BF%E5%AD%90%E7%9A%84%E7%BB%9D%E7%AC%94%E4%BF%A1%23&Refer=top) `2.1M 🔥`
 1. [顶楼主演囚服自拍](https://s.weibo.com/weibo?q=%23%E9%A1%B6%E6%A5%BC%E4%B8%BB%E6%BC%94%E5%9B%9A%E6%9C%8D%E8%87%AA%E6%8B%8D%23&Refer=top) `1.8M 🔥`
 1. [原来派大星的坐姿是真的](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E6%B4%BE%E5%A4%A7%E6%98%9F%E7%9A%84%E5%9D%90%E5%A7%BF%E6%98%AF%E7%9C%9F%E7%9A%84%23&Refer=top) `1.8M 🔥`
 1. [吴磊把粉丝送的笋吃了](https://s.weibo.com/weibo?q=%23%E5%90%B4%E7%A3%8A%E6%8A%8A%E7%B2%89%E4%B8%9D%E9%80%81%E7%9A%84%E7%AC%8B%E5%90%83%E4%BA%86%23&Refer=top) `1.7M 🔥`
@@ -49,7 +50,6 @@
 1. [HM官网涉问题地图被约谈](https://s.weibo.com/weibo?q=%23HM%E5%AE%98%E7%BD%91%E6%B6%89%E9%97%AE%E9%A2%98%E5%9C%B0%E5%9B%BE%E8%A2%AB%E7%BA%A6%E8%B0%88%23&Refer=top) `1.1M 🔥`
 1. [杨紫 救场](https://s.weibo.com/weibo?q=%E6%9D%A8%E7%B4%AB%20%E6%95%91%E5%9C%BA&Refer=top) `1.1M 🔥`
 1. [司藤就要大结局了](https://s.weibo.com/weibo?q=%E5%8F%B8%E8%97%A4%E5%B0%B1%E8%A6%81%E5%A4%A7%E7%BB%93%E5%B1%80%E4%BA%86&Refer=top) `1.1M 🔥`
-1. [赵一曼给7岁儿子的绝笔信](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E4%B8%80%E6%9B%BC%E7%BB%997%E5%B2%81%E5%84%BF%E5%AD%90%E7%9A%84%E7%BB%9D%E7%AC%94%E4%BF%A1%23&Refer=top) `1.1M 🔥`
 1. [刘惜君大风吹](https://s.weibo.com/weibo?q=%23%E5%88%98%E6%83%9C%E5%90%9B%E5%A4%A7%E9%A3%8E%E5%90%B9%23&Refer=top) `1.1M 🔥`
 1. [央视评HM伤疤未好又闯祸](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E8%AF%84HM%E4%BC%A4%E7%96%A4%E6%9C%AA%E5%A5%BD%E5%8F%88%E9%97%AF%E7%A5%B8%23&Refer=top) `1.1M 🔥`
 1. [深圳茶颜悦色已排队3万号](https://s.weibo.com/weibo?q=%23%E6%B7%B1%E5%9C%B3%E8%8C%B6%E9%A2%9C%E6%82%A6%E8%89%B2%E5%B7%B2%E6%8E%92%E9%98%9F3%E4%B8%87%E5%8F%B7%23&Refer=top) `1.1M 🔥`
@@ -57,7 +57,7 @@
 1. [迅猛龙](https://s.weibo.com/weibo?q=%E8%BF%85%E7%8C%9B%E9%BE%99&Refer=top) `1.1M 🔥`
 1. [妈妈在陈红军墓前摆满他爱吃的菜](https://s.weibo.com/weibo?q=%23%E5%A6%88%E5%A6%88%E5%9C%A8%E9%99%88%E7%BA%A2%E5%86%9B%E5%A2%93%E5%89%8D%E6%91%86%E6%BB%A1%E4%BB%96%E7%88%B1%E5%90%83%E7%9A%84%E8%8F%9C%23&Refer=top) `946.6K 🔥`
 
-数据更新于 2021-04-03 18:58:16
+数据更新于 2021-04-03 19:11:16
 
 <!-- END -->
 
