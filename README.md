@@ -24,14 +24,15 @@
 1. [酒泉通报班主任对学生罚款数万](https://s.weibo.com/weibo?q=%23%E9%85%92%E6%B3%89%E9%80%9A%E6%8A%A5%E7%8F%AD%E4%B8%BB%E4%BB%BB%E5%AF%B9%E5%AD%A6%E7%94%9F%E7%BD%9A%E6%AC%BE%E6%95%B0%E4%B8%87%23&Refer=top) `1.4M 🔥`
 1. [我国已有五款新冠病毒疫苗获批使用](https://s.weibo.com/weibo?q=%E6%88%91%E5%9B%BD%E5%B7%B2%E6%9C%89%E4%BA%94%E6%AC%BE%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E7%96%AB%E8%8B%97%E8%8E%B7%E6%89%B9%E4%BD%BF%E7%94%A8&Refer=top) `1.4M 🔥`
 1. [景区回应酒店价高游客挤厕所](https://s.weibo.com/weibo?q=%23%E6%99%AF%E5%8C%BA%E5%9B%9E%E5%BA%94%E9%85%92%E5%BA%97%E4%BB%B7%E9%AB%98%E6%B8%B8%E5%AE%A2%E6%8C%A4%E5%8E%95%E6%89%80%23&Refer=top) `1.3M 🔥`
+1. [台铁脱轨肇事工程车负责人山坡观望](https://s.weibo.com/weibo?q=%E5%8F%B0%E9%93%81%E8%84%B1%E8%BD%A8%E8%82%87%E4%BA%8B%E5%B7%A5%E7%A8%8B%E8%BD%A6%E8%B4%9F%E8%B4%A3%E4%BA%BA%E5%B1%B1%E5%9D%A1%E8%A7%82%E6%9C%9B&Refer=top) `1.3M 🔥`
 1. [意大利全国升为红色疫情防疫区](https://s.weibo.com/weibo?q=%23%E6%84%8F%E5%A4%A7%E5%88%A9%E5%85%A8%E5%9B%BD%E5%8D%87%E4%B8%BA%E7%BA%A2%E8%89%B2%E7%96%AB%E6%83%85%E9%98%B2%E7%96%AB%E5%8C%BA%23&Refer=top) `1.3M 🔥`
 1. [广西钦州三名溺水女学生均不幸遇难](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E8%A5%BF%E9%92%A6%E5%B7%9E%E4%B8%89%E5%90%8D%E6%BA%BA%E6%B0%B4%E5%A5%B3%E5%AD%A6%E7%94%9F%E5%9D%87%E4%B8%8D%E5%B9%B8%E9%81%87%E9%9A%BE%23&Refer=top) `1.2M 🔥`
 1. [刘娥封后](https://s.weibo.com/weibo?q=%23%E5%88%98%E5%A8%A5%E5%B0%81%E5%90%8E%23&Refer=top) `1.2M 🔥`
-1. [台铁脱轨肇事工程车负责人山坡观望](https://s.weibo.com/weibo?q=%E5%8F%B0%E9%93%81%E8%84%B1%E8%BD%A8%E8%82%87%E4%BA%8B%E5%B7%A5%E7%A8%8B%E8%BD%A6%E8%B4%9F%E8%B4%A3%E4%BA%BA%E5%B1%B1%E5%9D%A1%E8%A7%82%E6%9C%9B&Refer=top) `1.2M 🔥`
 1. [芒果降价了](https://s.weibo.com/weibo?q=%23%E8%8A%92%E6%9E%9C%E9%99%8D%E4%BB%B7%E4%BA%86%23&Refer=top) `1.1M 🔥`
 1. [云南新增15例确诊](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E6%96%B0%E5%A2%9E15%E4%BE%8B%E7%A1%AE%E8%AF%8A%23&Refer=top) `1.1M 🔥`
+1. [不要一次性拔掉四颗智齿](https://s.weibo.com/weibo?q=%23%E4%B8%8D%E8%A6%81%E4%B8%80%E6%AC%A1%E6%80%A7%E6%8B%94%E6%8E%89%E5%9B%9B%E9%A2%97%E6%99%BA%E9%BD%BF%23&Refer=top) `1.1M 🔥`
 1. [VaVa说丁太昇吃了文化有限的亏](https://s.weibo.com/weibo?q=%23VaVa%E8%AF%B4%E4%B8%81%E5%A4%AA%E6%98%87%E5%90%83%E4%BA%86%E6%96%87%E5%8C%96%E6%9C%89%E9%99%90%E7%9A%84%E4%BA%8F%23&Refer=top) `1.0M 🔥`
-1. [不要一次性拔掉四颗智齿](https://s.weibo.com/weibo?q=%23%E4%B8%8D%E8%A6%81%E4%B8%80%E6%AC%A1%E6%80%A7%E6%8B%94%E6%8E%89%E5%9B%9B%E9%A2%97%E6%99%BA%E9%BD%BF%23&Refer=top) `1.0M 🔥`
+1. [任嘉伦生图](https://s.weibo.com/weibo?q=%23%E4%BB%BB%E5%98%89%E4%BC%A6%E7%94%9F%E5%9B%BE%23&Refer=top) `991.2K 🔥`
 1. [金莎 谁想做艺人还默默无名](https://s.weibo.com/weibo?q=%E9%87%91%E8%8E%8E%20%E8%B0%81%E6%83%B3%E5%81%9A%E8%89%BA%E4%BA%BA%E8%BF%98%E9%BB%98%E9%BB%98%E6%97%A0%E5%90%8D&Refer=top) `943.9K 🔥`
 1. [原来镜子戏是这样拍的](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E9%95%9C%E5%AD%90%E6%88%8F%E6%98%AF%E8%BF%99%E6%A0%B7%E6%8B%8D%E7%9A%84%23&Refer=top) `872.7K 🔥`
 1. [多名美军涉嫌性侵女学员遭停职](https://s.weibo.com/weibo?q=%23%E5%A4%9A%E5%90%8D%E7%BE%8E%E5%86%9B%E6%B6%89%E5%AB%8C%E6%80%A7%E4%BE%B5%E5%A5%B3%E5%AD%A6%E5%91%98%E9%81%AD%E5%81%9C%E8%81%8C%23&Refer=top) `837.2K 🔥`
@@ -55,9 +56,8 @@
 1. [5家上市银行个人房贷占比超标](https://s.weibo.com/weibo?q=%235%E5%AE%B6%E4%B8%8A%E5%B8%82%E9%93%B6%E8%A1%8C%E4%B8%AA%E4%BA%BA%E6%88%BF%E8%B4%B7%E5%8D%A0%E6%AF%94%E8%B6%85%E6%A0%87%23&Refer=top) `590.5K 🔥`
 1. [张家界雨后云海云瀑](https://s.weibo.com/weibo?q=%E5%BC%A0%E5%AE%B6%E7%95%8C%E9%9B%A8%E5%90%8E%E4%BA%91%E6%B5%B7%E4%BA%91%E7%80%91&Refer=top) `559.9K 🔥`
 1. [kaka](https://s.weibo.com/weibo?q=kaka&Refer=top) `544.6K 🔥`
-1. [父女被困70米伏羲雕像](https://s.weibo.com/weibo?q=%E7%88%B6%E5%A5%B3%E8%A2%AB%E5%9B%B070%E7%B1%B3%E4%BC%8F%E7%BE%B2%E9%9B%95%E5%83%8F&Refer=top) `529.9K 🔥`
 
-数据更新于 2021-04-05 12:18:30
+数据更新于 2021-04-05 12:28:16
 
 <!-- END -->
 
