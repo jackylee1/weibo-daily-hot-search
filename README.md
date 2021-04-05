@@ -7,9 +7,9 @@
 <!-- BEGIN -->
 
 1. [张子枫 我做不到不真诚拍每一条](https://s.weibo.com/weibo?q=%E5%BC%A0%E5%AD%90%E6%9E%AB%20%E6%88%91%E5%81%9A%E4%B8%8D%E5%88%B0%E4%B8%8D%E7%9C%9F%E8%AF%9A%E6%8B%8D%E6%AF%8F%E4%B8%80%E6%9D%A1&Refer=top) `4.2M 🔥`
+1. [黄俊捷道歉](https://s.weibo.com/weibo?q=%E9%BB%84%E4%BF%8A%E6%8D%B7%E9%81%93%E6%AD%89&Refer=top) `3.7M 🔥`
 1. [张哲瀚方辟谣聊天记录](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%93%B2%E7%80%9A%E6%96%B9%E8%BE%9F%E8%B0%A3%E8%81%8A%E5%A4%A9%E8%AE%B0%E5%BD%95%23&Refer=top) `3.6M 🔥`
 1. [新冠疫苗保护期只管半年是误读](https://s.weibo.com/weibo?q=%23%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E4%BF%9D%E6%8A%A4%E6%9C%9F%E5%8F%AA%E7%AE%A1%E5%8D%8A%E5%B9%B4%E6%98%AF%E8%AF%AF%E8%AF%BB%23&Refer=top) `3.5M 🔥`
-1. [黄俊捷道歉](https://s.weibo.com/weibo?q=%E9%BB%84%E4%BF%8A%E6%8D%B7%E9%81%93%E6%AD%89&Refer=top) `3.3M 🔥`
 1. [18岁女生立遗嘱留2万元给朋友](https://s.weibo.com/weibo?q=%2318%E5%B2%81%E5%A5%B3%E7%94%9F%E7%AB%8B%E9%81%97%E5%98%B1%E7%95%992%E4%B8%87%E5%85%83%E7%BB%99%E6%9C%8B%E5%8F%8B%23&Refer=top) `3.1M 🔥`
 1. [宋仲基李光洙现身友人婚礼](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E4%BB%B2%E5%9F%BA%E6%9D%8E%E5%85%89%E6%B4%99%E7%8E%B0%E8%BA%AB%E5%8F%8B%E4%BA%BA%E5%A9%9A%E7%A4%BC%23&Refer=top) `3.0M 🔥`
 1. [地球上仅存2只北部白犀牛](https://s.weibo.com/weibo?q=%23%E5%9C%B0%E7%90%83%E4%B8%8A%E4%BB%85%E5%AD%982%E5%8F%AA%E5%8C%97%E9%83%A8%E7%99%BD%E7%8A%80%E7%89%9B%23&Refer=top) `2.6M 🔥`
@@ -27,14 +27,15 @@
 1. [民警牺牲数月女儿还在发微信找爸爸](https://s.weibo.com/weibo?q=%23%E6%B0%91%E8%AD%A6%E7%89%BA%E7%89%B2%E6%95%B0%E6%9C%88%E5%A5%B3%E5%84%BF%E8%BF%98%E5%9C%A8%E5%8F%91%E5%BE%AE%E4%BF%A1%E6%89%BE%E7%88%B8%E7%88%B8%23&Refer=top) `1.7M 🔥`
 1. [王毅回应美方对华反复提竞争合作对抗](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E6%AF%85%E5%9B%9E%E5%BA%94%E7%BE%8E%E6%96%B9%E5%AF%B9%E5%8D%8E%E5%8F%8D%E5%A4%8D%E6%8F%90%E7%AB%9E%E4%BA%89%E5%90%88%E4%BD%9C%E5%AF%B9%E6%8A%97%23&Refer=top) `1.7M 🔥`
 1. [纽约上万人参加反歧视亚裔抗议活动](https://s.weibo.com/weibo?q=%E7%BA%BD%E7%BA%A6%E4%B8%8A%E4%B8%87%E4%BA%BA%E5%8F%82%E5%8A%A0%E5%8F%8D%E6%AD%A7%E8%A7%86%E4%BA%9A%E8%A3%94%E6%8A%97%E8%AE%AE%E6%B4%BB%E5%8A%A8&Refer=top) `1.6M 🔥`
+1. [花儿超级乖](https://s.weibo.com/weibo?q=%E8%8A%B1%E5%84%BF%E8%B6%85%E7%BA%A7%E4%B9%96&Refer=top) `1.6M 🔥`
+1. [怎么暗示领导这礼物很贵](https://s.weibo.com/weibo?q=%23%E6%80%8E%E4%B9%88%E6%9A%97%E7%A4%BA%E9%A2%86%E5%AF%BC%E8%BF%99%E7%A4%BC%E7%89%A9%E5%BE%88%E8%B4%B5%23&Refer=top) `1.6M 🔥`
 1. [司藤](https://s.weibo.com/weibo?q=%E5%8F%B8%E8%97%A4&Refer=top) `1.5M 🔥`
 1. [黄明昊泼贾乃亮的水泼到自己身上](https://s.weibo.com/weibo?q=%23%E9%BB%84%E6%98%8E%E6%98%8A%E6%B3%BC%E8%B4%BE%E4%B9%83%E4%BA%AE%E7%9A%84%E6%B0%B4%E6%B3%BC%E5%88%B0%E8%87%AA%E5%B7%B1%E8%BA%AB%E4%B8%8A%23&Refer=top) `1.5M 🔥`
 1. [人类减贫的中国实践白皮书将发布](https://s.weibo.com/weibo?q=%23%E4%BA%BA%E7%B1%BB%E5%87%8F%E8%B4%AB%E7%9A%84%E4%B8%AD%E5%9B%BD%E5%AE%9E%E8%B7%B5%E7%99%BD%E7%9A%AE%E4%B9%A6%E5%B0%86%E5%8F%91%E5%B8%83%23&Refer=top) `1.5M 🔥`
+1. [不要一次性拔掉四颗智齿](https://s.weibo.com/weibo?q=%23%E4%B8%8D%E8%A6%81%E4%B8%80%E6%AC%A1%E6%80%A7%E6%8B%94%E6%8E%89%E5%9B%9B%E9%A2%97%E6%99%BA%E9%BD%BF%23&Refer=top) `1.5M 🔥`
 1. [酒泉通报班主任对学生罚款数万](https://s.weibo.com/weibo?q=%23%E9%85%92%E6%B3%89%E9%80%9A%E6%8A%A5%E7%8F%AD%E4%B8%BB%E4%BB%BB%E5%AF%B9%E5%AD%A6%E7%94%9F%E7%BD%9A%E6%AC%BE%E6%95%B0%E4%B8%87%23&Refer=top) `1.4M 🔥`
+1. [上完20天班又是小长假](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E5%AE%8C20%E5%A4%A9%E7%8F%AD%E5%8F%88%E6%98%AF%E5%B0%8F%E9%95%BF%E5%81%87%23&Refer=top) `1.4M 🔥`
 1. [我国已有五款新冠病毒疫苗获批使用](https://s.weibo.com/weibo?q=%E6%88%91%E5%9B%BD%E5%B7%B2%E6%9C%89%E4%BA%94%E6%AC%BE%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E7%96%AB%E8%8B%97%E8%8E%B7%E6%89%B9%E4%BD%BF%E7%94%A8&Refer=top) `1.4M 🔥`
-1. [怎么暗示领导这礼物很贵](https://s.weibo.com/weibo?q=%23%E6%80%8E%E4%B9%88%E6%9A%97%E7%A4%BA%E9%A2%86%E5%AF%BC%E8%BF%99%E7%A4%BC%E7%89%A9%E5%BE%88%E8%B4%B5%23&Refer=top) `1.4M 🔥`
-1. [花儿超级乖](https://s.weibo.com/weibo?q=%E8%8A%B1%E5%84%BF%E8%B6%85%E7%BA%A7%E4%B9%96&Refer=top) `1.4M 🔥`
-1. [不要一次性拔掉四颗智齿](https://s.weibo.com/weibo?q=%23%E4%B8%8D%E8%A6%81%E4%B8%80%E6%AC%A1%E6%80%A7%E6%8B%94%E6%8E%89%E5%9B%9B%E9%A2%97%E6%99%BA%E9%BD%BF%23&Refer=top) `1.3M 🔥`
 1. [沙僧被贬下界真的不冤](https://s.weibo.com/weibo?q=%23%E6%B2%99%E5%83%A7%E8%A2%AB%E8%B4%AC%E4%B8%8B%E7%95%8C%E7%9C%9F%E7%9A%84%E4%B8%8D%E5%86%A4%23&Refer=top) `1.3M 🔥`
 1. [景区回应酒店价高游客挤厕所](https://s.weibo.com/weibo?q=%23%E6%99%AF%E5%8C%BA%E5%9B%9E%E5%BA%94%E9%85%92%E5%BA%97%E4%BB%B7%E9%AB%98%E6%B8%B8%E5%AE%A2%E6%8C%A4%E5%8E%95%E6%89%80%23&Refer=top) `1.3M 🔥`
 1. [台铁脱轨肇事工程车负责人山坡观望](https://s.weibo.com/weibo?q=%E5%8F%B0%E9%93%81%E8%84%B1%E8%BD%A8%E8%82%87%E4%BA%8B%E5%B7%A5%E7%A8%8B%E8%BD%A6%E8%B4%9F%E8%B4%A3%E4%BA%BA%E5%B1%B1%E5%9D%A1%E8%A7%82%E6%9C%9B&Refer=top) `1.3M 🔥`
@@ -42,7 +43,6 @@
 1. [广西钦州三名溺水女学生均不幸遇难](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E8%A5%BF%E9%92%A6%E5%B7%9E%E4%B8%89%E5%90%8D%E6%BA%BA%E6%B0%B4%E5%A5%B3%E5%AD%A6%E7%94%9F%E5%9D%87%E4%B8%8D%E5%B9%B8%E9%81%87%E9%9A%BE%23&Refer=top) `1.2M 🔥`
 1. [刘娥封后](https://s.weibo.com/weibo?q=%23%E5%88%98%E5%A8%A5%E5%B0%81%E5%90%8E%23&Refer=top) `1.2M 🔥`
 1. [芒果降价了](https://s.weibo.com/weibo?q=%23%E8%8A%92%E6%9E%9C%E9%99%8D%E4%BB%B7%E4%BA%86%23&Refer=top) `1.1M 🔥`
-1. [上完20天班又是小长假](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E5%AE%8C20%E5%A4%A9%E7%8F%AD%E5%8F%88%E6%98%AF%E5%B0%8F%E9%95%BF%E5%81%87%23&Refer=top) `1.1M 🔥`
 1. [云南新增15例确诊](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E6%96%B0%E5%A2%9E15%E4%BE%8B%E7%A1%AE%E8%AF%8A%23&Refer=top) `1.1M 🔥`
 1. [VaVa说丁太昇吃了文化有限的亏](https://s.weibo.com/weibo?q=%23VaVa%E8%AF%B4%E4%B8%81%E5%A4%AA%E6%98%87%E5%90%83%E4%BA%86%E6%96%87%E5%8C%96%E6%9C%89%E9%99%90%E7%9A%84%E4%BA%8F%23&Refer=top) `1.0M 🔥`
 1. [充气城堡被吹翻致1女童身亡](https://s.weibo.com/weibo?q=%E5%85%85%E6%B0%94%E5%9F%8E%E5%A0%A1%E8%A2%AB%E5%90%B9%E7%BF%BB%E8%87%B41%E5%A5%B3%E7%AB%A5%E8%BA%AB%E4%BA%A1&Refer=top) `1.0M 🔥`
@@ -55,9 +55,9 @@
 1. [黄明昊白发](https://s.weibo.com/weibo?q=%23%E9%BB%84%E6%98%8E%E6%98%8A%E7%99%BD%E5%8F%91%23&Refer=top) `852.2K 🔥`
 1. [多名美军涉嫌性侵女学员遭停职](https://s.weibo.com/weibo?q=%23%E5%A4%9A%E5%90%8D%E7%BE%8E%E5%86%9B%E6%B6%89%E5%AB%8C%E6%80%A7%E4%BE%B5%E5%A5%B3%E5%AD%A6%E5%91%98%E9%81%AD%E5%81%9C%E8%81%8C%23&Refer=top) `837.2K 🔥`
 1. [14名伊拉克妇女前往当地雷区排雷](https://s.weibo.com/weibo?q=14%E5%90%8D%E4%BC%8A%E6%8B%89%E5%85%8B%E5%A6%87%E5%A5%B3%E5%89%8D%E5%BE%80%E5%BD%93%E5%9C%B0%E9%9B%B7%E5%8C%BA%E6%8E%92%E9%9B%B7&Refer=top) `835.1K 🔥`
-1. [Rose新歌](https://s.weibo.com/weibo?q=%23Rose%E6%96%B0%E6%AD%8C%23&Refer=top) `785.1K 🔥`
+1. [密室大逃脱路透](https://s.weibo.com/weibo?q=%E5%AF%86%E5%AE%A4%E5%A4%A7%E9%80%83%E8%84%B1%E8%B7%AF%E9%80%8F&Refer=top) `813.5K 🔥`
 
-数据更新于 2021-04-05 16:59:14
+数据更新于 2021-04-05 17:04:13
 
 <!-- END -->
 
