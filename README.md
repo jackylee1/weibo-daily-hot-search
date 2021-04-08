@@ -8,6 +8,8 @@
 
 1. [张一山把南艺烤肠吃涨价](https://s.weibo.com/weibo?q=%E5%BC%A0%E4%B8%80%E5%B1%B1%E6%8A%8A%E5%8D%97%E8%89%BA%E7%83%A4%E8%82%A0%E5%90%83%E6%B6%A8%E4%BB%B7&Refer=top) `3.5M 🔥`
 1. [baby在上海时会每天送小海绵上学](https://s.weibo.com/weibo?q=%23baby%E5%9C%A8%E4%B8%8A%E6%B5%B7%E6%97%B6%E4%BC%9A%E6%AF%8F%E5%A4%A9%E9%80%81%E5%B0%8F%E6%B5%B7%E7%BB%B5%E4%B8%8A%E5%AD%A6%23&Refer=top) `2.3M 🔥`
+1. [瑞丽市委书记被撤职](https://s.weibo.com/weibo?q=%23%E7%91%9E%E4%B8%BD%E5%B8%82%E5%A7%94%E4%B9%A6%E8%AE%B0%E8%A2%AB%E6%92%A4%E8%81%8C%23&Refer=top) `1.7M 🔥`
+1. [赵又廷高圆圆片场手拉手](https://s.weibo.com/weibo?q=%E8%B5%B5%E5%8F%88%E5%BB%B7%E9%AB%98%E5%9C%86%E5%9C%86%E7%89%87%E5%9C%BA%E6%89%8B%E6%8B%89%E6%89%8B&Refer=top) `1.7M 🔥`
 1. [东部战区回应麦凯恩号穿航台湾海峡](https://s.weibo.com/weibo?q=%E4%B8%9C%E9%83%A8%E6%88%98%E5%8C%BA%E5%9B%9E%E5%BA%94%E9%BA%A6%E5%87%AF%E6%81%A9%E5%8F%B7%E7%A9%BF%E8%88%AA%E5%8F%B0%E6%B9%BE%E6%B5%B7%E5%B3%A1&Refer=top) `1.5M 🔥`
 1. [好利来发文](https://s.weibo.com/weibo?q=%23%E5%A5%BD%E5%88%A9%E6%9D%A5%E5%8F%91%E6%96%87%23&Refer=top) `1.3M 🔥`
 1. [腾讯第一大股东宣布减持](https://s.weibo.com/weibo?q=%E8%85%BE%E8%AE%AF%E7%AC%AC%E4%B8%80%E5%A4%A7%E8%82%A1%E4%B8%9C%E5%AE%A3%E5%B8%83%E5%87%8F%E6%8C%81&Refer=top) `1.3M 🔥`
@@ -32,7 +34,7 @@
 1. [薇娅问欧阳娜娜选男友标准](https://s.weibo.com/weibo?q=%23%E8%96%87%E5%A8%85%E9%97%AE%E6%AC%A7%E9%98%B3%E5%A8%9C%E5%A8%9C%E9%80%89%E7%94%B7%E5%8F%8B%E6%A0%87%E5%87%86%23&Refer=top) `587.7K 🔥`
 1. [中国李宁21秋冬潮流发布](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E6%9D%8E%E5%AE%8121%E7%A7%8B%E5%86%AC%E6%BD%AE%E6%B5%81%E5%8F%91%E5%B8%83&Refer=top) `558.1K 🔥`
 1. [阿花花酱](https://s.weibo.com/weibo?q=%E9%98%BF%E8%8A%B1%E8%8A%B1%E9%85%B1&Refer=top) `549.1K 🔥`
-1. [王者荣耀艾琳](https://s.weibo.com/weibo?q=%E7%8E%8B%E8%80%85%E8%8D%A3%E8%80%80%E8%89%BE%E7%90%B3&Refer=top) `514.7K 🔥`
+1. [王者荣耀艾琳](https://s.weibo.com/weibo?q=%E7%8E%8B%E8%80%85%E8%8D%A3%E8%80%80%E8%89%BE%E7%90%B3&Refer=top) `543.8K 🔥`
 1. [得物复核唯品会所售Gucci腰带](https://s.weibo.com/weibo?q=%23%E5%BE%97%E7%89%A9%E5%A4%8D%E6%A0%B8%E5%94%AF%E5%93%81%E4%BC%9A%E6%89%80%E5%94%AEGucci%E8%85%B0%E5%B8%A6%23&Refer=top) `514.2K 🔥`
 1. [开饭了老妈](https://s.weibo.com/weibo?q=%23%E5%BC%80%E9%A5%AD%E4%BA%86%E8%80%81%E5%A6%88%23&Refer=top) `513.9K 🔥`
 1. [安徽商场失火致4死原因](https://s.weibo.com/weibo?q=%23%E5%AE%89%E5%BE%BD%E5%95%86%E5%9C%BA%E5%A4%B1%E7%81%AB%E8%87%B44%E6%AD%BB%E5%8E%9F%E5%9B%A0%23&Refer=top) `499.3K 🔥`
@@ -48,16 +50,14 @@
 1. [人脸识别真的安全吗](https://s.weibo.com/weibo?q=%23%E4%BA%BA%E8%84%B8%E8%AF%86%E5%88%AB%E7%9C%9F%E7%9A%84%E5%AE%89%E5%85%A8%E5%90%97%23&Refer=top) `428.3K 🔥`
 1. [李长歌爱情骗子](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E9%95%BF%E6%AD%8C%E7%88%B1%E6%83%85%E9%AA%97%E5%AD%90%23&Refer=top) `428.1K 🔥`
 1. [张萌说好男人是夸出来的](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%90%8C%E8%AF%B4%E5%A5%BD%E7%94%B7%E4%BA%BA%E6%98%AF%E5%A4%B8%E5%87%BA%E6%9D%A5%E7%9A%84%23&Refer=top) `394.4K 🔥`
+1. [徐智慧方否认与金正贤恋情](https://s.weibo.com/weibo?q=%E5%BE%90%E6%99%BA%E6%85%A7%E6%96%B9%E5%90%A6%E8%AE%A4%E4%B8%8E%E9%87%91%E6%AD%A3%E8%B4%A4%E6%81%8B%E6%83%85&Refer=top) `376.6K 🔥`
 1. [EXO庆祝出道九周年](https://s.weibo.com/weibo?q=%23EXO%E5%BA%86%E7%A5%9D%E5%87%BA%E9%81%93%E4%B9%9D%E5%91%A8%E5%B9%B4%23&Refer=top) `375.0K 🔥`
+1. [全国多地菜市出现掉色香葱](https://s.weibo.com/weibo?q=%E5%85%A8%E5%9B%BD%E5%A4%9A%E5%9C%B0%E8%8F%9C%E5%B8%82%E5%87%BA%E7%8E%B0%E6%8E%89%E8%89%B2%E9%A6%99%E8%91%B1&Refer=top) `372.7K 🔥`
 1. [进击的巨人](https://s.weibo.com/weibo?q=%E8%BF%9B%E5%87%BB%E7%9A%84%E5%B7%A8%E4%BA%BA&Refer=top) `357.1K 🔥`
+1. [长歌行开分](https://s.weibo.com/weibo?q=%E9%95%BF%E6%AD%8C%E8%A1%8C%E5%BC%80%E5%88%86&Refer=top) `349.1K 🔥`
 1. [外国人吐槽外媒根本不聊真实的新疆](https://s.weibo.com/weibo?q=%23%E5%A4%96%E5%9B%BD%E4%BA%BA%E5%90%90%E6%A7%BD%E5%A4%96%E5%AA%92%E6%A0%B9%E6%9C%AC%E4%B8%8D%E8%81%8A%E7%9C%9F%E5%AE%9E%E7%9A%84%E6%96%B0%E7%96%86%23&Refer=top) `326.9K 🔥`
-1. [赵立坚说美方泼中国脏水是想转移视线](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E7%AB%8B%E5%9D%9A%E8%AF%B4%E7%BE%8E%E6%96%B9%E6%B3%BC%E4%B8%AD%E5%9B%BD%E8%84%8F%E6%B0%B4%E6%98%AF%E6%83%B3%E8%BD%AC%E7%A7%BB%E8%A7%86%E7%BA%BF%23&Refer=top) `321.9K 🔥`
-1. [王者荣耀新赛季](https://s.weibo.com/weibo?q=%E7%8E%8B%E8%80%85%E8%8D%A3%E8%80%80%E6%96%B0%E8%B5%9B%E5%AD%A3&Refer=top) `319.9K 🔥`
-1. [赵又廷高圆圆片场手拉手](https://s.weibo.com/weibo?q=%E8%B5%B5%E5%8F%88%E5%BB%B7%E9%AB%98%E5%9C%86%E5%9C%86%E7%89%87%E5%9C%BA%E6%89%8B%E6%8B%89%E6%89%8B&Refer=top) `297.8K 🔥`
-1. [林妙可探班关晓彤](https://s.weibo.com/weibo?q=%E6%9E%97%E5%A6%99%E5%8F%AF%E6%8E%A2%E7%8F%AD%E5%85%B3%E6%99%93%E5%BD%A4&Refer=top) `295.2K 🔥`
-1. [云南新增11例确诊](https://s.weibo.com/weibo?q=%E4%BA%91%E5%8D%97%E6%96%B0%E5%A2%9E11%E4%BE%8B%E7%A1%AE%E8%AF%8A&Refer=top) `295.2K 🔥`
 
-数据更新于 2021-04-08 09:13:01
+数据更新于 2021-04-08 09:49:21
 
 <!-- END -->
 
