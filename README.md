@@ -41,13 +41,14 @@
 1. [人气韩妆防晒被举报造假](https://s.weibo.com/weibo?q=%23%E4%BA%BA%E6%B0%94%E9%9F%A9%E5%A6%86%E9%98%B2%E6%99%92%E8%A2%AB%E4%B8%BE%E6%8A%A5%E9%80%A0%E5%81%87%23&Refer=top) `439.4K 🔥`
 1. [商务部回应美方打压7家中国超算实体](https://s.weibo.com/weibo?q=%E5%95%86%E5%8A%A1%E9%83%A8%E5%9B%9E%E5%BA%94%E7%BE%8E%E6%96%B9%E6%89%93%E5%8E%8B7%E5%AE%B6%E4%B8%AD%E5%9B%BD%E8%B6%85%E7%AE%97%E5%AE%9E%E4%BD%93&Refer=top) `438.3K 🔥`
 1. [青春有你排名](https://s.weibo.com/weibo?q=%23%E9%9D%92%E6%98%A5%E6%9C%89%E4%BD%A0%E6%8E%92%E5%90%8D%23&Refer=top) `437.8K 🔥`
-1. [张雨绮 一旦接受了这个设定](https://s.weibo.com/weibo?q=%E5%BC%A0%E9%9B%A8%E7%BB%AE%20%E4%B8%80%E6%97%A6%E6%8E%A5%E5%8F%97%E4%BA%86%E8%BF%99%E4%B8%AA%E8%AE%BE%E5%AE%9A&Refer=top) `398.9K 🔥`
+1. [张雨绮 一旦接受了这个设定](https://s.weibo.com/weibo?q=%E5%BC%A0%E9%9B%A8%E7%BB%AE%20%E4%B8%80%E6%97%A6%E6%8E%A5%E5%8F%97%E4%BA%86%E8%BF%99%E4%B8%AA%E8%AE%BE%E5%AE%9A&Refer=top) `432.1K 🔥`
+1. [虞书欣王鹤棣反击代拍](https://s.weibo.com/weibo?q=%E8%99%9E%E4%B9%A6%E6%AC%A3%E7%8E%8B%E9%B9%A4%E6%A3%A3%E5%8F%8D%E5%87%BB%E4%BB%A3%E6%8B%8D&Refer=top) `431.7K 🔥`
+1. [长歌行](https://s.weibo.com/weibo?q=%E9%95%BF%E6%AD%8C%E8%A1%8C&Refer=top) `430.2K 🔥`
+1. [多地启用Z字形斑马线](https://s.weibo.com/weibo?q=%23%E5%A4%9A%E5%9C%B0%E5%90%AF%E7%94%A8Z%E5%AD%97%E5%BD%A2%E6%96%91%E9%A9%AC%E7%BA%BF%23&Refer=top) `428.9K 🔥`
+1. [新疆一煤矿发生透水事故21人被困](https://s.weibo.com/weibo?q=%E6%96%B0%E7%96%86%E4%B8%80%E7%85%A4%E7%9F%BF%E5%8F%91%E7%94%9F%E9%80%8F%E6%B0%B4%E4%BA%8B%E6%95%8521%E4%BA%BA%E8%A2%AB%E5%9B%B0&Refer=top) `427.4K 🔥`
+1. [浪浪钉](https://s.weibo.com/weibo?q=%23%E6%B5%AA%E6%B5%AA%E9%92%89%23&Refer=top) `421.2K 🔥`
 1. [李现自己和自己玩石头剪刀布](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E7%8E%B0%E8%87%AA%E5%B7%B1%E5%92%8C%E8%87%AA%E5%B7%B1%E7%8E%A9%E7%9F%B3%E5%A4%B4%E5%89%AA%E5%88%80%E5%B8%83%23&Refer=top) `396.1K 🔥`
-1. [虞书欣王鹤棣反击代拍](https://s.weibo.com/weibo?q=%E8%99%9E%E4%B9%A6%E6%AC%A3%E7%8E%8B%E9%B9%A4%E6%A3%A3%E5%8F%8D%E5%87%BB%E4%BB%A3%E6%8B%8D&Refer=top) `393.4K 🔥`
-1. [多地启用Z字形斑马线](https://s.weibo.com/weibo?q=%23%E5%A4%9A%E5%9C%B0%E5%90%AF%E7%94%A8Z%E5%AD%97%E5%BD%A2%E6%96%91%E9%A9%AC%E7%BA%BF%23&Refer=top) `392.6K 🔥`
-1. [长歌行](https://s.weibo.com/weibo?q=%E9%95%BF%E6%AD%8C%E8%A1%8C&Refer=top) `386.3K 🔥`
 1. [快乐大本营](https://s.weibo.com/weibo?q=%E5%BF%AB%E4%B9%90%E5%A4%A7%E6%9C%AC%E8%90%A5&Refer=top) `360.1K 🔥`
-1. [浪浪钉](https://s.weibo.com/weibo?q=%23%E6%B5%AA%E6%B5%AA%E9%92%89%23&Refer=top) `359.3K 🔥`
 1. [退役军人三亚吃海鲜遭遇宰客](https://s.weibo.com/weibo?q=%23%E9%80%80%E5%BD%B9%E5%86%9B%E4%BA%BA%E4%B8%89%E4%BA%9A%E5%90%83%E6%B5%B7%E9%B2%9C%E9%81%AD%E9%81%87%E5%AE%B0%E5%AE%A2%23&Refer=top) `353.8K 🔥`
 1. [白冰拒绝李元韬](https://s.weibo.com/weibo?q=%E7%99%BD%E5%86%B0%E6%8B%92%E7%BB%9D%E6%9D%8E%E5%85%83%E9%9F%AC&Refer=top) `353.1K 🔥`
 1. [幼儿园不得设学前班](https://s.weibo.com/weibo?q=%23%E5%B9%BC%E5%84%BF%E5%9B%AD%E4%B8%8D%E5%BE%97%E8%AE%BE%E5%AD%A6%E5%89%8D%E7%8F%AD%23&Refer=top) `346.9K 🔥`
@@ -55,9 +56,8 @@
 1. [西安人有多会排队](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E5%AE%89%E4%BA%BA%E6%9C%89%E5%A4%9A%E4%BC%9A%E6%8E%92%E9%98%9F%23&Refer=top) `336.8K 🔥`
 1. [幼儿连续用电子产品不宜超过15分钟](https://s.weibo.com/weibo?q=%23%E5%B9%BC%E5%84%BF%E8%BF%9E%E7%BB%AD%E7%94%A8%E7%94%B5%E5%AD%90%E4%BA%A7%E5%93%81%E4%B8%8D%E5%AE%9C%E8%B6%85%E8%BF%8715%E5%88%86%E9%92%9F%23&Refer=top) `310.2K 🔥`
 1. [青春有你](https://s.weibo.com/weibo?q=%E9%9D%92%E6%98%A5%E6%9C%89%E4%BD%A0&Refer=top) `291.0K 🔥`
-1. [文森佐](https://s.weibo.com/weibo?q=%E6%96%87%E6%A3%AE%E4%BD%90&Refer=top) `290.0K 🔥`
 
-数据更新于 2021-04-11 07:49:46
+数据更新于 2021-04-11 07:59:31
 
 <!-- END -->
 
