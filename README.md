@@ -10,8 +10,8 @@
 1. [张馨予 这几天馒头主食吃的太多了](https://s.weibo.com/weibo?q=%E5%BC%A0%E9%A6%A8%E4%BA%88%20%E8%BF%99%E5%87%A0%E5%A4%A9%E9%A6%92%E5%A4%B4%E4%B8%BB%E9%A3%9F%E5%90%83%E7%9A%84%E5%A4%AA%E5%A4%9A%E4%BA%86&Refer=top) `3.8M 🔥`
 1. [4人接种强生疫苗后出现血栓](https://s.weibo.com/weibo?q=%234%E4%BA%BA%E6%8E%A5%E7%A7%8D%E5%BC%BA%E7%94%9F%E7%96%AB%E8%8B%97%E5%90%8E%E5%87%BA%E7%8E%B0%E8%A1%80%E6%A0%93%23&Refer=top) `3.2M 🔥`
 1. [DMX去世](https://s.weibo.com/weibo?q=%23DMX%E5%8E%BB%E4%B8%96%23&Refer=top) `3.1M 🔥`
+1. [三甲医院医生自曝收回扣50多万](https://s.weibo.com/weibo?q=%E4%B8%89%E7%94%B2%E5%8C%BB%E9%99%A2%E5%8C%BB%E7%94%9F%E8%87%AA%E6%9B%9D%E6%94%B6%E5%9B%9E%E6%89%A350%E5%A4%9A%E4%B8%87&Refer=top) `2.6M 🔥`
 1. [顺丰董事长王卫因预亏致歉](https://s.weibo.com/weibo?q=%23%E9%A1%BA%E4%B8%B0%E8%91%A3%E4%BA%8B%E9%95%BF%E7%8E%8B%E5%8D%AB%E5%9B%A0%E9%A2%84%E4%BA%8F%E8%87%B4%E6%AD%89%23&Refer=top) `2.4M 🔥`
-1. [三甲医院医生自曝收回扣50多万](https://s.weibo.com/weibo?q=%E4%B8%89%E7%94%B2%E5%8C%BB%E9%99%A2%E5%8C%BB%E7%94%9F%E8%87%AA%E6%9B%9D%E6%94%B6%E5%9B%9E%E6%89%A350%E5%A4%9A%E4%B8%87&Refer=top) `2.3M 🔥`
 1. [利路修第十二名](https://s.weibo.com/weibo?q=%23%E5%88%A9%E8%B7%AF%E4%BF%AE%E7%AC%AC%E5%8D%81%E4%BA%8C%E5%90%8D%23&Refer=top) `2.0M 🔥`
 1. [英国将不为菲利普亲王举行国葬](https://s.weibo.com/weibo?q=%23%E8%8B%B1%E5%9B%BD%E5%B0%86%E4%B8%8D%E4%B8%BA%E8%8F%B2%E5%88%A9%E6%99%AE%E4%BA%B2%E7%8E%8B%E4%B8%BE%E8%A1%8C%E5%9B%BD%E8%91%AC%23&Refer=top) `2.0M 🔥`
 1. [丑得刚刚好的鸭子](https://s.weibo.com/weibo?q=%23%E4%B8%91%E5%BE%97%E5%88%9A%E5%88%9A%E5%A5%BD%E7%9A%84%E9%B8%AD%E5%AD%90%23&Refer=top) `1.9M 🔥`
@@ -57,7 +57,7 @@
 1. [官方通报兄弟祭祖回来发现房屋被拆](https://s.weibo.com/weibo?q=%23%E5%AE%98%E6%96%B9%E9%80%9A%E6%8A%A5%E5%85%84%E5%BC%9F%E7%A5%AD%E7%A5%96%E5%9B%9E%E6%9D%A5%E5%8F%91%E7%8E%B0%E6%88%BF%E5%B1%8B%E8%A2%AB%E6%8B%86%23&Refer=top) `658.8K 🔥`
 1. [文淇艺考成绩](https://s.weibo.com/weibo?q=%23%E6%96%87%E6%B7%87%E8%89%BA%E8%80%83%E6%88%90%E7%BB%A9%23&Refer=top) `630.9K 🔥`
 
-数据更新于 2021-04-10 14:19:07
+数据更新于 2021-04-10 14:32:08
 
 <!-- END -->
 
