@@ -3,7 +3,7 @@ name: schedule
 on:
   schedule:
     # NOTE: 间隔 5 分钟执行一次
-    - cron: "*/5 * * * *"
+    - cron: "*/600 * * * *"
 
 jobs:
   build:
