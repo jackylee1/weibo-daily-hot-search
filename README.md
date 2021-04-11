@@ -43,6 +43,7 @@
 1. [解放军喊话台军你们很快就适应了](https://s.weibo.com/weibo?q=%23%E8%A7%A3%E6%94%BE%E5%86%9B%E5%96%8A%E8%AF%9D%E5%8F%B0%E5%86%9B%E4%BD%A0%E4%BB%AC%E5%BE%88%E5%BF%AB%E5%B0%B1%E9%80%82%E5%BA%94%E4%BA%86%23&Refer=top) `999.6K 🔥`
 1. [头一次见到房景房](https://s.weibo.com/weibo?q=%23%E5%A4%B4%E4%B8%80%E6%AC%A1%E8%A7%81%E5%88%B0%E6%88%BF%E6%99%AF%E6%88%BF%23&Refer=top) `997.1K 🔥`
 1. [谢娜说俏俏想喝糖浆演假咳嗽](https://s.weibo.com/weibo?q=%23%E8%B0%A2%E5%A8%9C%E8%AF%B4%E4%BF%8F%E4%BF%8F%E6%83%B3%E5%96%9D%E7%B3%96%E6%B5%86%E6%BC%94%E5%81%87%E5%92%B3%E5%97%BD%23&Refer=top) `952.0K 🔥`
+1. [三亚通报游客吃海胆蒸蛋没海胆](https://s.weibo.com/weibo?q=%E4%B8%89%E4%BA%9A%E9%80%9A%E6%8A%A5%E6%B8%B8%E5%AE%A2%E5%90%83%E6%B5%B7%E8%83%86%E8%92%B8%E8%9B%8B%E6%B2%A1%E6%B5%B7%E8%83%86&Refer=top) `933.2K 🔥`
 1. [幼儿园不得设学前班](https://s.weibo.com/weibo?q=%23%E5%B9%BC%E5%84%BF%E5%9B%AD%E4%B8%8D%E5%BE%97%E8%AE%BE%E5%AD%A6%E5%89%8D%E7%8F%AD%23&Refer=top) `922.2K 🔥`
 1. [创造营三公直拍心脏狙击](https://s.weibo.com/weibo?q=%23%E5%88%9B%E9%80%A0%E8%90%A5%E4%B8%89%E5%85%AC%E7%9B%B4%E6%8B%8D%E5%BF%83%E8%84%8F%E7%8B%99%E5%87%BB%23&Refer=top) `905.7K 🔥`
 1. [大同卫健委回应医生自曝收50万回扣](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%90%8C%E5%8D%AB%E5%81%A5%E5%A7%94%E5%9B%9E%E5%BA%94%E5%8C%BB%E7%94%9F%E8%87%AA%E6%9B%9D%E6%94%B650%E4%B8%87%E5%9B%9E%E6%89%A3%23&Refer=top) `868.8K 🔥`
@@ -55,9 +56,8 @@
 1. [湖人 篮网](https://s.weibo.com/weibo?q=%E6%B9%96%E4%BA%BA%20%E7%AF%AE%E7%BD%91&Refer=top) `831.1K 🔥`
 1. [教育局长跳霹雳舞为学生解压](https://s.weibo.com/weibo?q=%E6%95%99%E8%82%B2%E5%B1%80%E9%95%BF%E8%B7%B3%E9%9C%B9%E9%9B%B3%E8%88%9E%E4%B8%BA%E5%AD%A6%E7%94%9F%E8%A7%A3%E5%8E%8B&Refer=top) `830.1K 🔥`
 1. [年轻人也可能得帕金森病](https://s.weibo.com/weibo?q=%23%E5%B9%B4%E8%BD%BB%E4%BA%BA%E4%B9%9F%E5%8F%AF%E8%83%BD%E5%BE%97%E5%B8%95%E9%87%91%E6%A3%AE%E7%97%85%23&Refer=top) `810.1K 🔥`
-1. [重庆必胜客](https://s.weibo.com/weibo?q=%E9%87%8D%E5%BA%86%E5%BF%85%E8%83%9C%E5%AE%A2&Refer=top) `790.6K 🔥`
 
-数据更新于 2021-04-11 13:49:21
+数据更新于 2021-04-11 13:55:52
 
 <!-- END -->
 
