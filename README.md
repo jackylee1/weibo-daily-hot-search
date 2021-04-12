@@ -20,13 +20,14 @@
 1. [军嫂见证兵王丈夫晋升军衔时刻](https://s.weibo.com/weibo?q=%23%E5%86%9B%E5%AB%82%E8%A7%81%E8%AF%81%E5%85%B5%E7%8E%8B%E4%B8%88%E5%A4%AB%E6%99%8B%E5%8D%87%E5%86%9B%E8%A1%94%E6%97%B6%E5%88%BB%23&Refer=top) `2.8M 🔥`
 1. [郭美美等人售有毒减肥药案侦破](https://s.weibo.com/weibo?q=%23%E9%83%AD%E7%BE%8E%E7%BE%8E%E7%AD%89%E4%BA%BA%E5%94%AE%E6%9C%89%E6%AF%92%E5%87%8F%E8%82%A5%E8%8D%AF%E6%A1%88%E4%BE%A6%E7%A0%B4%23&Refer=top) `2.8M 🔥`
 1. [拼多多发声明处罚极兔](https://s.weibo.com/weibo?q=%E6%8B%BC%E5%A4%9A%E5%A4%9A%E5%8F%91%E5%A3%B0%E6%98%8E%E5%A4%84%E7%BD%9A%E6%9E%81%E5%85%94&Refer=top) `2.8M 🔥`
+1. [台湾列车出轨事故确认罹难49人](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E6%B9%BE%E5%88%97%E8%BD%A6%E5%87%BA%E8%BD%A8%E4%BA%8B%E6%95%85%E7%A1%AE%E8%AE%A4%E7%BD%B9%E9%9A%BE49%E4%BA%BA%23&Refer=top) `2.6M 🔥`
 1. [陈赫道歉](https://s.weibo.com/weibo?q=%E9%99%88%E8%B5%AB%E9%81%93%E6%AD%89&Refer=top) `2.6M 🔥`
+1. [董子健 你看你们离谱吗](https://s.weibo.com/weibo?q=%E8%91%A3%E5%AD%90%E5%81%A5%20%E4%BD%A0%E7%9C%8B%E4%BD%A0%E4%BB%AC%E7%A6%BB%E8%B0%B1%E5%90%97&Refer=top) `2.6M 🔥`
 1. [小S吐槽女儿晒照是想炫耀腰细](https://s.weibo.com/weibo?q=%E5%B0%8FS%E5%90%90%E6%A7%BD%E5%A5%B3%E5%84%BF%E6%99%92%E7%85%A7%E6%98%AF%E6%83%B3%E7%82%AB%E8%80%80%E8%85%B0%E7%BB%86&Refer=top) `2.5M 🔥`
 1. [白敬亭新公司名叫明白乐](https://s.weibo.com/weibo?q=%23%E7%99%BD%E6%95%AC%E4%BA%AD%E6%96%B0%E5%85%AC%E5%8F%B8%E5%90%8D%E5%8F%AB%E6%98%8E%E7%99%BD%E4%B9%90%23&Refer=top) `2.5M 🔥`
 1. [利路修得知自己排名后的反应](https://s.weibo.com/weibo?q=%E5%88%A9%E8%B7%AF%E4%BF%AE%E5%BE%97%E7%9F%A5%E8%87%AA%E5%B7%B1%E6%8E%92%E5%90%8D%E5%90%8E%E7%9A%84%E5%8F%8D%E5%BA%94&Refer=top) `2.1M 🔥`
 1. [徐睿知不让金正贤和女演员身体接触](https://s.weibo.com/weibo?q=%23%E5%BE%90%E7%9D%BF%E7%9F%A5%E4%B8%8D%E8%AE%A9%E9%87%91%E6%AD%A3%E8%B4%A4%E5%92%8C%E5%A5%B3%E6%BC%94%E5%91%98%E8%BA%AB%E4%BD%93%E6%8E%A5%E8%A7%A6%23&Refer=top) `1.9M 🔥`
 1. [胡杏儿三胎儿子正脸照](https://s.weibo.com/weibo?q=%E8%83%A1%E6%9D%8F%E5%84%BF%E4%B8%89%E8%83%8E%E5%84%BF%E5%AD%90%E6%AD%A3%E8%84%B8%E7%85%A7&Refer=top) `1.8M 🔥`
-1. [董子健 你看你们离谱吗](https://s.weibo.com/weibo?q=%E8%91%A3%E5%AD%90%E5%81%A5%20%E4%BD%A0%E7%9C%8B%E4%BD%A0%E4%BB%AC%E7%A6%BB%E8%B0%B1%E5%90%97&Refer=top) `1.7M 🔥`
 1. [11名中国航天员飞天名场面](https://s.weibo.com/weibo?q=%2311%E5%90%8D%E4%B8%AD%E5%9B%BD%E8%88%AA%E5%A4%A9%E5%91%98%E9%A3%9E%E5%A4%A9%E5%90%8D%E5%9C%BA%E9%9D%A2%23&Refer=top) `1.7M 🔥`
 1. [阚清子 谁的副驾驶还没个人啊](https://s.weibo.com/weibo?q=%E9%98%9A%E6%B8%85%E5%AD%90%20%E8%B0%81%E7%9A%84%E5%89%AF%E9%A9%BE%E9%A9%B6%E8%BF%98%E6%B2%A1%E4%B8%AA%E4%BA%BA%E5%95%8A&Refer=top) `1.7M 🔥`
 1. [马丽曾患抑郁症](https://s.weibo.com/weibo?q=%E9%A9%AC%E4%B8%BD%E6%9B%BE%E6%82%A3%E6%8A%91%E9%83%81%E7%97%87&Refer=top) `1.6M 🔥`
@@ -55,9 +56,8 @@
 1. [张恒带子女出游](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%81%92%E5%B8%A6%E5%AD%90%E5%A5%B3%E5%87%BA%E6%B8%B8%23&Refer=top) `877.4K 🔥`
 1. [我国建免疫屏障或需10亿人接种疫苗](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD%E5%BB%BA%E5%85%8D%E7%96%AB%E5%B1%8F%E9%9A%9C%E6%88%96%E9%9C%8010%E4%BA%BF%E4%BA%BA%E6%8E%A5%E7%A7%8D%E7%96%AB%E8%8B%97%23&Refer=top) `876.8K 🔥`
 1. [骑行大哥只想要吴磊的车子](https://s.weibo.com/weibo?q=%23%E9%AA%91%E8%A1%8C%E5%A4%A7%E5%93%A5%E5%8F%AA%E6%83%B3%E8%A6%81%E5%90%B4%E7%A3%8A%E7%9A%84%E8%BD%A6%E5%AD%90%23&Refer=top) `870.0K 🔥`
-1. [公交公司回应女生被夹遭拖行](https://s.weibo.com/weibo?q=%E5%85%AC%E4%BA%A4%E5%85%AC%E5%8F%B8%E5%9B%9E%E5%BA%94%E5%A5%B3%E7%94%9F%E8%A2%AB%E5%A4%B9%E9%81%AD%E6%8B%96%E8%A1%8C&Refer=top) `867.1K 🔥`
 
-数据更新于 2021-04-12 17:30:09
+数据更新于 2021-04-12 17:50:40
 
 <!-- END -->
 
