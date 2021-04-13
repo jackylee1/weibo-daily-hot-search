@@ -46,8 +46,8 @@
 1. [徐睿知缺席新片发布会](https://s.weibo.com/weibo?q=%E5%BE%90%E7%9D%BF%E7%9F%A5%E7%BC%BA%E5%B8%AD%E6%96%B0%E7%89%87%E5%8F%91%E5%B8%83%E4%BC%9A&Refer=top) `786.9K 🔥`
 1. [2哥来了怎么办定档](https://s.weibo.com/weibo?q=%232%E5%93%A5%E6%9D%A5%E4%BA%86%E6%80%8E%E4%B9%88%E5%8A%9E%E5%AE%9A%E6%A1%A3%23&Refer=top) `766.6K 🔥`
 1. [剑网3七秀](https://s.weibo.com/weibo?q=%23%E5%89%91%E7%BD%913%E4%B8%83%E7%A7%80%23&Refer=top) `762.8K 🔥`
+1. [专家称核废水恐损害人类DNA](https://s.weibo.com/weibo?q=%23%E4%B8%93%E5%AE%B6%E7%A7%B0%E6%A0%B8%E5%BA%9F%E6%B0%B4%E6%81%90%E6%8D%9F%E5%AE%B3%E4%BA%BA%E7%B1%BBDNA%23&Refer=top) `729.3K 🔥`
 1. [白敬亭每一根头发都有自己的想法](https://s.weibo.com/weibo?q=%23%E7%99%BD%E6%95%AC%E4%BA%AD%E6%AF%8F%E4%B8%80%E6%A0%B9%E5%A4%B4%E5%8F%91%E9%83%BD%E6%9C%89%E8%87%AA%E5%B7%B1%E7%9A%84%E6%83%B3%E6%B3%95%23&Refer=top) `686.2K 🔥`
-1. [专家称核废水恐损害人类DNA](https://s.weibo.com/weibo?q=%23%E4%B8%93%E5%AE%B6%E7%A7%B0%E6%A0%B8%E5%BA%9F%E6%B0%B4%E6%81%90%E6%8D%9F%E5%AE%B3%E4%BA%BA%E7%B1%BBDNA%23&Refer=top) `678.7K 🔥`
 1. [男子打110要求加微信接警员秒懂](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E6%89%93110%E8%A6%81%E6%B1%82%E5%8A%A0%E5%BE%AE%E4%BF%A1%E6%8E%A5%E8%AD%A6%E5%91%98%E7%A7%92%E6%87%82%23&Refer=top) `668.9K 🔥`
 1. [库里成为勇士队史得分王](https://s.weibo.com/weibo?q=%23%E5%BA%93%E9%87%8C%E6%88%90%E4%B8%BA%E5%8B%87%E5%A3%AB%E9%98%9F%E5%8F%B2%E5%BE%97%E5%88%86%E7%8E%8B%23&Refer=top) `656.6K 🔥`
 1. [蔡徐坤新专辑上线](https://s.weibo.com/weibo?q=%23%E8%94%A1%E5%BE%90%E5%9D%A4%E6%96%B0%E4%B8%93%E8%BE%91%E4%B8%8A%E7%BA%BF%23&Refer=top) `604.2K 🔥`
@@ -57,7 +57,7 @@
 1. [外交部回应日本政府决定核废水排海](https://s.weibo.com/weibo?q=%23%E5%A4%96%E4%BA%A4%E9%83%A8%E5%9B%9E%E5%BA%94%E6%97%A5%E6%9C%AC%E6%94%BF%E5%BA%9C%E5%86%B3%E5%AE%9A%E6%A0%B8%E5%BA%9F%E6%B0%B4%E6%8E%92%E6%B5%B7%23&Refer=top) `584.4K 🔥`
 1. [冉高鸣称自己是秃学家](https://s.weibo.com/weibo?q=%23%E5%86%89%E9%AB%98%E9%B8%A3%E7%A7%B0%E8%87%AA%E5%B7%B1%E6%98%AF%E7%A7%83%E5%AD%A6%E5%AE%B6%23&Refer=top) `584.0K 🔥`
 
-数据更新于 2021-04-13 13:34:16
+数据更新于 2021-04-13 13:49:37
 
 <!-- END -->
 
