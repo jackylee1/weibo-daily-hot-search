@@ -21,6 +21,7 @@
 1. [张雨绮李柄熹 娱乐圈姐弟恋甜宠文](https://s.weibo.com/weibo?q=%E5%BC%A0%E9%9B%A8%E7%BB%AE%E6%9D%8E%E6%9F%84%E7%86%B9%20%E5%A8%B1%E4%B9%90%E5%9C%88%E5%A7%90%E5%BC%9F%E6%81%8B%E7%94%9C%E5%AE%A0%E6%96%87&Refer=top) `2.9M 🔥`
 1. [男子搭讪遭拒刺死女大学生案二审开庭](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E6%90%AD%E8%AE%AA%E9%81%AD%E6%8B%92%E5%88%BA%E6%AD%BB%E5%A5%B3%E5%A4%A7%E5%AD%A6%E7%94%9F%E6%A1%88%E4%BA%8C%E5%AE%A1%E5%BC%80%E5%BA%AD%23&Refer=top) `2.7M 🔥`
 1. [江歌母亲不同意调解](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E6%AD%8C%E6%AF%8D%E4%BA%B2%E4%B8%8D%E5%90%8C%E6%84%8F%E8%B0%83%E8%A7%A3%23&Refer=top) `2.7M 🔥`
+1. [梁森戴假发](https://s.weibo.com/weibo?q=%23%E6%A2%81%E6%A3%AE%E6%88%B4%E5%81%87%E5%8F%91%23&Refer=top) `2.6M 🔥`
 1. [赵立坚请日本政客用核废水做饭洗衣](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E7%AB%8B%E5%9D%9A%E8%AF%B7%E6%97%A5%E6%9C%AC%E6%94%BF%E5%AE%A2%E7%94%A8%E6%A0%B8%E5%BA%9F%E6%B0%B4%E5%81%9A%E9%A5%AD%E6%B4%97%E8%A1%A3%23&Refer=top) `2.5M 🔥`
 1. [赵文瑄](https://s.weibo.com/weibo?q=%E8%B5%B5%E6%96%87%E7%91%84&Refer=top) `2.4M 🔥`
 1. [姜素拉产女](https://s.weibo.com/weibo?q=%E5%A7%9C%E7%B4%A0%E6%8B%89%E4%BA%A7%E5%A5%B3&Refer=top) `2.4M 🔥`
@@ -55,9 +56,8 @@
 1. [北京沙尘暴](https://s.weibo.com/weibo?q=%E5%8C%97%E4%BA%AC%E6%B2%99%E5%B0%98%E6%9A%B4&Refer=top) `1.1M 🔥`
 1. [丹麦永久停用阿斯利康疫苗](https://s.weibo.com/weibo?q=%23%E4%B8%B9%E9%BA%A6%E6%B0%B8%E4%B9%85%E5%81%9C%E7%94%A8%E9%98%BF%E6%96%AF%E5%88%A9%E5%BA%B7%E7%96%AB%E8%8B%97%23&Refer=top) `1.1M 🔥`
 1. [迪丽热巴任嘉伦摸头杀](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E4%BB%BB%E5%98%89%E4%BC%A6%E6%91%B8%E5%A4%B4%E6%9D%80%23&Refer=top) `1.1M 🔥`
-1. [lukebaby](https://s.weibo.com/weibo?q=lukebaby&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-04-15 21:32:12
+数据更新于 2021-04-15 21:48:39
 
 <!-- END -->
 
