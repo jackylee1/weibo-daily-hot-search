@@ -27,6 +27,7 @@
 1. [网恋奔现可以有多甜](https://s.weibo.com/weibo?q=%E7%BD%91%E6%81%8B%E5%A5%94%E7%8E%B0%E5%8F%AF%E4%BB%A5%E6%9C%89%E5%A4%9A%E7%94%9C&Refer=top) `579.4K 🔥`
 1. [佟丽娅教薇娅扭脖子](https://s.weibo.com/weibo?q=%23%E4%BD%9F%E4%B8%BD%E5%A8%85%E6%95%99%E8%96%87%E5%A8%85%E6%89%AD%E8%84%96%E5%AD%90%23&Refer=top) `563.0K 🔥`
 1. [十七哭了](https://s.weibo.com/weibo?q=%23%E5%8D%81%E4%B8%83%E5%93%AD%E4%BA%86%23&Refer=top) `477.5K 🔥`
+1. [国家矿山安监局通报近期三起煤矿事故](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E5%AE%B6%E7%9F%BF%E5%B1%B1%E5%AE%89%E7%9B%91%E5%B1%80%E9%80%9A%E6%8A%A5%E8%BF%91%E6%9C%9F%E4%B8%89%E8%B5%B7%E7%85%A4%E7%9F%BF%E4%BA%8B%E6%95%85%23&Refer=top) `437.7K 🔥`
 1. [胃癌大爷化疗回家路上救落水儿童](https://s.weibo.com/weibo?q=%E8%83%83%E7%99%8C%E5%A4%A7%E7%88%B7%E5%8C%96%E7%96%97%E5%9B%9E%E5%AE%B6%E8%B7%AF%E4%B8%8A%E6%95%91%E8%90%BD%E6%B0%B4%E5%84%BF%E7%AB%A5&Refer=top) `416.1K 🔥`
 1. [女子回应5年4次起诉离婚被驳回](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E5%9B%9E%E5%BA%945%E5%B9%B44%E6%AC%A1%E8%B5%B7%E8%AF%89%E7%A6%BB%E5%A9%9A%E8%A2%AB%E9%A9%B3%E5%9B%9E%23&Refer=top) `413.3K 🔥`
 1. [张根硕瘦好多](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%A0%B9%E7%A1%95%E7%98%A6%E5%A5%BD%E5%A4%9A%23&Refer=top) `413.2K 🔥`
@@ -47,17 +48,16 @@
 1. [赵立坚五问美国谁是真正威胁](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E7%AB%8B%E5%9D%9A%E4%BA%94%E9%97%AE%E7%BE%8E%E5%9B%BD%E8%B0%81%E6%98%AF%E7%9C%9F%E6%AD%A3%E5%A8%81%E8%83%81%23&Refer=top) `225.7K 🔥`
 1. [玩密室逃脱的社死现场](https://s.weibo.com/weibo?q=%23%E7%8E%A9%E5%AF%86%E5%AE%A4%E9%80%83%E8%84%B1%E7%9A%84%E7%A4%BE%E6%AD%BB%E7%8E%B0%E5%9C%BA%23&Refer=top) `223.4K 🔥`
 1. [日本70年前排废致水俣病灾害持续存在](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC70%E5%B9%B4%E5%89%8D%E6%8E%92%E5%BA%9F%E8%87%B4%E6%B0%B4%E4%BF%A3%E7%97%85%E7%81%BE%E5%AE%B3%E6%8C%81%E7%BB%AD%E5%AD%98%E5%9C%A8%23&Refer=top) `205.7K 🔥`
+1. [迪丽热巴墨绿色长裙](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E5%A2%A8%E7%BB%BF%E8%89%B2%E9%95%BF%E8%A3%99%23&Refer=top) `198.0K 🔥`
 1. [青春有你三公](https://s.weibo.com/weibo?q=%E9%9D%92%E6%98%A5%E6%9C%89%E4%BD%A0%E4%B8%89%E5%85%AC&Refer=top) `195.3K 🔥`
 1. [驯化者舞台](https://s.weibo.com/weibo?q=%E9%A9%AF%E5%8C%96%E8%80%85%E8%88%9E%E5%8F%B0&Refer=top) `188.5K 🔥`
 1. [奈娃家族的上学日记](https://s.weibo.com/weibo?q=%E5%A5%88%E5%A8%83%E5%AE%B6%E6%97%8F%E7%9A%84%E4%B8%8A%E5%AD%A6%E6%97%A5%E8%AE%B0&Refer=top) `165.5K 🔥`
+1. [龚俊张哲瀚演唱会要合唱天问](https://s.weibo.com/weibo?q=%E9%BE%9A%E4%BF%8A%E5%BC%A0%E5%93%B2%E7%80%9A%E6%BC%94%E5%94%B1%E4%BC%9A%E8%A6%81%E5%90%88%E5%94%B1%E5%A4%A9%E9%97%AE&Refer=top) `161.0K 🔥`
 1. [河南宁陵县规定彩礼不超3万元](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8D%97%E5%AE%81%E9%99%B5%E5%8E%BF%E8%A7%84%E5%AE%9A%E5%BD%A9%E7%A4%BC%E4%B8%8D%E8%B6%853%E4%B8%87%E5%85%83%23&Refer=top) `157.9K 🔥`
 1. [17元吃海底捞](https://s.weibo.com/weibo?q=%2317%E5%85%83%E5%90%83%E6%B5%B7%E5%BA%95%E6%8D%9E%23&Refer=top) `153.9K 🔥`
-1. [国家矿山安监局通报近期三起煤矿事故](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E5%AE%B6%E7%9F%BF%E5%B1%B1%E5%AE%89%E7%9B%91%E5%B1%80%E9%80%9A%E6%8A%A5%E8%BF%91%E6%9C%9F%E4%B8%89%E8%B5%B7%E7%85%A4%E7%9F%BF%E4%BA%8B%E6%95%85%23&Refer=top) `143.2K 🔥`
-1. [迪丽热巴墨绿色长裙](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E5%A2%A8%E7%BB%BF%E8%89%B2%E9%95%BF%E8%A3%99%23&Refer=top) `141.7K 🔥`
 1. [女足让看台上的爷们儿哭了](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E8%B6%B3%E8%AE%A9%E7%9C%8B%E5%8F%B0%E4%B8%8A%E7%9A%84%E7%88%B7%E4%BB%AC%E5%84%BF%E5%93%AD%E4%BA%86%23&Refer=top) `128.5K 🔥`
-1. [外交部回应日本催中国实现碳中和](https://s.weibo.com/weibo?q=%23%E5%A4%96%E4%BA%A4%E9%83%A8%E5%9B%9E%E5%BA%94%E6%97%A5%E6%9C%AC%E5%82%AC%E4%B8%AD%E5%9B%BD%E5%AE%9E%E7%8E%B0%E7%A2%B3%E4%B8%AD%E5%92%8C%23&Refer=top) `125.5K 🔥`
 
-数据更新于 2021-04-16 06:34:27
+数据更新于 2021-04-16 06:52:57
 
 <!-- END -->
 
