@@ -43,21 +43,21 @@
 1. [美国将驱逐10名俄罗斯外交官](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E5%B0%86%E9%A9%B1%E9%80%9010%E5%90%8D%E4%BF%84%E7%BD%97%E6%96%AF%E5%A4%96%E4%BA%A4%E5%AE%98%23&Refer=top) `290.2K 🔥`
 1. [赵立坚请日本政客用核废水做饭洗衣](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E7%AB%8B%E5%9D%9A%E8%AF%B7%E6%97%A5%E6%9C%AC%E6%94%BF%E5%AE%A2%E7%94%A8%E6%A0%B8%E5%BA%9F%E6%B0%B4%E5%81%9A%E9%A5%AD%E6%B4%97%E8%A1%A3%23&Refer=top) `289.4K 🔥`
 1. [你看那个人又在学习](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E7%9C%8B%E9%82%A3%E4%B8%AA%E4%BA%BA%E5%8F%88%E5%9C%A8%E5%AD%A6%E4%B9%A0%23&Refer=top) `276.0K 🔥`
+1. [日本70年前排废致水俣病灾害持续存在](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC70%E5%B9%B4%E5%89%8D%E6%8E%92%E5%BA%9F%E8%87%B4%E6%B0%B4%E4%BF%A3%E7%97%85%E7%81%BE%E5%AE%B3%E6%8C%81%E7%BB%AD%E5%AD%98%E5%9C%A8%23&Refer=top) `271.5K 🔥`
+1. [迪丽热巴墨绿色长裙](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E5%A2%A8%E7%BB%BF%E8%89%B2%E9%95%BF%E8%A3%99%23&Refer=top) `269.3K 🔥`
+1. [FBI每10小时针对中国开启一项新调查](https://s.weibo.com/weibo?q=%23FBI%E6%AF%8F10%E5%B0%8F%E6%97%B6%E9%92%88%E5%AF%B9%E4%B8%AD%E5%9B%BD%E5%BC%80%E5%90%AF%E4%B8%80%E9%A1%B9%E6%96%B0%E8%B0%83%E6%9F%A5%23&Refer=top) `269.3K 🔥`
 1. [小舍得](https://s.weibo.com/weibo?q=%E5%B0%8F%E8%88%8D%E5%BE%97&Refer=top) `248.4K 🔥`
-1. [日本70年前排废致水俣病灾害持续存在](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC70%E5%B9%B4%E5%89%8D%E6%8E%92%E5%BA%9F%E8%87%B4%E6%B0%B4%E4%BF%A3%E7%97%85%E7%81%BE%E5%AE%B3%E6%8C%81%E7%BB%AD%E5%AD%98%E5%9C%A8%23&Refer=top) `235.5K 🔥`
-1. [迪丽热巴墨绿色长裙](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E5%A2%A8%E7%BB%BF%E8%89%B2%E9%95%BF%E8%A3%99%23&Refer=top) `234.3K 🔥`
 1. [上海幼儿园招生不得测试家长和孩子](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E5%B9%BC%E5%84%BF%E5%9B%AD%E6%8B%9B%E7%94%9F%E4%B8%8D%E5%BE%97%E6%B5%8B%E8%AF%95%E5%AE%B6%E9%95%BF%E5%92%8C%E5%AD%A9%E5%AD%90%23&Refer=top) `229.2K 🔥`
 1. [赵立坚五问美国谁是真正威胁](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E7%AB%8B%E5%9D%9A%E4%BA%94%E9%97%AE%E7%BE%8E%E5%9B%BD%E8%B0%81%E6%98%AF%E7%9C%9F%E6%AD%A3%E5%A8%81%E8%83%81%23&Refer=top) `225.7K 🔥`
+1. [龚俊张哲瀚演唱会要合唱天问](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E5%BC%A0%E5%93%B2%E7%80%9A%E6%BC%94%E5%94%B1%E4%BC%9A%E8%A6%81%E5%90%88%E5%94%B1%E5%A4%A9%E9%97%AE%23&Refer=top) `225.6K 🔥`
 1. [玩密室逃脱的社死现场](https://s.weibo.com/weibo?q=%23%E7%8E%A9%E5%AF%86%E5%AE%A4%E9%80%83%E8%84%B1%E7%9A%84%E7%A4%BE%E6%AD%BB%E7%8E%B0%E5%9C%BA%23&Refer=top) `223.4K 🔥`
 1. [青春有你三公](https://s.weibo.com/weibo?q=%E9%9D%92%E6%98%A5%E6%9C%89%E4%BD%A0%E4%B8%89%E5%85%AC&Refer=top) `195.3K 🔥`
-1. [龚俊张哲瀚演唱会要合唱天问](https://s.weibo.com/weibo?q=%E9%BE%9A%E4%BF%8A%E5%BC%A0%E5%93%B2%E7%80%9A%E6%BC%94%E5%94%B1%E4%BC%9A%E8%A6%81%E5%90%88%E5%94%B1%E5%A4%A9%E9%97%AE&Refer=top) `190.2K 🔥`
 1. [驯化者舞台](https://s.weibo.com/weibo?q=%E9%A9%AF%E5%8C%96%E8%80%85%E8%88%9E%E5%8F%B0&Refer=top) `188.5K 🔥`
 1. [奈娃家族的上学日记](https://s.weibo.com/weibo?q=%E5%A5%88%E5%A8%83%E5%AE%B6%E6%97%8F%E7%9A%84%E4%B8%8A%E5%AD%A6%E6%97%A5%E8%AE%B0&Refer=top) `165.5K 🔥`
 1. [河南宁陵县规定彩礼不超3万元](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8D%97%E5%AE%81%E9%99%B5%E5%8E%BF%E8%A7%84%E5%AE%9A%E5%BD%A9%E7%A4%BC%E4%B8%8D%E8%B6%853%E4%B8%87%E5%85%83%23&Refer=top) `157.9K 🔥`
 1. [17元吃海底捞](https://s.weibo.com/weibo?q=%2317%E5%85%83%E5%90%83%E6%B5%B7%E5%BA%95%E6%8D%9E%23&Refer=top) `153.9K 🔥`
-1. [FBI每10小时针对中国开启一项新调查](https://s.weibo.com/weibo?q=%23FBI%E6%AF%8F10%E5%B0%8F%E6%97%B6%E9%92%88%E5%AF%B9%E4%B8%AD%E5%9B%BD%E5%BC%80%E5%90%AF%E4%B8%80%E9%A1%B9%E6%96%B0%E8%B0%83%E6%9F%A5%23&Refer=top) `143.6K 🔥`
 
-数据更新于 2021-04-16 07:00:41
+数据更新于 2021-04-16 07:07:46
 
 <!-- END -->
 
