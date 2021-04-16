@@ -31,6 +31,7 @@
 1. [孙俪12天写出第二遍史晨碑](https://s.weibo.com/weibo?q=%23%E5%AD%99%E4%BF%AA12%E5%A4%A9%E5%86%99%E5%87%BA%E7%AC%AC%E4%BA%8C%E9%81%8D%E5%8F%B2%E6%99%A8%E7%A2%91%23&Refer=top) `1.5M 🔥`
 1. [门店回应花17元吃海底捞](https://s.weibo.com/weibo?q=%E9%97%A8%E5%BA%97%E5%9B%9E%E5%BA%94%E8%8A%B117%E5%85%83%E5%90%83%E6%B5%B7%E5%BA%95%E6%8D%9E&Refer=top) `1.5M 🔥`
 1. [报警电话录下江歌最后一声惨叫](https://s.weibo.com/weibo?q=%23%E6%8A%A5%E8%AD%A6%E7%94%B5%E8%AF%9D%E5%BD%95%E4%B8%8B%E6%B1%9F%E6%AD%8C%E6%9C%80%E5%90%8E%E4%B8%80%E5%A3%B0%E6%83%A8%E5%8F%AB%23&Refer=top) `1.5M 🔥`
+1. [海胆蒸蛋事件当事人再回应](https://s.weibo.com/weibo?q=%E6%B5%B7%E8%83%86%E8%92%B8%E8%9B%8B%E4%BA%8B%E4%BB%B6%E5%BD%93%E4%BA%8B%E4%BA%BA%E5%86%8D%E5%9B%9E%E5%BA%94&Refer=top) `1.4M 🔥`
 1. [子悠快抑郁了吧](https://s.weibo.com/weibo?q=%E5%AD%90%E6%82%A0%E5%BF%AB%E6%8A%91%E9%83%81%E4%BA%86%E5%90%A7&Refer=top) `1.4M 🔥`
 1. [BBC记者晒打中国疫苗照片](https://s.weibo.com/weibo?q=BBC%E8%AE%B0%E8%80%85%E6%99%92%E6%89%93%E4%B8%AD%E5%9B%BD%E7%96%AB%E8%8B%97%E7%85%A7%E7%89%87&Refer=top) `1.4M 🔥`
 1. [联合国称日本排污影响将持续超100年](https://s.weibo.com/weibo?q=%23%E8%81%94%E5%90%88%E5%9B%BD%E7%A7%B0%E6%97%A5%E6%9C%AC%E6%8E%92%E6%B1%A1%E5%BD%B1%E5%93%8D%E5%B0%86%E6%8C%81%E7%BB%AD%E8%B6%85100%E5%B9%B4%23&Refer=top) `1.4M 🔥`
@@ -48,16 +49,15 @@
 1. [Nanon确诊新冠](https://s.weibo.com/weibo?q=%23Nanon%E7%A1%AE%E8%AF%8A%E6%96%B0%E5%86%A0%23&Refer=top) `1.2M 🔥`
 1. [乱港分子黎智英被判入狱12个月](https://s.weibo.com/weibo?q=%E4%B9%B1%E6%B8%AF%E5%88%86%E5%AD%90%E9%BB%8E%E6%99%BA%E8%8B%B1%E8%A2%AB%E5%88%A4%E5%85%A5%E7%8B%B112%E4%B8%AA%E6%9C%88&Refer=top) `1.2M 🔥`
 1. [周扬青呼吁不养折耳猫](https://s.weibo.com/weibo?q=%23%E5%91%A8%E6%89%AC%E9%9D%92%E5%91%BC%E5%90%81%E4%B8%8D%E5%85%BB%E6%8A%98%E8%80%B3%E7%8C%AB%23&Refer=top) `1.2M 🔥`
-1. [海胆蒸蛋事件当事人再回应](https://s.weibo.com/weibo?q=%E6%B5%B7%E8%83%86%E8%92%B8%E8%9B%8B%E4%BA%8B%E4%BB%B6%E5%BD%93%E4%BA%8B%E4%BA%BA%E5%86%8D%E5%9B%9E%E5%BA%94&Refer=top) `1.2M 🔥`
 1. [乔丹成为科比名人堂引荐人](https://s.weibo.com/weibo?q=%E4%B9%94%E4%B8%B9%E6%88%90%E4%B8%BA%E7%A7%91%E6%AF%94%E5%90%8D%E4%BA%BA%E5%A0%82%E5%BC%95%E8%8D%90%E4%BA%BA&Refer=top) `1.2M 🔥`
 1. [日本政府今年将制定核污水排放计划](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E6%94%BF%E5%BA%9C%E4%BB%8A%E5%B9%B4%E5%B0%86%E5%88%B6%E5%AE%9A%E6%A0%B8%E6%B1%A1%E6%B0%B4%E6%8E%92%E6%94%BE%E8%AE%A1%E5%88%92%23&Refer=top) `1.2M 🔥`
 1. [杨蓉连续七年为朱一龙庆生](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E8%93%89%E8%BF%9E%E7%BB%AD%E4%B8%83%E5%B9%B4%E4%B8%BA%E6%9C%B1%E4%B8%80%E9%BE%99%E5%BA%86%E7%94%9F%23&Refer=top) `1.2M 🔥`
 1. [韩媒称徐睿知曾操控郑允浩](https://s.weibo.com/weibo?q=%23%E9%9F%A9%E5%AA%92%E7%A7%B0%E5%BE%90%E7%9D%BF%E7%9F%A5%E6%9B%BE%E6%93%8D%E6%8E%A7%E9%83%91%E5%85%81%E6%B5%A9%23&Refer=top) `1.2M 🔥`
 1. [杭州地铁取消健康码查验](https://s.weibo.com/weibo?q=%23%E6%9D%AD%E5%B7%9E%E5%9C%B0%E9%93%81%E5%8F%96%E6%B6%88%E5%81%A5%E5%BA%B7%E7%A0%81%E6%9F%A5%E9%AA%8C%23&Refer=top) `1.1M 🔥`
+1. [乘风破浪的姐姐成团之夜](https://s.weibo.com/weibo?q=%E4%B9%98%E9%A3%8E%E7%A0%B4%E6%B5%AA%E7%9A%84%E5%A7%90%E5%A7%90%E6%88%90%E5%9B%A2%E4%B9%8B%E5%A4%9C&Refer=top) `1.1M 🔥`
 1. [2021一季度GDP同比增长18.3%](https://s.weibo.com/weibo?q=2021%E4%B8%80%E5%AD%A3%E5%BA%A6GDP%E5%90%8C%E6%AF%94%E5%A2%9E%E9%95%BF18.3%25&Refer=top) `1.1M 🔥`
-1. [华晨宇扎小辫子](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E6%99%A8%E5%AE%87%E6%89%8E%E5%B0%8F%E8%BE%AB%E5%AD%90%23&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-04-16 20:10:47
+数据更新于 2021-04-16 20:14:40
 
 <!-- END -->
 
