@@ -31,8 +31,10 @@
 1. [吴亦凡银发](https://s.weibo.com/weibo?q=%E5%90%B4%E4%BA%A6%E5%87%A1%E9%93%B6%E5%8F%91&Refer=top) `2.1M 🔥`
 1. [王牌对王牌](https://s.weibo.com/weibo?q=%E7%8E%8B%E7%89%8C%E5%AF%B9%E7%8E%8B%E7%89%8C&Refer=top) `2.1M 🔥`
 1. [阿朵阿兰 今晚最佳](https://s.weibo.com/weibo?q=%E9%98%BF%E6%9C%B5%E9%98%BF%E5%85%B0%20%E4%BB%8A%E6%99%9A%E6%9C%80%E4%BD%B3&Refer=top) `2.0M 🔥`
+1. [美国近一个月发生45起大规模枪击案](https://s.weibo.com/weibo?q=%E7%BE%8E%E5%9B%BD%E8%BF%91%E4%B8%80%E4%B8%AA%E6%9C%88%E5%8F%91%E7%94%9F45%E8%B5%B7%E5%A4%A7%E8%A7%84%E6%A8%A1%E6%9E%AA%E5%87%BB%E6%A1%88&Refer=top) `2.0M 🔥`
 1. [霍建华王力宏合照](https://s.weibo.com/weibo?q=%23%E9%9C%8D%E5%BB%BA%E5%8D%8E%E7%8E%8B%E5%8A%9B%E5%AE%8F%E5%90%88%E7%85%A7%23&Refer=top) `2.0M 🔥`
 1. [狗狗币大涨](https://s.weibo.com/weibo?q=%E7%8B%97%E7%8B%97%E5%B8%81%E5%A4%A7%E6%B6%A8&Refer=top) `1.9M 🔥`
+1. [创造营排名](https://s.weibo.com/weibo?q=%E5%88%9B%E9%80%A0%E8%90%A5%E6%8E%92%E5%90%8D&Refer=top) `1.9M 🔥`
 1. [CEO砍掉自己百万年薪提高员工工资](https://s.weibo.com/weibo?q=%23CEO%E7%A0%8D%E6%8E%89%E8%87%AA%E5%B7%B1%E7%99%BE%E4%B8%87%E5%B9%B4%E8%96%AA%E6%8F%90%E9%AB%98%E5%91%98%E5%B7%A5%E5%B7%A5%E8%B5%84%23&Refer=top) `1.9M 🔥`
 1. [男子恢复并散布女方微信记录被拘6日](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E6%81%A2%E5%A4%8D%E5%B9%B6%E6%95%A3%E5%B8%83%E5%A5%B3%E6%96%B9%E5%BE%AE%E4%BF%A1%E8%AE%B0%E5%BD%95%E8%A2%AB%E6%8B%986%E6%97%A5%23&Refer=top) `1.9M 🔥`
 1. [乘风破浪的姐姐成团之夜](https://s.weibo.com/weibo?q=%E4%B9%98%E9%A3%8E%E7%A0%B4%E6%B5%AA%E7%9A%84%E5%A7%90%E5%A7%90%E6%88%90%E5%9B%A2%E4%B9%8B%E5%A4%9C&Refer=top) `1.9M 🔥`
@@ -45,19 +47,17 @@
 1. [张柏芝抢麦](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%9F%8F%E8%8A%9D%E6%8A%A2%E9%BA%A6%23&Refer=top) `1.8M 🔥`
 1. [北大为2020届毕业生补办学位授予仪式](https://s.weibo.com/weibo?q=%23%E5%8C%97%E5%A4%A7%E4%B8%BA2020%E5%B1%8A%E6%AF%95%E4%B8%9A%E7%94%9F%E8%A1%A5%E5%8A%9E%E5%AD%A6%E4%BD%8D%E6%8E%88%E4%BA%88%E4%BB%AA%E5%BC%8F%23&Refer=top) `1.8M 🔥`
 1. [陈伟霆问刘维杨迪 是在取笑我吗](https://s.weibo.com/weibo?q=%E9%99%88%E4%BC%9F%E9%9C%86%E9%97%AE%E5%88%98%E7%BB%B4%E6%9D%A8%E8%BF%AA%20%E6%98%AF%E5%9C%A8%E5%8F%96%E7%AC%91%E6%88%91%E5%90%97&Refer=top) `1.8M 🔥`
+1. [小兰给新一打电话](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E5%85%B0%E7%BB%99%E6%96%B0%E4%B8%80%E6%89%93%E7%94%B5%E8%AF%9D%23&Refer=top) `1.7M 🔥`
 1. [容祖儿 我赢了阿sa阿娇](https://s.weibo.com/weibo?q=%E5%AE%B9%E7%A5%96%E5%84%BF%20%E6%88%91%E8%B5%A2%E4%BA%86%E9%98%BFsa%E9%98%BF%E5%A8%87&Refer=top) `1.7M 🔥`
 1. [酒店保安拒绝120乘电梯救人](https://s.weibo.com/weibo?q=%E9%85%92%E5%BA%97%E4%BF%9D%E5%AE%89%E6%8B%92%E7%BB%9D120%E4%B9%98%E7%94%B5%E6%A2%AF%E6%95%91%E4%BA%BA&Refer=top) `1.7M 🔥`
+1. [粤港澳大湾区凭啥跻身四大](https://s.weibo.com/weibo?q=%E7%B2%A4%E6%B8%AF%E6%BE%B3%E5%A4%A7%E6%B9%BE%E5%8C%BA%E5%87%AD%E5%95%A5%E8%B7%BB%E8%BA%AB%E5%9B%9B%E5%A4%A7&Refer=top) `1.7M 🔥`
 1. [铁岭市政府长期不作为慢作为被通报](https://s.weibo.com/weibo?q=%23%E9%93%81%E5%B2%AD%E5%B8%82%E6%94%BF%E5%BA%9C%E9%95%BF%E6%9C%9F%E4%B8%8D%E4%BD%9C%E4%B8%BA%E6%85%A2%E4%BD%9C%E4%B8%BA%E8%A2%AB%E9%80%9A%E6%8A%A5%23&Refer=top) `1.6M 🔥`
+1. [青春有你](https://s.weibo.com/weibo?q=%E9%9D%92%E6%98%A5%E6%9C%89%E4%BD%A0&Refer=top) `1.6M 🔥`
 1. [那英说听完杨丞琳的话有点心虚](https://s.weibo.com/weibo?q=%E9%82%A3%E8%8B%B1%E8%AF%B4%E5%90%AC%E5%AE%8C%E6%9D%A8%E4%B8%9E%E7%90%B3%E7%9A%84%E8%AF%9D%E6%9C%89%E7%82%B9%E5%BF%83%E8%99%9A&Refer=top) `1.5M 🔥`
 1. [创造营](https://s.weibo.com/weibo?q=%E5%88%9B%E9%80%A0%E8%90%A5&Refer=top) `1.4M 🔥`
 1. [全国日均发生2700起电信网络诈骗案](https://s.weibo.com/weibo?q=%23%E5%85%A8%E5%9B%BD%E6%97%A5%E5%9D%87%E5%8F%91%E7%94%9F2700%E8%B5%B7%E7%94%B5%E4%BF%A1%E7%BD%91%E7%BB%9C%E8%AF%88%E9%AA%97%E6%A1%88%23&Refer=top) `1.4M 🔥`
-1. [印度发现双重突变新冠病毒](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E5%8F%91%E7%8E%B0%E5%8F%8C%E9%87%8D%E7%AA%81%E5%8F%98%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%23&Refer=top) `1.4M 🔥`
-1. [创造营排名](https://s.weibo.com/weibo?q=%E5%88%9B%E9%80%A0%E8%90%A5%E6%8E%92%E5%90%8D&Refer=top) `1.4M 🔥`
-1. [THE9时代少年团齐舞](https://s.weibo.com/weibo?q=%23THE9%E6%97%B6%E4%BB%A3%E5%B0%91%E5%B9%B4%E5%9B%A2%E9%BD%90%E8%88%9E%23&Refer=top) `1.3M 🔥`
-1. [父亲写信给分手的女儿](https://s.weibo.com/weibo?q=%23%E7%88%B6%E4%BA%B2%E5%86%99%E4%BF%A1%E7%BB%99%E5%88%86%E6%89%8B%E7%9A%84%E5%A5%B3%E5%84%BF%23&Refer=top) `1.3M 🔥`
-1. [新兰 柯哀](https://s.weibo.com/weibo?q=%E6%96%B0%E5%85%B0%20%E6%9F%AF%E5%93%80&Refer=top) `1.3M 🔥`
 
-数据更新于 2021-04-17 20:36:23
+数据更新于 2021-04-17 21:02:55
 
 <!-- END -->
 
