@@ -23,12 +23,14 @@
 1. [郭美美被批捕](https://s.weibo.com/weibo?q=%23%E9%83%AD%E7%BE%8E%E7%BE%8E%E8%A2%AB%E6%89%B9%E6%8D%95%23&Refer=top) `1.8M 🔥`
 1. [赵丽颖耳环掉在锁骨上](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E4%B8%BD%E9%A2%96%E8%80%B3%E7%8E%AF%E6%8E%89%E5%9C%A8%E9%94%81%E9%AA%A8%E4%B8%8A%23&Refer=top) `1.8M 🔥`
 1. [张柏芝抢麦](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%9F%8F%E8%8A%9D%E6%8A%A2%E9%BA%A6%23&Refer=top) `1.8M 🔥`
+1. [迪丽热巴 我一定要演渣男](https://s.weibo.com/weibo?q=%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%20%E6%88%91%E4%B8%80%E5%AE%9A%E8%A6%81%E6%BC%94%E6%B8%A3%E7%94%B7&Refer=top) `1.8M 🔥`
 1. [容祖儿 我赢了阿sa阿娇](https://s.weibo.com/weibo?q=%E5%AE%B9%E7%A5%96%E5%84%BF%20%E6%88%91%E8%B5%A2%E4%BA%86%E9%98%BFsa%E9%98%BF%E5%A8%87&Refer=top) `1.7M 🔥`
 1. [那英说听完杨丞琳的话有点心虚](https://s.weibo.com/weibo?q=%E9%82%A3%E8%8B%B1%E8%AF%B4%E5%90%AC%E5%AE%8C%E6%9D%A8%E4%B8%9E%E7%90%B3%E7%9A%84%E8%AF%9D%E6%9C%89%E7%82%B9%E5%BF%83%E8%99%9A&Refer=top) `1.5M 🔥`
 1. [丁程鑫北电表演专业全国第五十二](https://s.weibo.com/weibo?q=%E4%B8%81%E7%A8%8B%E9%91%AB%E5%8C%97%E7%94%B5%E8%A1%A8%E6%BC%94%E4%B8%93%E4%B8%9A%E5%85%A8%E5%9B%BD%E7%AC%AC%E4%BA%94%E5%8D%81%E4%BA%8C&Refer=top) `1.2M 🔥`
 1. [云南新增确诊病例1例](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E6%96%B0%E5%A2%9E%E7%A1%AE%E8%AF%8A%E7%97%85%E4%BE%8B1%E4%BE%8B%23&Refer=top) `1.2M 🔥`
 1. [全国日均发生2700起电信网络诈骗案](https://s.weibo.com/weibo?q=%23%E5%85%A8%E5%9B%BD%E6%97%A5%E5%9D%87%E5%8F%91%E7%94%9F2700%E8%B5%B7%E7%94%B5%E4%BF%A1%E7%BD%91%E7%BB%9C%E8%AF%88%E9%AA%97%E6%A1%88%23&Refer=top) `1.2M 🔥`
 1. [郎平每天都在球场陪女排训练](https://s.weibo.com/weibo?q=%23%E9%83%8E%E5%B9%B3%E6%AF%8F%E5%A4%A9%E9%83%BD%E5%9C%A8%E7%90%83%E5%9C%BA%E9%99%AA%E5%A5%B3%E6%8E%92%E8%AE%AD%E7%BB%83%23&Refer=top) `1.1M 🔥`
+1. [CEO砍掉自己百万年薪提高员工工资](https://s.weibo.com/weibo?q=%23CEO%E7%A0%8D%E6%8E%89%E8%87%AA%E5%B7%B1%E7%99%BE%E4%B8%87%E5%B9%B4%E8%96%AA%E6%8F%90%E9%AB%98%E5%91%98%E5%B7%A5%E5%B7%A5%E8%B5%84%23&Refer=top) `1.0M 🔥`
 1. [百变大咖秀冠军锤娜丽莎](https://s.weibo.com/weibo?q=%23%E7%99%BE%E5%8F%98%E5%A4%A7%E5%92%96%E7%A7%80%E5%86%A0%E5%86%9B%E9%94%A4%E5%A8%9C%E4%B8%BD%E8%8E%8E%23&Refer=top) `1.0M 🔥`
 1. [董思成回应深夜和女生吃饭](https://s.weibo.com/weibo?q=%23%E8%91%A3%E6%80%9D%E6%88%90%E5%9B%9E%E5%BA%94%E6%B7%B1%E5%A4%9C%E5%92%8C%E5%A5%B3%E7%94%9F%E5%90%83%E9%A5%AD%23&Refer=top) `976.6K 🔥`
 1. [海底捞跨商场拉客被商户投诉](https://s.weibo.com/weibo?q=%E6%B5%B7%E5%BA%95%E6%8D%9E%E8%B7%A8%E5%95%86%E5%9C%BA%E6%8B%89%E5%AE%A2%E8%A2%AB%E5%95%86%E6%88%B7%E6%8A%95%E8%AF%89&Refer=top) `961.4K 🔥`
@@ -54,10 +56,8 @@
 1. [2020年我国每分钟有8人被确诊癌症](https://s.weibo.com/weibo?q=%232020%E5%B9%B4%E6%88%91%E5%9B%BD%E6%AF%8F%E5%88%86%E9%92%9F%E6%9C%898%E4%BA%BA%E8%A2%AB%E7%A1%AE%E8%AF%8A%E7%99%8C%E7%97%87%23&Refer=top) `492.4K 🔥`
 1. [前妻生二孩9年后收到违法生育通知](https://s.weibo.com/weibo?q=%E5%89%8D%E5%A6%BB%E7%94%9F%E4%BA%8C%E5%AD%A99%E5%B9%B4%E5%90%8E%E6%94%B6%E5%88%B0%E8%BF%9D%E6%B3%95%E7%94%9F%E8%82%B2%E9%80%9A%E7%9F%A5&Refer=top) `465.0K 🔥`
 1. [半夜吃东西一定要开灯](https://s.weibo.com/weibo?q=%23%E5%8D%8A%E5%A4%9C%E5%90%83%E4%B8%9C%E8%A5%BF%E4%B8%80%E5%AE%9A%E8%A6%81%E5%BC%80%E7%81%AF%23&Refer=top) `462.8K 🔥`
-1. [秦昊为啥扒拉张雨绮](https://s.weibo.com/weibo?q=%23%E7%A7%A6%E6%98%8A%E4%B8%BA%E5%95%A5%E6%89%92%E6%8B%89%E5%BC%A0%E9%9B%A8%E7%BB%AE%23&Refer=top) `450.7K 🔥`
-1. [王嘉尔又脱衣服了](https://s.weibo.com/weibo?q=%E7%8E%8B%E5%98%89%E5%B0%94%E5%8F%88%E8%84%B1%E8%A1%A3%E6%9C%8D%E4%BA%86&Refer=top) `450.7K 🔥`
 
-数据更新于 2021-04-17 09:53:40
+数据更新于 2021-04-17 10:28:03
 
 <!-- END -->
 
