@@ -51,13 +51,13 @@
 1. [创造营](https://s.weibo.com/weibo?q=%E5%88%9B%E9%80%A0%E8%90%A5&Refer=top) `1.4M 🔥`
 1. [全国日均发生2700起电信网络诈骗案](https://s.weibo.com/weibo?q=%23%E5%85%A8%E5%9B%BD%E6%97%A5%E5%9D%87%E5%8F%91%E7%94%9F2700%E8%B5%B7%E7%94%B5%E4%BF%A1%E7%BD%91%E7%BB%9C%E8%AF%88%E9%AA%97%E6%A1%88%23&Refer=top) `1.4M 🔥`
 1. [印度发现双重突变新冠病毒](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E5%8F%91%E7%8E%B0%E5%8F%8C%E9%87%8D%E7%AA%81%E5%8F%98%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%23&Refer=top) `1.4M 🔥`
+1. [创造营排名](https://s.weibo.com/weibo?q=%E5%88%9B%E9%80%A0%E8%90%A5%E6%8E%92%E5%90%8D&Refer=top) `1.4M 🔥`
 1. [THE9时代少年团齐舞](https://s.weibo.com/weibo?q=%23THE9%E6%97%B6%E4%BB%A3%E5%B0%91%E5%B9%B4%E5%9B%A2%E9%BD%90%E8%88%9E%23&Refer=top) `1.3M 🔥`
 1. [父亲写信给分手的女儿](https://s.weibo.com/weibo?q=%23%E7%88%B6%E4%BA%B2%E5%86%99%E4%BF%A1%E7%BB%99%E5%88%86%E6%89%8B%E7%9A%84%E5%A5%B3%E5%84%BF%23&Refer=top) `1.3M 🔥`
 1. [新兰 柯哀](https://s.weibo.com/weibo?q=%E6%96%B0%E5%85%B0%20%E6%9F%AF%E5%93%80&Refer=top) `1.3M 🔥`
 1. [李一桐工作室声明](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E4%B8%80%E6%A1%90%E5%B7%A5%E4%BD%9C%E5%AE%A4%E5%A3%B0%E6%98%8E%23&Refer=top) `1.2M 🔥`
-1. [太原一化工厂爆炸2人遇难](https://s.weibo.com/weibo?q=%23%E5%A4%AA%E5%8E%9F%E4%B8%80%E5%8C%96%E5%B7%A5%E5%8E%82%E7%88%86%E7%82%B82%E4%BA%BA%E9%81%87%E9%9A%BE%23&Refer=top) `1.2M 🔥`
 
-数据更新于 2021-04-17 19:48:01
+数据更新于 2021-04-17 19:53:29
 
 <!-- END -->
 
