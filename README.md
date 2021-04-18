@@ -28,6 +28,7 @@
 1. [王俊凯是泡脚还是泡塑料袋](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E4%BF%8A%E5%87%AF%E6%98%AF%E6%B3%A1%E8%84%9A%E8%BF%98%E6%98%AF%E6%B3%A1%E5%A1%91%E6%96%99%E8%A2%8B%23&Refer=top) `2.0M 🔥`
 1. [RNG夺冠](https://s.weibo.com/weibo?q=RNG%E5%A4%BA%E5%86%A0&Refer=top) `1.9M 🔥`
 1. [38只强毒性活蚂蚁非法入境被查](https://s.weibo.com/weibo?q=38%E5%8F%AA%E5%BC%BA%E6%AF%92%E6%80%A7%E6%B4%BB%E8%9A%82%E8%9A%81%E9%9D%9E%E6%B3%95%E5%85%A5%E5%A2%83%E8%A2%AB%E6%9F%A5&Refer=top) `1.9M 🔥`
+1. [杨丞琳自认流行音乐出道三次第二人](https://s.weibo.com/weibo?q=%E6%9D%A8%E4%B8%9E%E7%90%B3%E8%87%AA%E8%AE%A4%E6%B5%81%E8%A1%8C%E9%9F%B3%E4%B9%90%E5%87%BA%E9%81%93%E4%B8%89%E6%AC%A1%E7%AC%AC%E4%BA%8C%E4%BA%BA&Refer=top) `1.9M 🔥`
 1. [五一国内出游有望达2亿人次](https://s.weibo.com/weibo?q=%23%E4%BA%94%E4%B8%80%E5%9B%BD%E5%86%85%E5%87%BA%E6%B8%B8%E6%9C%89%E6%9C%9B%E8%BE%BE2%E4%BA%BF%E4%BA%BA%E6%AC%A1%23&Refer=top) `1.8M 🔥`
 1. [奥斯卡 有什么事骂我就好了](https://s.weibo.com/weibo?q=%E5%A5%A5%E6%96%AF%E5%8D%A1%20%E6%9C%89%E4%BB%80%E4%B9%88%E4%BA%8B%E9%AA%82%E6%88%91%E5%B0%B1%E5%A5%BD%E4%BA%86&Refer=top) `1.8M 🔥`
 1. [被钟老师气死](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E9%92%9F%E8%80%81%E5%B8%88%E6%B0%94%E6%AD%BB%23&Refer=top) `1.8M 🔥`
@@ -54,10 +55,9 @@
 1. [大湾区的美食你最爱哪一道](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E6%B9%BE%E5%8C%BA%E7%9A%84%E7%BE%8E%E9%A3%9F%E4%BD%A0%E6%9C%80%E7%88%B1%E5%93%AA%E4%B8%80%E9%81%93%23&Refer=top) `1.1M 🔥`
 1. [比特币跌破52000美元](https://s.weibo.com/weibo?q=%23%E6%AF%94%E7%89%B9%E5%B8%81%E8%B7%8C%E7%A0%B452000%E7%BE%8E%E5%85%83%23&Refer=top) `1.1M 🔥`
 1. [台湾花莲再发6.1级地震](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E6%B9%BE%E8%8A%B1%E8%8E%B2%E5%86%8D%E5%8F%916.1%E7%BA%A7%E5%9C%B0%E9%9C%87%23&Refer=top) `1.1M 🔥`
-1. [交警通报大巴车撞限高杆致1死6伤](https://s.weibo.com/weibo?q=%E4%BA%A4%E8%AD%A6%E9%80%9A%E6%8A%A5%E5%A4%A7%E5%B7%B4%E8%BD%A6%E6%92%9E%E9%99%90%E9%AB%98%E6%9D%86%E8%87%B41%E6%AD%BB6%E4%BC%A4&Refer=top) `1.1M 🔥`
-1. [杨幂许凯路透](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E5%B9%82%E8%AE%B8%E5%87%AF%E8%B7%AF%E9%80%8F%23&Refer=top) `1.1M 🔥`
+1. [新疆32岁辅警执勤中牺牲](https://s.weibo.com/weibo?q=%E6%96%B0%E7%96%8632%E5%B2%81%E8%BE%85%E8%AD%A6%E6%89%A7%E5%8B%A4%E4%B8%AD%E7%89%BA%E7%89%B2&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-04-18 23:06:54
+数据更新于 2021-04-18 23:26:47
 
 <!-- END -->
 
