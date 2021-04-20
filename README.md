@@ -36,6 +36,7 @@
 1. [Angelababy晒蓝发怼脸自拍](https://s.weibo.com/weibo?q=Angelababy%E6%99%92%E8%93%9D%E5%8F%91%E6%80%BC%E8%84%B8%E8%87%AA%E6%8B%8D&Refer=top) `497.4K 🔥`
 1. [特斯拉道歉](https://s.weibo.com/weibo?q=%E7%89%B9%E6%96%AF%E6%8B%89%E9%81%93%E6%AD%89&Refer=top) `487.4K 🔥`
 1. [杨紫桃粉色长裙](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E7%B4%AB%E6%A1%83%E7%B2%89%E8%89%B2%E9%95%BF%E8%A3%99%23&Refer=top) `481.6K 🔥`
+1. [iPhone12紫色](https://s.weibo.com/weibo?q=iPhone12%E7%B4%AB%E8%89%B2&Refer=top) `464.0K 🔥`
 1. [香港学生假冒公安骗走九旬富婆2.5亿](https://s.weibo.com/weibo?q=%E9%A6%99%E6%B8%AF%E5%AD%A6%E7%94%9F%E5%81%87%E5%86%92%E5%85%AC%E5%AE%89%E9%AA%97%E8%B5%B0%E4%B9%9D%E6%97%AC%E5%AF%8C%E5%A9%862.5%E4%BA%BF&Refer=top) `463.4K 🔥`
 1. [小朋友的颜值能有多绝](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E6%9C%8B%E5%8F%8B%E7%9A%84%E9%A2%9C%E5%80%BC%E8%83%BD%E6%9C%89%E5%A4%9A%E7%BB%9D%23&Refer=top) `428.1K 🔥`
 1. [李长歌改名叫阿离](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E9%95%BF%E6%AD%8C%E6%94%B9%E5%90%8D%E5%8F%AB%E9%98%BF%E7%A6%BB%23&Refer=top) `411.2K 🔥`
@@ -54,10 +55,9 @@
 1. [雪碧拌面](https://s.weibo.com/weibo?q=%E9%9B%AA%E7%A2%A7%E6%8B%8C%E9%9D%A2&Refer=top) `230.7K 🔥`
 1. [中央政法委评特斯拉车展维权](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%A4%AE%E6%94%BF%E6%B3%95%E5%A7%94%E8%AF%84%E7%89%B9%E6%96%AF%E6%8B%89%E8%BD%A6%E5%B1%95%E7%BB%B4%E6%9D%83%23&Refer=top) `220.8K 🔥`
 1. [经纪人婚礼现场给伯远拉票](https://s.weibo.com/weibo?q=%23%E7%BB%8F%E7%BA%AA%E4%BA%BA%E5%A9%9A%E7%A4%BC%E7%8E%B0%E5%9C%BA%E7%BB%99%E4%BC%AF%E8%BF%9C%E6%8B%89%E7%A5%A8%23&Refer=top) `220.7K 🔥`
-1. [iPhone12紫色](https://s.weibo.com/weibo?q=iPhone12%E7%B4%AB%E8%89%B2&Refer=top) `218.9K 🔥`
 1. [乍得已故总统之子被任命为临时国家元首](https://s.weibo.com/weibo?q=%E4%B9%8D%E5%BE%97%E5%B7%B2%E6%95%85%E6%80%BB%E7%BB%9F%E4%B9%8B%E5%AD%90%E8%A2%AB%E4%BB%BB%E5%91%BD%E4%B8%BA%E4%B8%B4%E6%97%B6%E5%9B%BD%E5%AE%B6%E5%85%83%E9%A6%96&Refer=top) `212.8K 🔥`
 
-数据更新于 2021-04-21 01:33:10
+数据更新于 2021-04-21 02:03:45
 
 <!-- END -->
 
