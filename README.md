@@ -27,6 +27,7 @@
 1. [陕西汉墓现罕见陶仓装满小米](https://s.weibo.com/weibo?q=%E9%99%95%E8%A5%BF%E6%B1%89%E5%A2%93%E7%8E%B0%E7%BD%95%E8%A7%81%E9%99%B6%E4%BB%93%E8%A3%85%E6%BB%A1%E5%B0%8F%E7%B1%B3&Refer=top) `1.9M 🔥`
 1. [董子健 遇到四川火锅尊严可以不要](https://s.weibo.com/weibo?q=%E8%91%A3%E5%AD%90%E5%81%A5%20%E9%81%87%E5%88%B0%E5%9B%9B%E5%B7%9D%E7%81%AB%E9%94%85%E5%B0%8A%E4%B8%A5%E5%8F%AF%E4%BB%A5%E4%B8%8D%E8%A6%81&Refer=top) `1.8M 🔥`
 1. [吴磊 热巴是李长歌本歌](https://s.weibo.com/weibo?q=%E5%90%B4%E7%A3%8A%20%E7%83%AD%E5%B7%B4%E6%98%AF%E6%9D%8E%E9%95%BF%E6%AD%8C%E6%9C%AC%E6%AD%8C&Refer=top) `1.8M 🔥`
+1. [9名大学生吸网购电子烟后入院](https://s.weibo.com/weibo?q=9%E5%90%8D%E5%A4%A7%E5%AD%A6%E7%94%9F%E5%90%B8%E7%BD%91%E8%B4%AD%E7%94%B5%E5%AD%90%E7%83%9F%E5%90%8E%E5%85%A5%E9%99%A2&Refer=top) `1.6M 🔥`
 1. [井柏然宋威龙李荣浩合照](https://s.weibo.com/weibo?q=%23%E4%BA%95%E6%9F%8F%E7%84%B6%E5%AE%8B%E5%A8%81%E9%BE%99%E6%9D%8E%E8%8D%A3%E6%B5%A9%E5%90%88%E7%85%A7%23&Refer=top) `1.5M 🔥`
 1. [干细胞注射竟长出牙槽骨](https://s.weibo.com/weibo?q=%E5%B9%B2%E7%BB%86%E8%83%9E%E6%B3%A8%E5%B0%84%E7%AB%9F%E9%95%BF%E5%87%BA%E7%89%99%E6%A7%BD%E9%AA%A8&Refer=top) `1.4M 🔥`
 1. [快乐大本营直播](https://s.weibo.com/weibo?q=%E5%BF%AB%E4%B9%90%E5%A4%A7%E6%9C%AC%E8%90%A5%E7%9B%B4%E6%92%AD&Refer=top) `1.3M 🔥`
@@ -35,7 +36,6 @@
 1. [杜淳王灿得女](https://s.weibo.com/weibo?q=%23%E6%9D%9C%E6%B7%B3%E7%8E%8B%E7%81%BF%E5%BE%97%E5%A5%B3%23&Refer=top) `1.3M 🔥`
 1. [日本禁止福岛黑鲉鱼上市](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E7%A6%81%E6%AD%A2%E7%A6%8F%E5%B2%9B%E9%BB%91%E9%B2%89%E9%B1%BC%E4%B8%8A%E5%B8%82%23&Refer=top) `1.3M 🔥`
 1. [博鳌亚洲论坛2021年年会开幕式](https://s.weibo.com/weibo?q=%E5%8D%9A%E9%B3%8C%E4%BA%9A%E6%B4%B2%E8%AE%BA%E5%9D%9B2021%E5%B9%B4%E5%B9%B4%E4%BC%9A%E5%BC%80%E5%B9%95%E5%BC%8F&Refer=top) `1.2M 🔥`
-1. [9名大学生吸网购电子烟后入院](https://s.weibo.com/weibo?q=9%E5%90%8D%E5%A4%A7%E5%AD%A6%E7%94%9F%E5%90%B8%E7%BD%91%E8%B4%AD%E7%94%B5%E5%AD%90%E7%83%9F%E5%90%8E%E5%85%A5%E9%99%A2&Refer=top) `1.2M 🔥`
 1. [全球规模最大互联网试验设施主干网](https://s.weibo.com/weibo?q=%E5%85%A8%E7%90%83%E8%A7%84%E6%A8%A1%E6%9C%80%E5%A4%A7%E4%BA%92%E8%81%94%E7%BD%91%E8%AF%95%E9%AA%8C%E8%AE%BE%E6%96%BD%E4%B8%BB%E5%B9%B2%E7%BD%91&Refer=top) `1.2M 🔥`
 1. [刘昊然 好几个音乐节目找我当导师](https://s.weibo.com/weibo?q=%E5%88%98%E6%98%8A%E7%84%B6%20%E5%A5%BD%E5%87%A0%E4%B8%AA%E9%9F%B3%E4%B9%90%E8%8A%82%E7%9B%AE%E6%89%BE%E6%88%91%E5%BD%93%E5%AF%BC%E5%B8%88&Refer=top) `1.2M 🔥`
 1. [外贸村几十元买假世界名牌](https://s.weibo.com/weibo?q=%23%E5%A4%96%E8%B4%B8%E6%9D%91%E5%87%A0%E5%8D%81%E5%85%83%E4%B9%B0%E5%81%87%E4%B8%96%E7%95%8C%E5%90%8D%E7%89%8C%23&Refer=top) `1.2M 🔥`
@@ -57,7 +57,7 @@
 1. [注销校园贷被骗99万](https://s.weibo.com/weibo?q=%23%E6%B3%A8%E9%94%80%E6%A0%A1%E5%9B%AD%E8%B4%B7%E8%A2%AB%E9%AA%9799%E4%B8%87%23&Refer=top) `784.6K 🔥`
 1. [76人主场大喊库里MVP](https://s.weibo.com/weibo?q=%2376%E4%BA%BA%E4%B8%BB%E5%9C%BA%E5%A4%A7%E5%96%8A%E5%BA%93%E9%87%8CMVP%23&Refer=top) `770.6K 🔥`
 
-数据更新于 2021-04-20 14:33:28
+数据更新于 2021-04-20 14:54:51
 
 <!-- END -->
 
