@@ -29,6 +29,7 @@
 1. [吴磊 热巴是李长歌本歌](https://s.weibo.com/weibo?q=%E5%90%B4%E7%A3%8A%20%E7%83%AD%E5%B7%B4%E6%98%AF%E6%9D%8E%E9%95%BF%E6%AD%8C%E6%9C%AC%E6%AD%8C&Refer=top) `1.8M 🔥`
 1. [9名大学生吸网购电子烟后入院](https://s.weibo.com/weibo?q=9%E5%90%8D%E5%A4%A7%E5%AD%A6%E7%94%9F%E5%90%B8%E7%BD%91%E8%B4%AD%E7%94%B5%E5%AD%90%E7%83%9F%E5%90%8E%E5%85%A5%E9%99%A2&Refer=top) `1.6M 🔥`
 1. [井柏然宋威龙李荣浩合照](https://s.weibo.com/weibo?q=%23%E4%BA%95%E6%9F%8F%E7%84%B6%E5%AE%8B%E5%A8%81%E9%BE%99%E6%9D%8E%E8%8D%A3%E6%B5%A9%E5%90%88%E7%85%A7%23&Refer=top) `1.5M 🔥`
+1. [利路修给张雨绮取俄语名](https://s.weibo.com/weibo?q=%23%E5%88%A9%E8%B7%AF%E4%BF%AE%E7%BB%99%E5%BC%A0%E9%9B%A8%E7%BB%AE%E5%8F%96%E4%BF%84%E8%AF%AD%E5%90%8D%23&Refer=top) `1.4M 🔥`
 1. [干细胞注射竟长出牙槽骨](https://s.weibo.com/weibo?q=%E5%B9%B2%E7%BB%86%E8%83%9E%E6%B3%A8%E5%B0%84%E7%AB%9F%E9%95%BF%E5%87%BA%E7%89%99%E6%A7%BD%E9%AA%A8&Refer=top) `1.4M 🔥`
 1. [快乐大本营直播](https://s.weibo.com/weibo?q=%E5%BF%AB%E4%B9%90%E5%A4%A7%E6%9C%AC%E8%90%A5%E7%9B%B4%E6%92%AD&Refer=top) `1.3M 🔥`
 1. [菲律宾男团颜值](https://s.weibo.com/weibo?q=%23%E8%8F%B2%E5%BE%8B%E5%AE%BE%E7%94%B7%E5%9B%A2%E9%A2%9C%E5%80%BC%23&Refer=top) `1.3M 🔥`
@@ -55,9 +56,8 @@
 1. [程莉莎怼营销号](https://s.weibo.com/weibo?q=%E7%A8%8B%E8%8E%89%E8%8E%8E%E6%80%BC%E8%90%A5%E9%94%80%E5%8F%B7&Refer=top) `822.3K 🔥`
 1. [女子造谣打新冠疫苗致人死亡被行拘](https://s.weibo.com/weibo?q=%E5%A5%B3%E5%AD%90%E9%80%A0%E8%B0%A3%E6%89%93%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E8%87%B4%E4%BA%BA%E6%AD%BB%E4%BA%A1%E8%A2%AB%E8%A1%8C%E6%8B%98&Refer=top) `816.5K 🔥`
 1. [注销校园贷被骗99万](https://s.weibo.com/weibo?q=%23%E6%B3%A8%E9%94%80%E6%A0%A1%E5%9B%AD%E8%B4%B7%E8%A2%AB%E9%AA%9799%E4%B8%87%23&Refer=top) `784.6K 🔥`
-1. [76人主场大喊库里MVP](https://s.weibo.com/weibo?q=%2376%E4%BA%BA%E4%B8%BB%E5%9C%BA%E5%A4%A7%E5%96%8A%E5%BA%93%E9%87%8CMVP%23&Refer=top) `770.6K 🔥`
 
-数据更新于 2021-04-20 14:54:51
+数据更新于 2021-04-20 15:08:17
 
 <!-- END -->
 
