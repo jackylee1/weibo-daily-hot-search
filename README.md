@@ -8,7 +8,7 @@
 
 1. [关晓彤卡点为鹿晗庆生](https://s.weibo.com/weibo?q=%23%E5%85%B3%E6%99%93%E5%BD%A4%E5%8D%A1%E7%82%B9%E4%B8%BA%E9%B9%BF%E6%99%97%E5%BA%86%E7%94%9F%23&Refer=top) `4.9M 🔥`
 1. [台媒称许玮甯离婚](https://s.weibo.com/weibo?q=%E5%8F%B0%E5%AA%92%E7%A7%B0%E8%AE%B8%E7%8E%AE%E7%94%AF%E7%A6%BB%E5%A9%9A&Refer=top) `4.3M 🔥`
-1. [这不是杨紫是杜华](https://s.weibo.com/weibo?q=%23%E8%BF%99%E4%B8%8D%E6%98%AF%E6%9D%A8%E7%B4%AB%E6%98%AF%E6%9D%9C%E5%8D%8E%23&Refer=top) `4.0M 🔥`
+1. [这不是杨紫是杜华](https://s.weibo.com/weibo?q=%23%E8%BF%99%E4%B8%8D%E6%98%AF%E6%9D%A8%E7%B4%AB%E6%98%AF%E6%9D%9C%E5%8D%8E%23&Refer=top) `4.1M 🔥`
 1. [妈妈暴力逼迫女儿学习被撤销监护权](https://s.weibo.com/weibo?q=%23%E5%A6%88%E5%A6%88%E6%9A%B4%E5%8A%9B%E9%80%BC%E8%BF%AB%E5%A5%B3%E5%84%BF%E5%AD%A6%E4%B9%A0%E8%A2%AB%E6%92%A4%E9%94%80%E7%9B%91%E6%8A%A4%E6%9D%83%23&Refer=top) `3.5M 🔥`
 1. [印度飞香港一航班机上53人确诊](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E9%A3%9E%E9%A6%99%E6%B8%AF%E4%B8%80%E8%88%AA%E7%8F%AD%E6%9C%BA%E4%B8%8A53%E4%BA%BA%E7%A1%AE%E8%AF%8A%23&Refer=top) `3.2M 🔥`
 1. [张翰吴宣仪加盟妻子的浪漫旅行5](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E7%BF%B0%E5%90%B4%E5%AE%A3%E4%BB%AA%E5%8A%A0%E7%9B%9F%E5%A6%BB%E5%AD%90%E7%9A%84%E6%B5%AA%E6%BC%AB%E6%97%85%E8%A1%8C5%23&Refer=top) `3.2M 🔥`
@@ -17,6 +17,7 @@
 1. [陈乔恩 有没有求婚是我们私人的事](https://s.weibo.com/weibo?q=%E9%99%88%E4%B9%94%E6%81%A9%20%E6%9C%89%E6%B2%A1%E6%9C%89%E6%B1%82%E5%A9%9A%E6%98%AF%E6%88%91%E4%BB%AC%E7%A7%81%E4%BA%BA%E7%9A%84%E4%BA%8B&Refer=top) `2.9M 🔥`
 1. [林峯曾开小号回怼黑张馨月的网友](https://s.weibo.com/weibo?q=%23%E6%9E%97%E5%B3%AF%E6%9B%BE%E5%BC%80%E5%B0%8F%E5%8F%B7%E5%9B%9E%E6%80%BC%E9%BB%91%E5%BC%A0%E9%A6%A8%E6%9C%88%E7%9A%84%E7%BD%91%E5%8F%8B%23&Refer=top) `2.7M 🔥`
 1. [女生道歉专用头像](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E7%94%9F%E9%81%93%E6%AD%89%E4%B8%93%E7%94%A8%E5%A4%B4%E5%83%8F%23&Refer=top) `2.5M 🔥`
+1. [特斯拉被责令提供事故前行车数据](https://s.weibo.com/weibo?q=%E7%89%B9%E6%96%AF%E6%8B%89%E8%A2%AB%E8%B4%A3%E4%BB%A4%E6%8F%90%E4%BE%9B%E4%BA%8B%E6%95%85%E5%89%8D%E8%A1%8C%E8%BD%A6%E6%95%B0%E6%8D%AE&Refer=top) `2.4M 🔥`
 1. [菅义伟决定取消访问印度](https://s.weibo.com/weibo?q=%23%E8%8F%85%E4%B9%89%E4%BC%9F%E5%86%B3%E5%AE%9A%E5%8F%96%E6%B6%88%E8%AE%BF%E9%97%AE%E5%8D%B0%E5%BA%A6%23&Refer=top) `2.4M 🔥`
 1. [吴彤 刚刚上台紧张的我鞋都掉了](https://s.weibo.com/weibo?q=%E5%90%B4%E5%BD%A4%20%E5%88%9A%E5%88%9A%E4%B8%8A%E5%8F%B0%E7%B4%A7%E5%BC%A0%E7%9A%84%E6%88%91%E9%9E%8B%E9%83%BD%E6%8E%89%E4%BA%86&Refer=top) `2.3M 🔥`
 1. [女子用身体挡住失控轮椅](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E7%94%A8%E8%BA%AB%E4%BD%93%E6%8C%A1%E4%BD%8F%E5%A4%B1%E6%8E%A7%E8%BD%AE%E6%A4%85%23&Refer=top) `2.2M 🔥`
@@ -55,9 +56,8 @@
 1. [颖儿说产后不想淘汰就快速复出](https://s.weibo.com/weibo?q=%23%E9%A2%96%E5%84%BF%E8%AF%B4%E4%BA%A7%E5%90%8E%E4%B8%8D%E6%83%B3%E6%B7%98%E6%B1%B0%E5%B0%B1%E5%BF%AB%E9%80%9F%E5%A4%8D%E5%87%BA%23&Refer=top) `846.9K 🔥`
 1. [双胞胎兄弟同时加入火箭军](https://s.weibo.com/weibo?q=%23%E5%8F%8C%E8%83%9E%E8%83%8E%E5%85%84%E5%BC%9F%E5%90%8C%E6%97%B6%E5%8A%A0%E5%85%A5%E7%81%AB%E7%AE%AD%E5%86%9B%23&Refer=top) `844.8K 🔥`
 1. [一鹿彤行](https://s.weibo.com/weibo?q=%E4%B8%80%E9%B9%BF%E5%BD%A4%E8%A1%8C&Refer=top) `808.2K 🔥`
-1. [中小学教材不得夹带广告和二维码](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%B0%8F%E5%AD%A6%E6%95%99%E6%9D%90%E4%B8%8D%E5%BE%97%E5%A4%B9%E5%B8%A6%E5%B9%BF%E5%91%8A%E5%92%8C%E4%BA%8C%E7%BB%B4%E7%A0%81%23&Refer=top) `807.3K 🔥`
 
-数据更新于 2021-04-21 19:34:25
+数据更新于 2021-04-21 19:45:57
 
 <!-- END -->
 
