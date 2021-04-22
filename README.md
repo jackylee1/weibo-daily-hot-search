@@ -54,10 +54,10 @@
 1. [龚俊丁程鑫四川话版山河令](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E4%B8%81%E7%A8%8B%E9%91%AB%E5%9B%9B%E5%B7%9D%E8%AF%9D%E7%89%88%E5%B1%B1%E6%B2%B3%E4%BB%A4%23&Refer=top) `980.3K 🔥`
 1. [全球超3.7万物种濒临灭绝](https://s.weibo.com/weibo?q=%23%E5%85%A8%E7%90%83%E8%B6%853.7%E4%B8%87%E7%89%A9%E7%A7%8D%E6%BF%92%E4%B8%B4%E7%81%AD%E7%BB%9D%23&Refer=top) `947.3K 🔥`
 1. [点餐浪费或被收取厨余垃圾处理费](https://s.weibo.com/weibo?q=%E7%82%B9%E9%A4%90%E6%B5%AA%E8%B4%B9%E6%88%96%E8%A2%AB%E6%94%B6%E5%8F%96%E5%8E%A8%E4%BD%99%E5%9E%83%E5%9C%BE%E5%A4%84%E7%90%86%E8%B4%B9&Refer=top) `940.0K 🔥`
+1. [BO道歉](https://s.weibo.com/weibo?q=BO%E9%81%93%E6%AD%89&Refer=top) `938.9K 🔥`
 1. [巴基斯坦酒店遭袭击时中国代表团外出](https://s.weibo.com/weibo?q=%E5%B7%B4%E5%9F%BA%E6%96%AF%E5%9D%A6%E9%85%92%E5%BA%97%E9%81%AD%E8%A2%AD%E5%87%BB%E6%97%B6%E4%B8%AD%E5%9B%BD%E4%BB%A3%E8%A1%A8%E5%9B%A2%E5%A4%96%E5%87%BA&Refer=top) `937.9K 🔥`
-1. [BO道歉](https://s.weibo.com/weibo?q=BO%E9%81%93%E6%AD%89&Refer=top) `932.6K 🔥`
 
-数据更新于 2021-04-22 22:07:55
+数据更新于 2021-04-22 22:09:38
 
 <!-- END -->
 
