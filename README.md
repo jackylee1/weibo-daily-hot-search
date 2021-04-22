@@ -9,10 +9,10 @@
 1. [周杰伦为女儿建粉红色城堡](https://s.weibo.com/weibo?q=%23%E5%91%A8%E6%9D%B0%E4%BC%A6%E4%B8%BA%E5%A5%B3%E5%84%BF%E5%BB%BA%E7%B2%89%E7%BA%A2%E8%89%B2%E5%9F%8E%E5%A0%A1%23&Refer=top) `2.6M 🔥`
 1. [刘昊然抢不到痛仰乐队现场票](https://s.weibo.com/weibo?q=%23%E5%88%98%E6%98%8A%E7%84%B6%E6%8A%A2%E4%B8%8D%E5%88%B0%E7%97%9B%E4%BB%B0%E4%B9%90%E9%98%9F%E7%8E%B0%E5%9C%BA%E7%A5%A8%23&Refer=top) `1.9M 🔥`
 1. [丁真 不怯场](https://s.weibo.com/weibo?q=%E4%B8%81%E7%9C%9F%20%E4%B8%8D%E6%80%AF%E5%9C%BA&Refer=top) `1.7M 🔥`
-1. [巴基斯坦酒店爆炸致4死12伤](https://s.weibo.com/weibo?q=%23%E5%B7%B4%E5%9F%BA%E6%96%AF%E5%9D%A6%E9%85%92%E5%BA%97%E7%88%86%E7%82%B8%E8%87%B44%E6%AD%BB12%E4%BC%A4%23&Refer=top) `1.5M 🔥`
+1. [巴基斯坦酒店爆炸致4死12伤](https://s.weibo.com/weibo?q=%23%E5%B7%B4%E5%9F%BA%E6%96%AF%E5%9D%A6%E9%85%92%E5%BA%97%E7%88%86%E7%82%B8%E8%87%B44%E6%AD%BB12%E4%BC%A4%23&Refer=top) `1.6M 🔥`
+1. [白敬亭台词 我不干净了](https://s.weibo.com/weibo?q=%E7%99%BD%E6%95%AC%E4%BA%AD%E5%8F%B0%E8%AF%8D%20%E6%88%91%E4%B8%8D%E5%B9%B2%E5%87%80%E4%BA%86&Refer=top) `1.5M 🔥`
 1. [特斯拉称会提供事故前行车数据](https://s.weibo.com/weibo?q=%23%E7%89%B9%E6%96%AF%E6%8B%89%E7%A7%B0%E4%BC%9A%E6%8F%90%E4%BE%9B%E4%BA%8B%E6%95%85%E5%89%8D%E8%A1%8C%E8%BD%A6%E6%95%B0%E6%8D%AE%23&Refer=top) `1.5M 🔥`
 1. [中方回应澳方撕毁一带一路协议](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E6%96%B9%E5%9B%9E%E5%BA%94%E6%BE%B3%E6%96%B9%E6%92%95%E6%AF%81%E4%B8%80%E5%B8%A6%E4%B8%80%E8%B7%AF%E5%8D%8F%E8%AE%AE%23&Refer=top) `1.4M 🔥`
-1. [白敬亭台词 我不干净了](https://s.weibo.com/weibo?q=%E7%99%BD%E6%95%AC%E4%BA%AD%E5%8F%B0%E8%AF%8D%20%E6%88%91%E4%B8%8D%E5%B9%B2%E5%87%80%E4%BA%86&Refer=top) `1.4M 🔥`
 1. [张哲瀚身材](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%93%B2%E7%80%9A%E8%BA%AB%E6%9D%90%23&Refer=top) `1.3M 🔥`
 1. [我国约有70万名发作性睡病患者](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD%E7%BA%A6%E6%9C%8970%E4%B8%87%E5%90%8D%E5%8F%91%E4%BD%9C%E6%80%A7%E7%9D%A1%E7%97%85%E6%82%A3%E8%80%85%23&Refer=top) `1.2M 🔥`
 1. [皓都 我赢了不用嫁了](https://s.weibo.com/weibo?q=%E7%9A%93%E9%83%BD%20%E6%88%91%E8%B5%A2%E4%BA%86%E4%B8%8D%E7%94%A8%E5%AB%81%E4%BA%86&Refer=top) `1.1M 🔥`
@@ -52,12 +52,12 @@
 1. [北京植物园卧佛寺牡丹盛开](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E6%A4%8D%E7%89%A9%E5%9B%AD%E5%8D%A7%E4%BD%9B%E5%AF%BA%E7%89%A1%E4%B8%B9%E7%9B%9B%E5%BC%80%23&Refer=top) `375.6K 🔥`
 1. [科学家发现秦岭金丝猴过冬秘笈](https://s.weibo.com/weibo?q=%E7%A7%91%E5%AD%A6%E5%AE%B6%E5%8F%91%E7%8E%B0%E7%A7%A6%E5%B2%AD%E9%87%91%E4%B8%9D%E7%8C%B4%E8%BF%87%E5%86%AC%E7%A7%98%E7%AC%88&Refer=top) `375.6K 🔥`
 1. [小舍得](https://s.weibo.com/weibo?q=%E5%B0%8F%E8%88%8D%E5%BE%97&Refer=top) `369.2K 🔥`
+1. [土耳其房价涨幅居全球首位](https://s.weibo.com/weibo?q=%23%E5%9C%9F%E8%80%B3%E5%85%B6%E6%88%BF%E4%BB%B7%E6%B6%A8%E5%B9%85%E5%B1%85%E5%85%A8%E7%90%83%E9%A6%96%E4%BD%8D%23&Refer=top) `365.2K 🔥`
 1. [见过最可爱的喵喵拳](https://s.weibo.com/weibo?q=%23%E8%A7%81%E8%BF%87%E6%9C%80%E5%8F%AF%E7%88%B1%E7%9A%84%E5%96%B5%E5%96%B5%E6%8B%B3%23&Refer=top) `362.8K 🔥`
 1. [中消协回应特斯拉车主维权事件](https://s.weibo.com/weibo?q=%E4%B8%AD%E6%B6%88%E5%8D%8F%E5%9B%9E%E5%BA%94%E7%89%B9%E6%96%AF%E6%8B%89%E8%BD%A6%E4%B8%BB%E7%BB%B4%E6%9D%83%E4%BA%8B%E4%BB%B6&Refer=top) `361.6K 🔥`
 1. [丁真生图](https://s.weibo.com/weibo?q=%E4%B8%81%E7%9C%9F%E7%94%9F%E5%9B%BE&Refer=top) `311.4K 🔥`
-1. [南俪田雨岚动手了](https://s.weibo.com/weibo?q=%E5%8D%97%E4%BF%AA%E7%94%B0%E9%9B%A8%E5%B2%9A%E5%8A%A8%E6%89%8B%E4%BA%86&Refer=top) `294.6K 🔥`
 
-数据更新于 2021-04-22 09:56:59
+数据更新于 2021-04-22 10:18:25
 
 <!-- END -->
 
