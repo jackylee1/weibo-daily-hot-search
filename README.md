@@ -18,6 +18,8 @@
 1. [白敬亭 全世界都知道我不干净了](https://s.weibo.com/weibo?q=%E7%99%BD%E6%95%AC%E4%BA%AD%20%E5%85%A8%E4%B8%96%E7%95%8C%E9%83%BD%E7%9F%A5%E9%81%93%E6%88%91%E4%B8%8D%E5%B9%B2%E5%87%80%E4%BA%86&Refer=top) `1.8M 🔥`
 1. [白敬亭台词 我不干净了](https://s.weibo.com/weibo?q=%E7%99%BD%E6%95%AC%E4%BA%AD%E5%8F%B0%E8%AF%8D%20%E6%88%91%E4%B8%8D%E5%B9%B2%E5%87%80%E4%BA%86&Refer=top) `1.8M 🔥`
 1. [丁真 不怯场](https://s.weibo.com/weibo?q=%E4%B8%81%E7%9C%9F%20%E4%B8%8D%E6%80%AF%E5%9C%BA&Refer=top) `1.7M 🔥`
+1. [职工医保可支付家庭成员在定点医院费用](https://s.weibo.com/weibo?q=%E8%81%8C%E5%B7%A5%E5%8C%BB%E4%BF%9D%E5%8F%AF%E6%94%AF%E4%BB%98%E5%AE%B6%E5%BA%AD%E6%88%90%E5%91%98%E5%9C%A8%E5%AE%9A%E7%82%B9%E5%8C%BB%E9%99%A2%E8%B4%B9%E7%94%A8&Refer=top) `1.7M 🔥`
+1. [15岁黑人少女被警察枪杀案报警录音](https://s.weibo.com/weibo?q=15%E5%B2%81%E9%BB%91%E4%BA%BA%E5%B0%91%E5%A5%B3%E8%A2%AB%E8%AD%A6%E5%AF%9F%E6%9E%AA%E6%9D%80%E6%A1%88%E6%8A%A5%E8%AD%A6%E5%BD%95%E9%9F%B3&Refer=top) `1.6M 🔥`
 1. [巴基斯坦酒店爆炸致4死12伤](https://s.weibo.com/weibo?q=%23%E5%B7%B4%E5%9F%BA%E6%96%AF%E5%9D%A6%E9%85%92%E5%BA%97%E7%88%86%E7%82%B8%E8%87%B44%E6%AD%BB12%E4%BC%A4%23&Refer=top) `1.6M 🔥`
 1. [特斯拉称会提供事故前行车数据](https://s.weibo.com/weibo?q=%23%E7%89%B9%E6%96%AF%E6%8B%89%E7%A7%B0%E4%BC%9A%E6%8F%90%E4%BE%9B%E4%BA%8B%E6%95%85%E5%89%8D%E8%A1%8C%E8%BD%A6%E6%95%B0%E6%8D%AE%23&Refer=top) `1.5M 🔥`
 1. [拜登宣布接种2亿剂新冠疫苗任务完成](https://s.weibo.com/weibo?q=%E6%8B%9C%E7%99%BB%E5%AE%A3%E5%B8%83%E6%8E%A5%E7%A7%8D2%E4%BA%BF%E5%89%82%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E4%BB%BB%E5%8A%A1%E5%AE%8C%E6%88%90&Refer=top) `1.5M 🔥`
@@ -54,10 +56,8 @@
 1. [学校能有多抠门](https://s.weibo.com/weibo?q=%23%E5%AD%A6%E6%A0%A1%E8%83%BD%E6%9C%89%E5%A4%9A%E6%8A%A0%E9%97%A8%23&Refer=top) `701.9K 🔥`
 1. [库里生涯18000分](https://s.weibo.com/weibo?q=%E5%BA%93%E9%87%8C%E7%94%9F%E6%B6%AF18000%E5%88%86&Refer=top) `698.5K 🔥`
 1. [诺言请大家给甘望星撑腰](https://s.weibo.com/weibo?q=%23%E8%AF%BA%E8%A8%80%E8%AF%B7%E5%A4%A7%E5%AE%B6%E7%BB%99%E7%94%98%E6%9C%9B%E6%98%9F%E6%92%91%E8%85%B0%23&Refer=top) `697.2K 🔥`
-1. [安德森救球头部缝35针](https://s.weibo.com/weibo?q=%E5%AE%89%E5%BE%B7%E6%A3%AE%E6%95%91%E7%90%83%E5%A4%B4%E9%83%A8%E7%BC%9D35%E9%92%88&Refer=top) `696.0K 🔥`
-1. [8岁孩子给父母报辅导班](https://s.weibo.com/weibo?q=%238%E5%B2%81%E5%AD%A9%E5%AD%90%E7%BB%99%E7%88%B6%E6%AF%8D%E6%8A%A5%E8%BE%85%E5%AF%BC%E7%8F%AD%23&Refer=top) `694.5K 🔥`
 
-数据更新于 2021-04-22 14:09:40
+数据更新于 2021-04-22 14:40:47
 
 <!-- END -->
 
