@@ -57,7 +57,7 @@
 1. [跟有钱人做朋友是什么体验](https://s.weibo.com/weibo?q=%23%E8%B7%9F%E6%9C%89%E9%92%B1%E4%BA%BA%E5%81%9A%E6%9C%8B%E5%8F%8B%E6%98%AF%E4%BB%80%E4%B9%88%E4%BD%93%E9%AA%8C%23&Refer=top) `831.9K 🔥`
 1. [东京奥运俄国歌将被柴可夫斯基音乐替代](https://s.weibo.com/weibo?q=%E4%B8%9C%E4%BA%AC%E5%A5%A5%E8%BF%90%E4%BF%84%E5%9B%BD%E6%AD%8C%E5%B0%86%E8%A2%AB%E6%9F%B4%E5%8F%AF%E5%A4%AB%E6%96%AF%E5%9F%BA%E9%9F%B3%E4%B9%90%E6%9B%BF%E4%BB%A3&Refer=top) `774.1K 🔥`
 
-数据更新于 2021-04-23 15:51:08
+数据更新于 2021-04-23 15:56:46
 
 <!-- END -->
 
