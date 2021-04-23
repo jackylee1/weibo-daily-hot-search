@@ -57,7 +57,7 @@
 1. [徐冬冬减肥催吐被误会怀孕](https://s.weibo.com/weibo?q=%23%E5%BE%90%E5%86%AC%E5%86%AC%E5%87%8F%E8%82%A5%E5%82%AC%E5%90%90%E8%A2%AB%E8%AF%AF%E4%BC%9A%E6%80%80%E5%AD%95%23&Refer=top) `915.4K 🔥`
 1. [西安某高校发生持刀劫持事件](https://s.weibo.com/weibo?q=%E8%A5%BF%E5%AE%89%E6%9F%90%E9%AB%98%E6%A0%A1%E5%8F%91%E7%94%9F%E6%8C%81%E5%88%80%E5%8A%AB%E6%8C%81%E4%BA%8B%E4%BB%B6&Refer=top) `872.6K 🔥`
 
-数据更新于 2021-04-23 17:00:32
+数据更新于 2021-04-23 17:08:50
 
 <!-- END -->
 
