@@ -53,11 +53,11 @@
 1. [天津大学回应留学生闯入女更衣室](https://s.weibo.com/weibo?q=%23%E5%A4%A9%E6%B4%A5%E5%A4%A7%E5%AD%A6%E5%9B%9E%E5%BA%94%E7%95%99%E5%AD%A6%E7%94%9F%E9%97%AF%E5%85%A5%E5%A5%B3%E6%9B%B4%E8%A1%A3%E5%AE%A4%23&Refer=top) `196.5K 🔥`
 1. [悬崖之上](https://s.weibo.com/weibo?q=%E6%82%AC%E5%B4%96%E4%B9%8B%E4%B8%8A&Refer=top) `171.8K 🔥`
 1. [螺蛳粉奶茶鸳鸯锅](https://s.weibo.com/weibo?q=%23%E8%9E%BA%E8%9B%B3%E7%B2%89%E5%A5%B6%E8%8C%B6%E9%B8%B3%E9%B8%AF%E9%94%85%23&Refer=top) `151.7K 🔥`
+1. [李佳琦范丞丞直播](https://s.weibo.com/weibo?q=%E6%9D%8E%E4%BD%B3%E7%90%A6%E8%8C%83%E4%B8%9E%E4%B8%9E%E7%9B%B4%E6%92%AD&Refer=top) `143.5K 🔥`
 1. [平板电视涨价超10%](https://s.weibo.com/weibo?q=%23%E5%B9%B3%E6%9D%BF%E7%94%B5%E8%A7%86%E6%B6%A8%E4%BB%B7%E8%B6%8510%25%23&Refer=top) `139.4K 🔥`
 1. [调查曝光陕西洛南脱贫摘帽掺假](https://s.weibo.com/weibo?q=%23%E8%B0%83%E6%9F%A5%E6%9B%9D%E5%85%89%E9%99%95%E8%A5%BF%E6%B4%9B%E5%8D%97%E8%84%B1%E8%B4%AB%E6%91%98%E5%B8%BD%E6%8E%BA%E5%81%87%23&Refer=top) `129.2K 🔥`
-1. [李佳琦范丞丞直播](https://s.weibo.com/weibo?q=%E6%9D%8E%E4%BD%B3%E7%90%A6%E8%8C%83%E4%B8%9E%E4%B8%9E%E7%9B%B4%E6%92%AD&Refer=top) `128.0K 🔥`
 
-数据更新于 2021-04-25 06:58:35
+数据更新于 2021-04-25 07:07:41
 
 <!-- END -->
 
