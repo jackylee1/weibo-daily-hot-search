@@ -45,6 +45,7 @@
 1. [租70万元宝马轿车以20万卖掉](https://s.weibo.com/weibo?q=%23%E7%A7%9F70%E4%B8%87%E5%85%83%E5%AE%9D%E9%A9%AC%E8%BD%BF%E8%BD%A6%E4%BB%A520%E4%B8%87%E5%8D%96%E6%8E%89%23&Refer=top) `291.9K 🔥`
 1. [娜扎打戏](https://s.weibo.com/weibo?q=%23%E5%A8%9C%E6%89%8E%E6%89%93%E6%88%8F%23&Refer=top) `283.7K 🔥`
 1. [恰好是少年](https://s.weibo.com/weibo?q=%E6%81%B0%E5%A5%BD%E6%98%AF%E5%B0%91%E5%B9%B4&Refer=top) `282.9K 🔥`
+1. [张馨予医生造型](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E9%A6%A8%E4%BA%88%E5%8C%BB%E7%94%9F%E9%80%A0%E5%9E%8B%23&Refer=top) `263.5K 🔥`
 1. [洛阳一在建大桥发生坍塌](https://s.weibo.com/weibo?q=%23%E6%B4%9B%E9%98%B3%E4%B8%80%E5%9C%A8%E5%BB%BA%E5%A4%A7%E6%A1%A5%E5%8F%91%E7%94%9F%E5%9D%8D%E5%A1%8C%23&Refer=top) `261.6K 🔥`
 1. [李润祺带花接机付思超](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E6%B6%A6%E7%A5%BA%E5%B8%A6%E8%8A%B1%E6%8E%A5%E6%9C%BA%E4%BB%98%E6%80%9D%E8%B6%85%23&Refer=top) `239.9K 🔥`
 1. [语文老师讲与妻书学生掩面哭泣](https://s.weibo.com/weibo?q=%23%E8%AF%AD%E6%96%87%E8%80%81%E5%B8%88%E8%AE%B2%E4%B8%8E%E5%A6%BB%E4%B9%A6%E5%AD%A6%E7%94%9F%E6%8E%A9%E9%9D%A2%E5%93%AD%E6%B3%A3%23&Refer=top) `231.0K 🔥`
@@ -55,9 +56,8 @@
 1. [山西千年古村落形似布达拉宫](https://s.weibo.com/weibo?q=%E5%B1%B1%E8%A5%BF%E5%8D%83%E5%B9%B4%E5%8F%A4%E6%9D%91%E8%90%BD%E5%BD%A2%E4%BC%BC%E5%B8%83%E8%BE%BE%E6%8B%89%E5%AE%AB&Refer=top) `162.5K 🔥`
 1. [中小学不得以任何理由挤占体育课](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%B0%8F%E5%AD%A6%E4%B8%8D%E5%BE%97%E4%BB%A5%E4%BB%BB%E4%BD%95%E7%90%86%E7%94%B1%E6%8C%A4%E5%8D%A0%E4%BD%93%E8%82%B2%E8%AF%BE%23&Refer=top) `143.4K 🔥`
 1. [文森佐](https://s.weibo.com/weibo?q=%E6%96%87%E6%A3%AE%E4%BD%90&Refer=top) `136.8K 🔥`
-1. [教育部规定严禁要求家长批改作业](https://s.weibo.com/weibo?q=%23%E6%95%99%E8%82%B2%E9%83%A8%E8%A7%84%E5%AE%9A%E4%B8%A5%E7%A6%81%E8%A6%81%E6%B1%82%E5%AE%B6%E9%95%BF%E6%89%B9%E6%94%B9%E4%BD%9C%E4%B8%9A%23&Refer=top) `124.1K 🔥`
 
-数据更新于 2021-04-26 01:05:51
+数据更新于 2021-04-26 01:37:06
 
 <!-- END -->
 
