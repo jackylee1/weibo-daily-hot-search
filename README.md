@@ -48,6 +48,7 @@
 1. [RNG出发前往冰岛参加MSI](https://s.weibo.com/weibo?q=RNG%E5%87%BA%E5%8F%91%E5%89%8D%E5%BE%80%E5%86%B0%E5%B2%9B%E5%8F%82%E5%8A%A0MSI&Refer=top) `799.6K 🔥`
 1. [央视曝光主播卖惨带货](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E6%9B%9D%E5%85%89%E4%B8%BB%E6%92%AD%E5%8D%96%E6%83%A8%E5%B8%A6%E8%B4%A7%23&Refer=top) `796.0K 🔥`
 1. [利路修关注三代鹿人](https://s.weibo.com/weibo?q=%23%E5%88%A9%E8%B7%AF%E4%BF%AE%E5%85%B3%E6%B3%A8%E4%B8%89%E4%BB%A3%E9%B9%BF%E4%BA%BA%23&Refer=top) `774.6K 🔥`
+1. [特级飞行员停飞与塔台感人对话](https://s.weibo.com/weibo?q=%23%E7%89%B9%E7%BA%A7%E9%A3%9E%E8%A1%8C%E5%91%98%E5%81%9C%E9%A3%9E%E4%B8%8E%E5%A1%94%E5%8F%B0%E6%84%9F%E4%BA%BA%E5%AF%B9%E8%AF%9D%23&Refer=top) `759.0K 🔥`
 1. [印度黑市一瓶氧气600美元](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E9%BB%91%E5%B8%82%E4%B8%80%E7%93%B6%E6%B0%A7%E6%B0%94600%E7%BE%8E%E5%85%83%23&Refer=top) `748.6K 🔥`
 1. [皓都 以后我要作为夫君保护你](https://s.weibo.com/weibo?q=%E7%9A%93%E9%83%BD%20%E4%BB%A5%E5%90%8E%E6%88%91%E8%A6%81%E4%BD%9C%E4%B8%BA%E5%A4%AB%E5%90%9B%E4%BF%9D%E6%8A%A4%E4%BD%A0&Refer=top) `746.5K 🔥`
 1. [蔚来总裁回应卷入特斯拉维权事件](https://s.weibo.com/weibo?q=%E8%94%9A%E6%9D%A5%E6%80%BB%E8%A3%81%E5%9B%9E%E5%BA%94%E5%8D%B7%E5%85%A5%E7%89%B9%E6%96%AF%E6%8B%89%E7%BB%B4%E6%9D%83%E4%BA%8B%E4%BB%B6&Refer=top) `744.6K 🔥`
@@ -55,9 +56,8 @@
 1. [陕西公布脱贫摘帽掺假初步调查结果](https://s.weibo.com/weibo?q=%23%E9%99%95%E8%A5%BF%E5%85%AC%E5%B8%83%E8%84%B1%E8%B4%AB%E6%91%98%E5%B8%BD%E6%8E%BA%E5%81%87%E5%88%9D%E6%AD%A5%E8%B0%83%E6%9F%A5%E7%BB%93%E6%9E%9C%23&Refer=top) `729.6K 🔥`
 1. [见过最离谱的相亲经历](https://s.weibo.com/weibo?q=%23%E8%A7%81%E8%BF%87%E6%9C%80%E7%A6%BB%E8%B0%B1%E7%9A%84%E7%9B%B8%E4%BA%B2%E7%BB%8F%E5%8E%86%23&Refer=top) `722.3K 🔥`
 1. [徐冬冬看了李焕英后和妈妈和解](https://s.weibo.com/weibo?q=%E5%BE%90%E5%86%AC%E5%86%AC%E7%9C%8B%E4%BA%86%E6%9D%8E%E7%84%95%E8%8B%B1%E5%90%8E%E5%92%8C%E5%A6%88%E5%A6%88%E5%92%8C%E8%A7%A3&Refer=top) `716.9K 🔥`
-1. [印度女子感染新冠被儿子遗弃死亡](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E5%A5%B3%E5%AD%90%E6%84%9F%E6%9F%93%E6%96%B0%E5%86%A0%E8%A2%AB%E5%84%BF%E5%AD%90%E9%81%97%E5%BC%83%E6%AD%BB%E4%BA%A1%23&Refer=top) `700.6K 🔥`
 
-数据更新于 2021-04-27 15:12:10
+数据更新于 2021-04-27 15:26:01
 
 <!-- END -->
 
