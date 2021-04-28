@@ -15,6 +15,7 @@
 1. [印度男子杀害感染新冠妻子后跳楼自尽](https://s.weibo.com/weibo?q=%E5%8D%B0%E5%BA%A6%E7%94%B7%E5%AD%90%E6%9D%80%E5%AE%B3%E6%84%9F%E6%9F%93%E6%96%B0%E5%86%A0%E5%A6%BB%E5%AD%90%E5%90%8E%E8%B7%B3%E6%A5%BC%E8%87%AA%E5%B0%BD&Refer=top) `2.5M 🔥`
 1. [利路修逛街](https://s.weibo.com/weibo?q=%E5%88%A9%E8%B7%AF%E4%BF%AE%E9%80%9B%E8%A1%97&Refer=top) `2.1M 🔥`
 1. [贵阳机场厕所洗手池布满化石](https://s.weibo.com/weibo?q=%23%E8%B4%B5%E9%98%B3%E6%9C%BA%E5%9C%BA%E5%8E%95%E6%89%80%E6%B4%97%E6%89%8B%E6%B1%A0%E5%B8%83%E6%BB%A1%E5%8C%96%E7%9F%B3%23&Refer=top) `2.0M 🔥`
+1. [90岁结核医生说最有效的处方是爱](https://s.weibo.com/weibo?q=%2390%E5%B2%81%E7%BB%93%E6%A0%B8%E5%8C%BB%E7%94%9F%E8%AF%B4%E6%9C%80%E6%9C%89%E6%95%88%E7%9A%84%E5%A4%84%E6%96%B9%E6%98%AF%E7%88%B1%23&Refer=top) `1.8M 🔥`
 1. [没有武林外传蹭不上的热点](https://s.weibo.com/weibo?q=%23%E6%B2%A1%E6%9C%89%E6%AD%A6%E6%9E%97%E5%A4%96%E4%BC%A0%E8%B9%AD%E4%B8%8D%E4%B8%8A%E7%9A%84%E7%83%AD%E7%82%B9%23&Refer=top) `1.8M 🔥`
 1. [李易峰以为下海是下海经商](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E6%98%93%E5%B3%B0%E4%BB%A5%E4%B8%BA%E4%B8%8B%E6%B5%B7%E6%98%AF%E4%B8%8B%E6%B5%B7%E7%BB%8F%E5%95%86%23&Refer=top) `1.8M 🔥`
 1. [经纪公司否认林墨受伤](https://s.weibo.com/weibo?q=%23%E7%BB%8F%E7%BA%AA%E5%85%AC%E5%8F%B8%E5%90%A6%E8%AE%A4%E6%9E%97%E5%A2%A8%E5%8F%97%E4%BC%A4%23&Refer=top) `1.8M 🔥`
@@ -55,9 +56,8 @@
 1. [李易峰以为秦岚王鹤棣在一起了](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E6%98%93%E5%B3%B0%E4%BB%A5%E4%B8%BA%E7%A7%A6%E5%B2%9A%E7%8E%8B%E9%B9%A4%E6%A3%A3%E5%9C%A8%E4%B8%80%E8%B5%B7%E4%BA%86%23&Refer=top) `1.1M 🔥`
 1. [世卫专家称印度病例数被严重低估](https://s.weibo.com/weibo?q=%23%E4%B8%96%E5%8D%AB%E4%B8%93%E5%AE%B6%E7%A7%B0%E5%8D%B0%E5%BA%A6%E7%97%85%E4%BE%8B%E6%95%B0%E8%A2%AB%E4%B8%A5%E9%87%8D%E4%BD%8E%E4%BC%B0%23&Refer=top) `1.1M 🔥`
 1. [上海一幼儿园为家长上性教育课](https://s.weibo.com/weibo?q=%E4%B8%8A%E6%B5%B7%E4%B8%80%E5%B9%BC%E5%84%BF%E5%9B%AD%E4%B8%BA%E5%AE%B6%E9%95%BF%E4%B8%8A%E6%80%A7%E6%95%99%E8%82%B2%E8%AF%BE&Refer=top) `1.1M 🔥`
-1. [INTO1首张宿舍合照](https://s.weibo.com/weibo?q=%23INTO1%E9%A6%96%E5%BC%A0%E5%AE%BF%E8%88%8D%E5%90%88%E7%85%A7%23&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-04-28 15:12:38
+数据更新于 2021-04-28 15:35:16
 
 <!-- END -->
 
