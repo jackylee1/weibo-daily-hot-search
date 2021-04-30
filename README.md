@@ -13,11 +13,11 @@
 1. [白敬亭 叫老公不回叫老婆直接拉黑](https://s.weibo.com/weibo?q=%E7%99%BD%E6%95%AC%E4%BA%AD%20%E5%8F%AB%E8%80%81%E5%85%AC%E4%B8%8D%E5%9B%9E%E5%8F%AB%E8%80%81%E5%A9%86%E7%9B%B4%E6%8E%A5%E6%8B%89%E9%BB%91&Refer=top) `4.0M 🔥`
 1. [税务总局回应郑爽涉嫌偷逃税](https://s.weibo.com/weibo?q=%23%E7%A8%8E%E5%8A%A1%E6%80%BB%E5%B1%80%E5%9B%9E%E5%BA%94%E9%83%91%E7%88%BD%E6%B6%89%E5%AB%8C%E5%81%B7%E9%80%83%E7%A8%8E%23&Refer=top) `3.8M 🔥`
 1. [国际不打小孩日](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E9%99%85%E4%B8%8D%E6%89%93%E5%B0%8F%E5%AD%A9%E6%97%A5%23&Refer=top) `3.7M 🔥`
+1. [台湾发生新冠肺炎群聚感染](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E6%B9%BE%E5%8F%91%E7%94%9F%E6%96%B0%E5%86%A0%E8%82%BA%E7%82%8E%E7%BE%A4%E8%81%9A%E6%84%9F%E6%9F%93%23&Refer=top) `3.5M 🔥`
 1. [中国视协回应郑爽被查](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E8%A7%86%E5%8D%8F%E5%9B%9E%E5%BA%94%E9%83%91%E7%88%BD%E8%A2%AB%E6%9F%A5%23&Refer=top) `3.1M 🔥`
 1. [赵丽颖搬离与冯绍峰的家](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E4%B8%BD%E9%A2%96%E6%90%AC%E7%A6%BB%E4%B8%8E%E5%86%AF%E7%BB%8D%E5%B3%B0%E7%9A%84%E5%AE%B6%23&Refer=top) `3.1M 🔥`
 1. [世间有她 撤档](https://s.weibo.com/weibo?q=%E4%B8%96%E9%97%B4%E6%9C%89%E5%A5%B9%20%E6%92%A4%E6%A1%A3&Refer=top) `2.9M 🔥`
 1. [阿Sa称阿娇长胖是因荷尔蒙失调](https://s.weibo.com/weibo?q=%23%E9%98%BFSa%E7%A7%B0%E9%98%BF%E5%A8%87%E9%95%BF%E8%83%96%E6%98%AF%E5%9B%A0%E8%8D%B7%E5%B0%94%E8%92%99%E5%A4%B1%E8%B0%83%23&Refer=top) `2.8M 🔥`
-1. [台湾发生新冠肺炎群聚感染](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E6%B9%BE%E5%8F%91%E7%94%9F%E6%96%B0%E5%86%A0%E8%82%BA%E7%82%8E%E7%BE%A4%E8%81%9A%E6%84%9F%E6%9F%93%23&Refer=top) `2.7M 🔥`
 1. [印度拒绝联合国物资驰援](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E6%8B%92%E7%BB%9D%E8%81%94%E5%90%88%E5%9B%BD%E7%89%A9%E8%B5%84%E9%A9%B0%E6%8F%B4%23&Refer=top) `2.7M 🔥`
 1. [特朗普确认将再次参选总统](https://s.weibo.com/weibo?q=%23%E7%89%B9%E6%9C%97%E6%99%AE%E7%A1%AE%E8%AE%A4%E5%B0%86%E5%86%8D%E6%AC%A1%E5%8F%82%E9%80%89%E6%80%BB%E7%BB%9F%23&Refer=top) `2.7M 🔥`
 1. [国产首例临时心脏起搏器](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E4%BA%A7%E9%A6%96%E4%BE%8B%E4%B8%B4%E6%97%B6%E5%BF%83%E8%84%8F%E8%B5%B7%E6%90%8F%E5%99%A8%23&Refer=top) `2.5M 🔥`
@@ -57,7 +57,7 @@
 1. [腾讯因垄断问题被罚50万](https://s.weibo.com/weibo?q=%23%E8%85%BE%E8%AE%AF%E5%9B%A0%E5%9E%84%E6%96%AD%E9%97%AE%E9%A2%98%E8%A2%AB%E7%BD%9A50%E4%B8%87%23&Refer=top) `1.3M 🔥`
 1. [赞多晒与INTO1成员合照](https://s.weibo.com/weibo?q=%23%E8%B5%9E%E5%A4%9A%E6%99%92%E4%B8%8EINTO1%E6%88%90%E5%91%98%E5%90%88%E7%85%A7%23&Refer=top) `1.2M 🔥`
 
-数据更新于 2021-04-30 22:57:23
+数据更新于 2021-04-30 23:02:59
 
 <!-- END -->
 
