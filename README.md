@@ -51,13 +51,13 @@
 1. [波兰发现2000年前孕妇木乃伊](https://s.weibo.com/weibo?q=%E6%B3%A2%E5%85%B0%E5%8F%91%E7%8E%B02000%E5%B9%B4%E5%89%8D%E5%AD%95%E5%A6%87%E6%9C%A8%E4%B9%83%E4%BC%8A&Refer=top) `1.3M 🔥`
 1. [腾讯因垄断问题被罚50万](https://s.weibo.com/weibo?q=%23%E8%85%BE%E8%AE%AF%E5%9B%A0%E5%9E%84%E6%96%AD%E9%97%AE%E9%A2%98%E8%A2%AB%E7%BD%9A50%E4%B8%87%23&Refer=top) `1.3M 🔥`
 1. [赞多晒与INTO1成员合照](https://s.weibo.com/weibo?q=%23%E8%B5%9E%E5%A4%9A%E6%99%92%E4%B8%8EINTO1%E6%88%90%E5%91%98%E5%90%88%E7%85%A7%23&Refer=top) `1.2M 🔥`
+1. [向往的生活](https://s.weibo.com/weibo?q=%E5%90%91%E5%BE%80%E7%9A%84%E7%94%9F%E6%B4%BB&Refer=top) `1.2M 🔥`
 1. [堵车](https://s.weibo.com/weibo?q=%E5%A0%B5%E8%BD%A6&Refer=top) `1.2M 🔥`
 1. [75位一线艺人注销200家关联公司](https://s.weibo.com/weibo?q=%2375%E4%BD%8D%E4%B8%80%E7%BA%BF%E8%89%BA%E4%BA%BA%E6%B3%A8%E9%94%80200%E5%AE%B6%E5%85%B3%E8%81%94%E5%85%AC%E5%8F%B8%23&Refer=top) `1.2M 🔥`
 1. [张恩华去世](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%81%A9%E5%8D%8E%E5%8E%BB%E4%B8%96%23&Refer=top) `1.1M 🔥`
 1. [小舍得](https://s.weibo.com/weibo?q=%E5%B0%8F%E8%88%8D%E5%BE%97&Refer=top) `1.1M 🔥`
-1. [吴尊友说不必对印度变异毒株过于恐慌](https://s.weibo.com/weibo?q=%E5%90%B4%E5%B0%8A%E5%8F%8B%E8%AF%B4%E4%B8%8D%E5%BF%85%E5%AF%B9%E5%8D%B0%E5%BA%A6%E5%8F%98%E5%BC%82%E6%AF%92%E6%A0%AA%E8%BF%87%E4%BA%8E%E6%81%90%E6%85%8C&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-04-30 22:03:12
+数据更新于 2021-04-30 22:14:36
 
 <!-- END -->
 
