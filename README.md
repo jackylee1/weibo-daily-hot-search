@@ -8,9 +8,11 @@
 
 1. [鹿晗 酒吧](https://s.weibo.com/weibo?q=%E9%B9%BF%E6%99%97%20%E9%85%92%E5%90%A7&Refer=top) `2.6M 🔥`
 1. [良品铺子就鸡肉肠事件致歉](https://s.weibo.com/weibo?q=%23%E8%89%AF%E5%93%81%E9%93%BA%E5%AD%90%E5%B0%B1%E9%B8%A1%E8%82%89%E8%82%A0%E4%BA%8B%E4%BB%B6%E8%87%B4%E6%AD%89%23&Refer=top) `2.3M 🔥`
+1. [张艺兴说我现在太封闭了](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%89%BA%E5%85%B4%E8%AF%B4%E6%88%91%E7%8E%B0%E5%9C%A8%E5%A4%AA%E5%B0%81%E9%97%AD%E4%BA%86%23&Refer=top) `2.1M 🔥`
 1. [刘浩存演技](https://s.weibo.com/weibo?q=%23%E5%88%98%E6%B5%A9%E5%AD%98%E6%BC%94%E6%8A%80%23&Refer=top) `1.5M 🔥`
 1. [鹿晗工作室发文回应](https://s.weibo.com/weibo?q=%23%E9%B9%BF%E6%99%97%E5%B7%A5%E4%BD%9C%E5%AE%A4%E5%8F%91%E6%96%87%E5%9B%9E%E5%BA%94%23&Refer=top) `1.4M 🔥`
 1. [拼多多2020年净亏71.8亿元](https://s.weibo.com/weibo?q=%23%E6%8B%BC%E5%A4%9A%E5%A4%9A2020%E5%B9%B4%E5%87%80%E4%BA%8F71.8%E4%BA%BF%E5%85%83%23&Refer=top) `1.3M 🔥`
+1. [彭昱畅钉钉子钉了个寂寞](https://s.weibo.com/weibo?q=%23%E5%BD%AD%E6%98%B1%E7%95%85%E9%92%89%E9%92%89%E5%AD%90%E9%92%89%E4%BA%86%E4%B8%AA%E5%AF%82%E5%AF%9E%23&Refer=top) `1.2M 🔥`
 1. [你的婚礼看哭了](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E7%9A%84%E5%A9%9A%E7%A4%BC%E7%9C%8B%E5%93%AD%E4%BA%86%23&Refer=top) `1.2M 🔥`
 1. [赵丽颖录制拜托了冰箱](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E4%B8%BD%E9%A2%96%E5%BD%95%E5%88%B6%E6%8B%9C%E6%89%98%E4%BA%86%E5%86%B0%E7%AE%B1%23&Refer=top) `973.3K 🔥`
 1. [西藏冒险王排除他杀](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E8%97%8F%E5%86%92%E9%99%A9%E7%8E%8B%E6%8E%92%E9%99%A4%E4%BB%96%E6%9D%80%23&Refer=top) `884.6K 🔥`
@@ -36,6 +38,7 @@
 1. [专升本](https://s.weibo.com/weibo?q=%E4%B8%93%E5%8D%87%E6%9C%AC&Refer=top) `454.8K 🔥`
 1. [只有女生才能去的健身房](https://s.weibo.com/weibo?q=%E5%8F%AA%E6%9C%89%E5%A5%B3%E7%94%9F%E6%89%8D%E8%83%BD%E5%8E%BB%E7%9A%84%E5%81%A5%E8%BA%AB%E6%88%BF&Refer=top) `454.6K 🔥`
 1. [八旬老人捐1500万元为家乡做公益](https://s.weibo.com/weibo?q=%23%E5%85%AB%E6%97%AC%E8%80%81%E4%BA%BA%E6%8D%901500%E4%B8%87%E5%85%83%E4%B8%BA%E5%AE%B6%E4%B9%A1%E5%81%9A%E5%85%AC%E7%9B%8A%23&Refer=top) `436.1K 🔥`
+1. [黄旭熙 酒吧](https://s.weibo.com/weibo?q=%E9%BB%84%E6%97%AD%E7%86%99%20%E9%85%92%E5%90%A7&Refer=top) `424.8K 🔥`
 1. [吴亦凡工作室回应粉丝](https://s.weibo.com/weibo?q=%23%E5%90%B4%E4%BA%A6%E5%87%A1%E5%B7%A5%E4%BD%9C%E5%AE%A4%E5%9B%9E%E5%BA%94%E7%B2%89%E4%B8%9D%23&Refer=top) `422.6K 🔥`
 1. [小舍得](https://s.weibo.com/weibo?q=%E5%B0%8F%E8%88%8D%E5%BE%97&Refer=top) `406.5K 🔥`
 1. [我国成功发射遥感三十四号卫星](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD%E6%88%90%E5%8A%9F%E5%8F%91%E5%B0%84%E9%81%A5%E6%84%9F%E4%B8%89%E5%8D%81%E5%9B%9B%E5%8F%B7%E5%8D%AB%E6%98%9F%23&Refer=top) `387.6K 🔥`
@@ -45,17 +48,16 @@
 1. [叶小妹被过三爽气哭](https://s.weibo.com/weibo?q=%23%E5%8F%B6%E5%B0%8F%E5%A6%B9%E8%A2%AB%E8%BF%87%E4%B8%89%E7%88%BD%E6%B0%94%E5%93%AD%23&Refer=top) `340.7K 🔥`
 1. [你吃过最奢侈的一道菜](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E5%90%83%E8%BF%87%E6%9C%80%E5%A5%A2%E4%BE%88%E7%9A%84%E4%B8%80%E9%81%93%E8%8F%9C%23&Refer=top) `316.7K 🔥`
 1. [上海天气](https://s.weibo.com/weibo?q=%E4%B8%8A%E6%B5%B7%E5%A4%A9%E6%B0%94&Refer=top) `313.5K 🔥`
+1. [首批全国禁毒示范城市名单公布](https://s.weibo.com/weibo?q=%23%E9%A6%96%E6%89%B9%E5%85%A8%E5%9B%BD%E7%A6%81%E6%AF%92%E7%A4%BA%E8%8C%83%E5%9F%8E%E5%B8%82%E5%90%8D%E5%8D%95%E5%85%AC%E5%B8%83%23&Refer=top) `313.0K 🔥`
 1. [拜托了冰箱7录制](https://s.weibo.com/weibo?q=%23%E6%8B%9C%E6%89%98%E4%BA%86%E5%86%B0%E7%AE%B17%E5%BD%95%E5%88%B6%23&Refer=top) `270.3K 🔥`
 1. [奔跑吧](https://s.weibo.com/weibo?q=%E5%A5%94%E8%B7%91%E5%90%A7&Refer=top) `252.3K 🔥`
 1. [世间有她 撤档](https://s.weibo.com/weibo?q=%E4%B8%96%E9%97%B4%E6%9C%89%E5%A5%B9%20%E6%92%A4%E6%A1%A3&Refer=top) `247.2K 🔥`
 1. [女性可以有多坚韧](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E6%80%A7%E5%8F%AF%E4%BB%A5%E6%9C%89%E5%A4%9A%E5%9D%9A%E9%9F%A7%23&Refer=top) `240.2K 🔥`
-1. [彭昱畅钉钉子钉了个寂寞](https://s.weibo.com/weibo?q=%23%E5%BD%AD%E6%98%B1%E7%95%85%E9%92%89%E9%92%89%E5%AD%90%E9%92%89%E4%BA%86%E4%B8%AA%E5%AF%82%E5%AF%9E%23&Refer=top) `239.9K 🔥`
 1. [英雄联盟](https://s.weibo.com/weibo?q=%E8%8B%B1%E9%9B%84%E8%81%94%E7%9B%9F&Refer=top) `239.8K 🔥`
-1. [五一出行如何避开人山人海](https://s.weibo.com/weibo?q=%23%E4%BA%94%E4%B8%80%E5%87%BA%E8%A1%8C%E5%A6%82%E4%BD%95%E9%81%BF%E5%BC%80%E4%BA%BA%E5%B1%B1%E4%BA%BA%E6%B5%B7%23&Refer=top) `223.5K 🔥`
-1. [武汉一男子水下表演川剧变脸](https://s.weibo.com/weibo?q=%E6%AD%A6%E6%B1%89%E4%B8%80%E7%94%B7%E5%AD%90%E6%B0%B4%E4%B8%8B%E8%A1%A8%E6%BC%94%E5%B7%9D%E5%89%A7%E5%8F%98%E8%84%B8&Refer=top) `207.0K 🔥`
-1. [选手质疑比赛不公被怼算什么东西](https://s.weibo.com/weibo?q=%E9%80%89%E6%89%8B%E8%B4%A8%E7%96%91%E6%AF%94%E8%B5%9B%E4%B8%8D%E5%85%AC%E8%A2%AB%E6%80%BC%E7%AE%97%E4%BB%80%E4%B9%88%E4%B8%9C%E8%A5%BF&Refer=top) `206.2K 🔥`
+1. [五一出行如何避开人山人海](https://s.weibo.com/weibo?q=%23%E4%BA%94%E4%B8%80%E5%87%BA%E8%A1%8C%E5%A6%82%E4%BD%95%E9%81%BF%E5%BC%80%E4%BA%BA%E5%B1%B1%E4%BA%BA%E6%B5%B7%23&Refer=top) `234.8K 🔥`
+1. [龚俊黑色衬衫](https://s.weibo.com/weibo?q=%E9%BE%9A%E4%BF%8A%E9%BB%91%E8%89%B2%E8%A1%AC%E8%A1%AB&Refer=top) `212.4K 🔥`
 
-数据更新于 2021-05-01 00:08:32
+数据更新于 2021-05-01 00:45:42
 
 <!-- END -->
 
