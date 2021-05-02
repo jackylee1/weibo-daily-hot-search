@@ -57,7 +57,7 @@
 1. [澳大利亚暂禁本国公民从印度回国](https://s.weibo.com/weibo?q=%23%E6%BE%B3%E5%A4%A7%E5%88%A9%E4%BA%9A%E6%9A%82%E7%A6%81%E6%9C%AC%E5%9B%BD%E5%85%AC%E6%B0%91%E4%BB%8E%E5%8D%B0%E5%BA%A6%E5%9B%9E%E5%9B%BD%23&Refer=top) `803.6K 🔥`
 1. [云南大理古城发布出行预警](https://s.weibo.com/weibo?q=%E4%BA%91%E5%8D%97%E5%A4%A7%E7%90%86%E5%8F%A4%E5%9F%8E%E5%8F%91%E5%B8%83%E5%87%BA%E8%A1%8C%E9%A2%84%E8%AD%A6&Refer=top) `800.1K 🔥`
 
-数据更新于 2021-05-02 17:53:25
+数据更新于 2021-05-02 17:59:01
 
 <!-- END -->
 
