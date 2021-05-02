@@ -37,6 +37,7 @@
 1. [狗狗承受了我小时候的痛](https://s.weibo.com/weibo?q=%23%E7%8B%97%E7%8B%97%E6%89%BF%E5%8F%97%E4%BA%86%E6%88%91%E5%B0%8F%E6%97%B6%E5%80%99%E7%9A%84%E7%97%9B%23&Refer=top) `1.0M 🔥`
 1. [龚俊 人菜瘾大](https://s.weibo.com/weibo?q=%E9%BE%9A%E4%BF%8A%20%E4%BA%BA%E8%8F%9C%E7%98%BE%E5%A4%A7&Refer=top) `995.9K 🔥`
 1. [茶卡盐湖景区回应卖2次门票](https://s.weibo.com/weibo?q=%E8%8C%B6%E5%8D%A1%E7%9B%90%E6%B9%96%E6%99%AF%E5%8C%BA%E5%9B%9E%E5%BA%94%E5%8D%962%E6%AC%A1%E9%97%A8%E7%A5%A8&Refer=top) `936.4K 🔥`
+1. [白瘦幼审美是一种pua吗](https://s.weibo.com/weibo?q=%23%E7%99%BD%E7%98%A6%E5%B9%BC%E5%AE%A1%E7%BE%8E%E6%98%AF%E4%B8%80%E7%A7%8Dpua%E5%90%97%23&Refer=top) `931.9K 🔥`
 1. [福奇建议印度政府学习中国抗疫经验](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%A5%87%E5%BB%BA%E8%AE%AE%E5%8D%B0%E5%BA%A6%E6%94%BF%E5%BA%9C%E5%AD%A6%E4%B9%A0%E4%B8%AD%E5%9B%BD%E6%8A%97%E7%96%AB%E7%BB%8F%E9%AA%8C%23&Refer=top) `895.2K 🔥`
 1. [沈逸](https://s.weibo.com/weibo?q=%E6%B2%88%E9%80%B8&Refer=top) `894.5K 🔥`
 1. [你的婚礼](https://s.weibo.com/weibo?q=%E4%BD%A0%E7%9A%84%E5%A9%9A%E7%A4%BC&Refer=top) `891.1K 🔥`
@@ -55,9 +56,8 @@
 1. [印尼希望中国海军帮助打捞沉没潜艇](https://s.weibo.com/weibo?q=%E5%8D%B0%E5%B0%BC%E5%B8%8C%E6%9C%9B%E4%B8%AD%E5%9B%BD%E6%B5%B7%E5%86%9B%E5%B8%AE%E5%8A%A9%E6%89%93%E6%8D%9E%E6%B2%89%E6%B2%A1%E6%BD%9C%E8%89%87&Refer=top) `752.7K 🔥`
 1. [小舍得](https://s.weibo.com/weibo?q=%E5%B0%8F%E8%88%8D%E5%BE%97&Refer=top) `747.8K 🔥`
 1. [文具盲盒校园热销](https://s.weibo.com/weibo?q=%23%E6%96%87%E5%85%B7%E7%9B%B2%E7%9B%92%E6%A0%A1%E5%9B%AD%E7%83%AD%E9%94%80%23&Refer=top) `742.5K 🔥`
-1. [快乐大本营](https://s.weibo.com/weibo?q=%E5%BF%AB%E4%B9%90%E5%A4%A7%E6%9C%AC%E8%90%A5&Refer=top) `737.6K 🔥`
 
-数据更新于 2021-05-02 14:57:31
+数据更新于 2021-05-02 15:08:45
 
 <!-- END -->
 
