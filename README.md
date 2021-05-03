@@ -48,6 +48,7 @@
 1. [山河令演唱会天涯客](https://s.weibo.com/weibo?q=%E5%B1%B1%E6%B2%B3%E4%BB%A4%E6%BC%94%E5%94%B1%E4%BC%9A%E5%A4%A9%E6%B6%AF%E5%AE%A2&Refer=top) `273.7K 🔥`
 1. [沈阳一高层外墙保温板因大风脱落](https://s.weibo.com/weibo?q=%E6%B2%88%E9%98%B3%E4%B8%80%E9%AB%98%E5%B1%82%E5%A4%96%E5%A2%99%E4%BF%9D%E6%B8%A9%E6%9D%BF%E5%9B%A0%E5%A4%A7%E9%A3%8E%E8%84%B1%E8%90%BD&Refer=top) `263.8K 🔥`
 1. [长歌行](https://s.weibo.com/weibo?q=%E9%95%BF%E6%AD%8C%E8%A1%8C&Refer=top) `258.3K 🔥`
+1. [朴树那些花儿大合唱](https://s.weibo.com/weibo?q=%E6%9C%B4%E6%A0%91%E9%82%A3%E4%BA%9B%E8%8A%B1%E5%84%BF%E5%A4%A7%E5%90%88%E5%94%B1&Refer=top) `240.9K 🔥`
 1. [戍边卫士和国旗护卫队共唱一首歌](https://s.weibo.com/weibo?q=%E6%88%8D%E8%BE%B9%E5%8D%AB%E5%A3%AB%E5%92%8C%E5%9B%BD%E6%97%97%E6%8A%A4%E5%8D%AB%E9%98%9F%E5%85%B1%E5%94%B1%E4%B8%80%E9%A6%96%E6%AD%8C&Refer=top) `234.4K 🔥`
 1. [青你3巨幕](https://s.weibo.com/weibo?q=%E9%9D%92%E4%BD%A03%E5%B7%A8%E5%B9%95&Refer=top) `230.9K 🔥`
 1. [爆米花做法竟出现在本草纲目中](https://s.weibo.com/weibo?q=%23%E7%88%86%E7%B1%B3%E8%8A%B1%E5%81%9A%E6%B3%95%E7%AB%9F%E5%87%BA%E7%8E%B0%E5%9C%A8%E6%9C%AC%E8%8D%89%E7%BA%B2%E7%9B%AE%E4%B8%AD%23&Refer=top) `221.1K 🔥`
@@ -55,9 +56,8 @@
 1. [18岁的青春是什么颜色](https://s.weibo.com/weibo?q=%2318%E5%B2%81%E7%9A%84%E9%9D%92%E6%98%A5%E6%98%AF%E4%BB%80%E4%B9%88%E9%A2%9C%E8%89%B2%23&Refer=top) `208.7K 🔥`
 1. [如何以鲁迅的笔风写检讨](https://s.weibo.com/weibo?q=%23%E5%A6%82%E4%BD%95%E4%BB%A5%E9%B2%81%E8%BF%85%E7%9A%84%E7%AC%94%E9%A3%8E%E5%86%99%E6%A3%80%E8%AE%A8%23&Refer=top) `200.6K 🔥`
 1. [少林寺内竹林被上百游客刻字](https://s.weibo.com/weibo?q=%E5%B0%91%E6%9E%97%E5%AF%BA%E5%86%85%E7%AB%B9%E6%9E%97%E8%A2%AB%E4%B8%8A%E7%99%BE%E6%B8%B8%E5%AE%A2%E5%88%BB%E5%AD%97&Refer=top) `180.8K 🔥`
-1. [NBA球队老板力顶狗狗币](https://s.weibo.com/weibo?q=NBA%E7%90%83%E9%98%9F%E8%80%81%E6%9D%BF%E5%8A%9B%E9%A1%B6%E7%8B%97%E7%8B%97%E5%B8%81&Refer=top) `179.2K 🔥`
 
-数据更新于 2021-05-04 00:51:25
+数据更新于 2021-05-04 01:31:48
 
 <!-- END -->
 
