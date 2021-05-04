@@ -23,8 +23,8 @@
 1. [95后00后成红色旅游出游主力](https://s.weibo.com/weibo?q=%2395%E5%90%8E00%E5%90%8E%E6%88%90%E7%BA%A2%E8%89%B2%E6%97%85%E6%B8%B8%E5%87%BA%E6%B8%B8%E4%B8%BB%E5%8A%9B%23&Refer=top) `1.9M 🔥`
 1. [我让男朋友社死了](https://s.weibo.com/weibo?q=%23%E6%88%91%E8%AE%A9%E7%94%B7%E6%9C%8B%E5%8F%8B%E7%A4%BE%E6%AD%BB%E4%BA%86%23&Refer=top) `1.9M 🔥`
 1. [五四青年节](https://s.weibo.com/weibo?q=%23%E4%BA%94%E5%9B%9B%E9%9D%92%E5%B9%B4%E8%8A%82%23&Refer=top) `1.8M 🔥`
+1. [雷佳音向于和伟申请连麦28次没接](https://s.weibo.com/weibo?q=%23%E9%9B%B7%E4%BD%B3%E9%9F%B3%E5%90%91%E4%BA%8E%E5%92%8C%E4%BC%9F%E7%94%B3%E8%AF%B7%E8%BF%9E%E9%BA%A628%E6%AC%A1%E6%B2%A1%E6%8E%A5%23&Refer=top) `1.8M 🔥`
 1. [周也哭了](https://s.weibo.com/weibo?q=%E5%91%A8%E4%B9%9F%E5%93%AD%E4%BA%86&Refer=top) `1.8M 🔥`
-1. [雷佳音向于和伟申请连麦28次没接](https://s.weibo.com/weibo?q=%23%E9%9B%B7%E4%BD%B3%E9%9F%B3%E5%90%91%E4%BA%8E%E5%92%8C%E4%BC%9F%E7%94%B3%E8%AF%B7%E8%BF%9E%E9%BA%A628%E6%AC%A1%E6%B2%A1%E6%8E%A5%23&Refer=top) `1.7M 🔥`
 1. [丁太升](https://s.weibo.com/weibo?q=%E4%B8%81%E5%A4%AA%E5%8D%87&Refer=top) `1.7M 🔥`
 1. [女子为给偶像删帖被骗8000元](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E4%B8%BA%E7%BB%99%E5%81%B6%E5%83%8F%E5%88%A0%E5%B8%96%E8%A2%AB%E9%AA%978000%E5%85%83%23&Refer=top) `1.6M 🔥`
 1. [宠物盲盒](https://s.weibo.com/weibo?q=%E5%AE%A0%E7%89%A9%E7%9B%B2%E7%9B%92&Refer=top) `1.6M 🔥`
@@ -41,6 +41,7 @@
 1. [萧敬腾问练习生就是练习谈恋爱吗](https://s.weibo.com/weibo?q=%23%E8%90%A7%E6%95%AC%E8%85%BE%E9%97%AE%E7%BB%83%E4%B9%A0%E7%94%9F%E5%B0%B1%E6%98%AF%E7%BB%83%E4%B9%A0%E8%B0%88%E6%81%8B%E7%88%B1%E5%90%97%23&Refer=top) `1.2M 🔥`
 1. [秦昊看伊能静演出](https://s.weibo.com/weibo?q=%E7%A7%A6%E6%98%8A%E7%9C%8B%E4%BC%8A%E8%83%BD%E9%9D%99%E6%BC%94%E5%87%BA&Refer=top) `1.2M 🔥`
 1. [大学生入伍前后对比照](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%AD%A6%E7%94%9F%E5%85%A5%E4%BC%8D%E5%89%8D%E5%90%8E%E5%AF%B9%E6%AF%94%E7%85%A7%23&Refer=top) `1.1M 🔥`
+1. [海南离岛免税两天卖出2.94亿元](https://s.weibo.com/weibo?q=%23%E6%B5%B7%E5%8D%97%E7%A6%BB%E5%B2%9B%E5%85%8D%E7%A8%8E%E4%B8%A4%E5%A4%A9%E5%8D%96%E5%87%BA2.94%E4%BA%BF%E5%85%83%23&Refer=top) `1.0M 🔥`
 1. [央视五四晚会节目单出炉](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E4%BA%94%E5%9B%9B%E6%99%9A%E4%BC%9A%E8%8A%82%E7%9B%AE%E5%8D%95%E5%87%BA%E7%82%89%23&Refer=top) `992.0K 🔥`
 1. [龚俊帮张哲瀚找调](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E5%B8%AE%E5%BC%A0%E5%93%B2%E7%80%9A%E6%89%BE%E8%B0%83%23&Refer=top) `969.7K 🔥`
 1. [西安大唐不夜城地铁口排起百米长龙](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E5%AE%89%E5%A4%A7%E5%94%90%E4%B8%8D%E5%A4%9C%E5%9F%8E%E5%9C%B0%E9%93%81%E5%8F%A3%E6%8E%92%E8%B5%B7%E7%99%BE%E7%B1%B3%E9%95%BF%E9%BE%99%23&Refer=top) `942.4K 🔥`
@@ -55,9 +56,8 @@
 1. [小舍得大结局](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E8%88%8D%E5%BE%97%E5%A4%A7%E7%BB%93%E5%B1%80%23&Refer=top) `829.7K 🔥`
 1. [东京饮用水致癌物严重超标](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E4%BA%AC%E9%A5%AE%E7%94%A8%E6%B0%B4%E8%87%B4%E7%99%8C%E7%89%A9%E4%B8%A5%E9%87%8D%E8%B6%85%E6%A0%87%23&Refer=top) `810.8K 🔥`
 1. [阿隼向长歌求婚成功](https://s.weibo.com/weibo?q=%23%E9%98%BF%E9%9A%BC%E5%90%91%E9%95%BF%E6%AD%8C%E6%B1%82%E5%A9%9A%E6%88%90%E5%8A%9F%23&Refer=top) `809.9K 🔥`
-1. [韩国青年排队抢购奢侈品](https://s.weibo.com/weibo?q=%23%E9%9F%A9%E5%9B%BD%E9%9D%92%E5%B9%B4%E6%8E%92%E9%98%9F%E6%8A%A2%E8%B4%AD%E5%A5%A2%E4%BE%88%E5%93%81%23&Refer=top) `803.2K 🔥`
 
-数据更新于 2021-05-04 19:52:55
+数据更新于 2021-05-04 19:58:32
 
 <!-- END -->
 
