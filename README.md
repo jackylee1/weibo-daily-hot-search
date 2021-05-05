@@ -31,6 +31,7 @@
 1. [林墨模仿妲己貂蝉](https://s.weibo.com/weibo?q=%23%E6%9E%97%E5%A2%A8%E6%A8%A1%E4%BB%BF%E5%A6%B2%E5%B7%B1%E8%B2%82%E8%9D%89%23&Refer=top) `1.1M 🔥`
 1. [中国取代美国成为全球最大投资目的地](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%8F%96%E4%BB%A3%E7%BE%8E%E5%9B%BD%E6%88%90%E4%B8%BA%E5%85%A8%E7%90%83%E6%9C%80%E5%A4%A7%E6%8A%95%E8%B5%84%E7%9B%AE%E7%9A%84%E5%9C%B0%23&Refer=top) `1.1M 🔥`
 1. [中通快递通报宠物盲盒](https://s.weibo.com/weibo?q=%E4%B8%AD%E9%80%9A%E5%BF%AB%E9%80%92%E9%80%9A%E6%8A%A5%E5%AE%A0%E7%89%A9%E7%9B%B2%E7%9B%92&Refer=top) `1.1M 🔥`
+1. [西南大学挖1500斤土豆请师生品尝](https://s.weibo.com/weibo?q=%E8%A5%BF%E5%8D%97%E5%A4%A7%E5%AD%A6%E6%8C%961500%E6%96%A4%E5%9C%9F%E8%B1%86%E8%AF%B7%E5%B8%88%E7%94%9F%E5%93%81%E5%B0%9D&Refer=top) `1.1M 🔥`
 1. [印度一市民把三轮车改造成救护车](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E4%B8%80%E5%B8%82%E6%B0%91%E6%8A%8A%E4%B8%89%E8%BD%AE%E8%BD%A6%E6%94%B9%E9%80%A0%E6%88%90%E6%95%91%E6%8A%A4%E8%BD%A6%23&Refer=top) `1.1M 🔥`
 1. [布林肯称美国将一直支持一个中国政策](https://s.weibo.com/weibo?q=%23%E5%B8%83%E6%9E%97%E8%82%AF%E7%A7%B0%E7%BE%8E%E5%9B%BD%E5%B0%86%E4%B8%80%E7%9B%B4%E6%94%AF%E6%8C%81%E4%B8%80%E4%B8%AA%E4%B8%AD%E5%9B%BD%E6%94%BF%E7%AD%96%23&Refer=top) `1.1M 🔥`
 1. [凭什么](https://s.weibo.com/weibo?q=%E5%87%AD%E4%BB%80%E4%B9%88&Refer=top) `1.1M 🔥`
@@ -55,9 +56,8 @@
 1. [马龙逆转周雨](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E9%BE%99%E9%80%86%E8%BD%AC%E5%91%A8%E9%9B%A8%23&Refer=top) `905.8K 🔥`
 1. [陈飞宇工作室声明](https://s.weibo.com/weibo?q=%23%E9%99%88%E9%A3%9E%E5%AE%87%E5%B7%A5%E4%BD%9C%E5%AE%A4%E5%A3%B0%E6%98%8E%23&Refer=top) `903.4K 🔥`
 1. [苏芒理解的内卷](https://s.weibo.com/weibo?q=%23%E8%8B%8F%E8%8A%92%E7%90%86%E8%A7%A3%E7%9A%84%E5%86%85%E5%8D%B7%23&Refer=top) `893.4K 🔥`
-1. [五一假期环卫工的自白](https://s.weibo.com/weibo?q=%23%E4%BA%94%E4%B8%80%E5%81%87%E6%9C%9F%E7%8E%AF%E5%8D%AB%E5%B7%A5%E7%9A%84%E8%87%AA%E7%99%BD%23&Refer=top) `825.3K 🔥`
 
-数据更新于 2021-05-05 14:02:13
+数据更新于 2021-05-05 14:22:16
 
 <!-- END -->
 
