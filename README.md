@@ -10,8 +10,8 @@
 1. [陈妍希谈和陈晓的夫妻相处之道](https://s.weibo.com/weibo?q=%23%E9%99%88%E5%A6%8D%E5%B8%8C%E8%B0%88%E5%92%8C%E9%99%88%E6%99%93%E7%9A%84%E5%A4%AB%E5%A6%BB%E7%9B%B8%E5%A4%84%E4%B9%8B%E9%81%93%23&Refer=top) `3.6M 🔥`
 1. [焦裕禄临终前最后一个请求](https://s.weibo.com/weibo?q=%E7%84%A6%E8%A3%95%E7%A6%84%E4%B8%B4%E7%BB%88%E5%89%8D%E6%9C%80%E5%90%8E%E4%B8%80%E4%B8%AA%E8%AF%B7%E6%B1%82&Refer=top) `3.6M 🔥`
 1. [美国将放弃新冠疫苗知识产权专利](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E5%B0%86%E6%94%BE%E5%BC%83%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E7%9F%A5%E8%AF%86%E4%BA%A7%E6%9D%83%E4%B8%93%E5%88%A9%23&Refer=top) `2.9M 🔥`
+1. [老师揪学生头发致皮骨分离被刑拘](https://s.weibo.com/weibo?q=%23%E8%80%81%E5%B8%88%E6%8F%AA%E5%AD%A6%E7%94%9F%E5%A4%B4%E5%8F%91%E8%87%B4%E7%9A%AE%E9%AA%A8%E5%88%86%E7%A6%BB%E8%A2%AB%E5%88%91%E6%8B%98%23&Refer=top) `2.8M 🔥`
 1. [香港将承认内地婚姻家庭案件判决](https://s.weibo.com/weibo?q=%23%E9%A6%99%E6%B8%AF%E5%B0%86%E6%89%BF%E8%AE%A4%E5%86%85%E5%9C%B0%E5%A9%9A%E5%A7%BB%E5%AE%B6%E5%BA%AD%E6%A1%88%E4%BB%B6%E5%88%A4%E5%86%B3%23&Refer=top) `2.7M 🔥`
-1. [老师揪学生头发致皮骨分离被刑拘](https://s.weibo.com/weibo?q=%23%E8%80%81%E5%B8%88%E6%8F%AA%E5%AD%A6%E7%94%9F%E5%A4%B4%E5%8F%91%E8%87%B4%E7%9A%AE%E9%AA%A8%E5%88%86%E7%A6%BB%E8%A2%AB%E5%88%91%E6%8B%98%23&Refer=top) `2.6M 🔥`
 1. [无限期暂停中澳战略经济对话机制下活动](https://s.weibo.com/weibo?q=%23%E6%97%A0%E9%99%90%E6%9C%9F%E6%9A%82%E5%81%9C%E4%B8%AD%E6%BE%B3%E6%88%98%E7%95%A5%E7%BB%8F%E6%B5%8E%E5%AF%B9%E8%AF%9D%E6%9C%BA%E5%88%B6%E4%B8%8B%E6%B4%BB%E5%8A%A8%23&Refer=top) `2.3M 🔥`
 1. [夫妻骑马从新疆回福建已花30多万](https://s.weibo.com/weibo?q=%E5%A4%AB%E5%A6%BB%E9%AA%91%E9%A9%AC%E4%BB%8E%E6%96%B0%E7%96%86%E5%9B%9E%E7%A6%8F%E5%BB%BA%E5%B7%B2%E8%8A%B130%E5%A4%9A%E4%B8%87&Refer=top) `2.1M 🔥`
 1. [张萌 我道歉每次都是真心的](https://s.weibo.com/weibo?q=%E5%BC%A0%E8%90%8C%20%E6%88%91%E9%81%93%E6%AD%89%E6%AF%8F%E6%AC%A1%E9%83%BD%E6%98%AF%E7%9C%9F%E5%BF%83%E7%9A%84&Refer=top) `2.1M 🔥`
@@ -36,6 +36,7 @@
 1. [你的婚礼](https://s.weibo.com/weibo?q=%E4%BD%A0%E7%9A%84%E5%A9%9A%E7%A4%BC&Refer=top) `812.5K 🔥`
 1. [真正的爱是扶级而上的](https://s.weibo.com/weibo?q=%23%E7%9C%9F%E6%AD%A3%E7%9A%84%E7%88%B1%E6%98%AF%E6%89%B6%E7%BA%A7%E8%80%8C%E4%B8%8A%E7%9A%84%23&Refer=top) `812.3K 🔥`
 1. [16岁的和马](https://s.weibo.com/weibo?q=%2316%E5%B2%81%E7%9A%84%E5%92%8C%E9%A9%AC%23&Refer=top) `799.6K 🔥`
+1. [王嘉尔背后抱邓伦求保护](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E5%98%89%E5%B0%94%E8%83%8C%E5%90%8E%E6%8A%B1%E9%82%93%E4%BC%A6%E6%B1%82%E4%BF%9D%E6%8A%A4%23&Refer=top) `792.9K 🔥`
 1. [尼泊尔停飞所有国际航班](https://s.weibo.com/weibo?q=%23%E5%B0%BC%E6%B3%8A%E5%B0%94%E5%81%9C%E9%A3%9E%E6%89%80%E6%9C%89%E5%9B%BD%E9%99%85%E8%88%AA%E7%8F%AD%23&Refer=top) `790.7K 🔥`
 1. [赵丽颖绿衣仙踪](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E4%B8%BD%E9%A2%96%E7%BB%BF%E8%A1%A3%E4%BB%99%E8%B8%AA%23&Refer=top) `790.6K 🔥`
 1. [麦当劳员工当众用拖把擦座椅](https://s.weibo.com/weibo?q=%E9%BA%A6%E5%BD%93%E5%8A%B3%E5%91%98%E5%B7%A5%E5%BD%93%E4%BC%97%E7%94%A8%E6%8B%96%E6%8A%8A%E6%93%A6%E5%BA%A7%E6%A4%85&Refer=top) `790.5K 🔥`
@@ -55,9 +56,8 @@
 1. [特斯拉年内或将上线数据平台](https://s.weibo.com/weibo?q=%E7%89%B9%E6%96%AF%E6%8B%89%E5%B9%B4%E5%86%85%E6%88%96%E5%B0%86%E4%B8%8A%E7%BA%BF%E6%95%B0%E6%8D%AE%E5%B9%B3%E5%8F%B0&Refer=top) `683.0K 🔥`
 1. [让每个学生都能掌握一两项艺术特长](https://s.weibo.com/weibo?q=%23%E8%AE%A9%E6%AF%8F%E4%B8%AA%E5%AD%A6%E7%94%9F%E9%83%BD%E8%83%BD%E6%8E%8C%E6%8F%A1%E4%B8%80%E4%B8%A4%E9%A1%B9%E8%89%BA%E6%9C%AF%E7%89%B9%E9%95%BF%23&Refer=top) `673.0K 🔥`
 1. [尼泊尔珠峰大本营17人确诊新冠](https://s.weibo.com/weibo?q=%E5%B0%BC%E6%B3%8A%E5%B0%94%E7%8F%A0%E5%B3%B0%E5%A4%A7%E6%9C%AC%E8%90%A517%E4%BA%BA%E7%A1%AE%E8%AF%8A%E6%96%B0%E5%86%A0&Refer=top) `664.4K 🔥`
-1. [全球1.55亿人面临重度粮食不安全](https://s.weibo.com/weibo?q=%23%E5%85%A8%E7%90%831.55%E4%BA%BF%E4%BA%BA%E9%9D%A2%E4%B8%B4%E9%87%8D%E5%BA%A6%E7%B2%AE%E9%A3%9F%E4%B8%8D%E5%AE%89%E5%85%A8%23&Refer=top) `663.3K 🔥`
 
-数据更新于 2021-05-06 13:47:10
+数据更新于 2021-05-06 13:52:59
 
 <!-- END -->
 
