@@ -53,11 +53,11 @@
 1. [韶关一辆特斯拉追尾货车](https://s.weibo.com/weibo?q=%23%E9%9F%B6%E5%85%B3%E4%B8%80%E8%BE%86%E7%89%B9%E6%96%AF%E6%8B%89%E8%BF%BD%E5%B0%BE%E8%B4%A7%E8%BD%A6%23&Refer=top) `205.5K 🔥`
 1. [中国人寿致歉](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E4%BA%BA%E5%AF%BF%E8%87%B4%E6%AD%89&Refer=top) `200.5K 🔥`
 1. [同事都加班职场新人该不该走](https://s.weibo.com/weibo?q=%23%E5%90%8C%E4%BA%8B%E9%83%BD%E5%8A%A0%E7%8F%AD%E8%81%8C%E5%9C%BA%E6%96%B0%E4%BA%BA%E8%AF%A5%E4%B8%8D%E8%AF%A5%E8%B5%B0%23&Refer=top) `198.7K 🔥`
-1. [杨笠说永远18岁很可怕](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E7%AC%A0%E8%AF%B4%E6%B0%B8%E8%BF%9C18%E5%B2%81%E5%BE%88%E5%8F%AF%E6%80%95%23&Refer=top) `186.9K 🔥`
+1. [杨笠说永远18岁很可怕](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E7%AC%A0%E8%AF%B4%E6%B0%B8%E8%BF%9C18%E5%B2%81%E5%BE%88%E5%8F%AF%E6%80%95%23&Refer=top) `194.1K 🔥`
 1. [为什么大家都爱谐音梗](https://s.weibo.com/weibo?q=%23%E4%B8%BA%E4%BB%80%E4%B9%88%E5%A4%A7%E5%AE%B6%E9%83%BD%E7%88%B1%E8%B0%90%E9%9F%B3%E6%A2%97%23&Refer=top) `180.8K 🔥`
 1. [驻塞尔维亚使馆纪念北约轰炸中牺牲烈士](https://s.weibo.com/weibo?q=%23%E9%A9%BB%E5%A1%9E%E5%B0%94%E7%BB%B4%E4%BA%9A%E4%BD%BF%E9%A6%86%E7%BA%AA%E5%BF%B5%E5%8C%97%E7%BA%A6%E8%BD%B0%E7%82%B8%E4%B8%AD%E7%89%BA%E7%89%B2%E7%83%88%E5%A3%AB%23&Refer=top) `165.5K 🔥`
 
-数据更新于 2021-05-08 01:29:51
+数据更新于 2021-05-08 01:38:57
 
 <!-- END -->
 
