@@ -57,7 +57,7 @@
 1. [GAI经纪公司声明](https://s.weibo.com/weibo?q=%23GAI%E7%BB%8F%E7%BA%AA%E5%85%AC%E5%8F%B8%E5%A3%B0%E6%98%8E%23&Refer=top) `992.3K 🔥`
 1. [22岁大学生杀害父母被审查逮捕](https://s.weibo.com/weibo?q=%2322%E5%B2%81%E5%A4%A7%E5%AD%A6%E7%94%9F%E6%9D%80%E5%AE%B3%E7%88%B6%E6%AF%8D%E8%A2%AB%E5%AE%A1%E6%9F%A5%E9%80%AE%E6%8D%95%23&Refer=top) `929.9K 🔥`
 
-数据更新于 2021-05-08 15:04:39
+数据更新于 2021-05-08 15:07:46
 
 <!-- END -->
 
