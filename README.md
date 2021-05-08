@@ -57,7 +57,7 @@
 1. [特斯拉回应追尾货车事故](https://s.weibo.com/weibo?q=%E7%89%B9%E6%96%AF%E6%8B%89%E5%9B%9E%E5%BA%94%E8%BF%BD%E5%B0%BE%E8%B4%A7%E8%BD%A6%E4%BA%8B%E6%95%85&Refer=top) `331.9K 🔥`
 1. [上海高校8分钟毕设动画惊艳网友](https://s.weibo.com/weibo?q=%E4%B8%8A%E6%B5%B7%E9%AB%98%E6%A0%A18%E5%88%86%E9%92%9F%E6%AF%95%E8%AE%BE%E5%8A%A8%E7%94%BB%E6%83%8A%E8%89%B3%E7%BD%91%E5%8F%8B&Refer=top) `324.0K 🔥`
 
-数据更新于 2021-05-08 08:03:54
+数据更新于 2021-05-08 08:04:53
 
 <!-- END -->
 
