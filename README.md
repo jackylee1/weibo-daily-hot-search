@@ -54,10 +54,10 @@
 1. [第二只被麻醉的金钱豹正在恢复](https://s.weibo.com/weibo?q=%23%E7%AC%AC%E4%BA%8C%E5%8F%AA%E8%A2%AB%E9%BA%BB%E9%86%89%E7%9A%84%E9%87%91%E9%92%B1%E8%B1%B9%E6%AD%A3%E5%9C%A8%E6%81%A2%E5%A4%8D%23&Refer=top) `798.0K 🔥`
 1. [三亚政法委介入女子跳舞坠楼事件](https://s.weibo.com/weibo?q=%23%E4%B8%89%E4%BA%9A%E6%94%BF%E6%B3%95%E5%A7%94%E4%BB%8B%E5%85%A5%E5%A5%B3%E5%AD%90%E8%B7%B3%E8%88%9E%E5%9D%A0%E6%A5%BC%E4%BA%8B%E4%BB%B6%23&Refer=top) `782.2K 🔥`
 1. [NINEVER](https://s.weibo.com/weibo?q=%23NINEVER%23&Refer=top) `770.5K 🔥`
+1. [我国平均分娩镇痛普及率仅约30%](https://s.weibo.com/weibo?q=%E6%88%91%E5%9B%BD%E5%B9%B3%E5%9D%87%E5%88%86%E5%A8%A9%E9%95%87%E7%97%9B%E6%99%AE%E5%8F%8A%E7%8E%87%E4%BB%85%E7%BA%A630%25&Refer=top) `768.1K 🔥`
 1. [被白敬亭李维嘉笑死](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E7%99%BD%E6%95%AC%E4%BA%AD%E6%9D%8E%E7%BB%B4%E5%98%89%E7%AC%91%E6%AD%BB%23&Refer=top) `765.3K 🔥`
-1. [徐冬冬曾被男友家暴](https://s.weibo.com/weibo?q=%23%E5%BE%90%E5%86%AC%E5%86%AC%E6%9B%BE%E8%A2%AB%E7%94%B7%E5%8F%8B%E5%AE%B6%E6%9A%B4%23&Refer=top) `763.9K 🔥`
 
-数据更新于 2021-05-09 16:30:19
+数据更新于 2021-05-09 16:49:19
 
 <!-- END -->
 
