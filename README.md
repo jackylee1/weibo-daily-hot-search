@@ -18,6 +18,7 @@
 1. [光光退出厂牌](https://s.weibo.com/weibo?q=%23%E5%85%89%E5%85%89%E9%80%80%E5%87%BA%E5%8E%82%E7%89%8C%23&Refer=top) `2.2M 🔥`
 1. [鹿晗 化妆不分性别](https://s.weibo.com/weibo?q=%E9%B9%BF%E6%99%97%20%E5%8C%96%E5%A6%86%E4%B8%8D%E5%88%86%E6%80%A7%E5%88%AB&Refer=top) `2.2M 🔥`
 1. [美国宣布进入国家紧急状态](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E5%AE%A3%E5%B8%83%E8%BF%9B%E5%85%A5%E5%9B%BD%E5%AE%B6%E7%B4%A7%E6%80%A5%E7%8A%B6%E6%80%81%23&Refer=top) `2.1M 🔥`
+1. [成都四十九中回应学生在校高坠离世](https://s.weibo.com/weibo?q=%23%E6%88%90%E9%83%BD%E5%9B%9B%E5%8D%81%E4%B9%9D%E4%B8%AD%E5%9B%9E%E5%BA%94%E5%AD%A6%E7%94%9F%E5%9C%A8%E6%A0%A1%E9%AB%98%E5%9D%A0%E7%A6%BB%E4%B8%96%23&Refer=top) `1.9M 🔥`
 1. [上海海关截获人体细胞247支](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E6%B5%B7%E5%85%B3%E6%88%AA%E8%8E%B7%E4%BA%BA%E4%BD%93%E7%BB%86%E8%83%9E247%E6%94%AF%23&Refer=top) `1.9M 🔥`
 1. [高卿尘 这个房子太土了](https://s.weibo.com/weibo?q=%E9%AB%98%E5%8D%BF%E5%B0%98%20%E8%BF%99%E4%B8%AA%E6%88%BF%E5%AD%90%E5%A4%AA%E5%9C%9F%E4%BA%86&Refer=top) `1.9M 🔥`
 1. [头一次看到有明星这么认真回复这个](https://s.weibo.com/weibo?q=%23%E5%A4%B4%E4%B8%80%E6%AC%A1%E7%9C%8B%E5%88%B0%E6%9C%89%E6%98%8E%E6%98%9F%E8%BF%99%E4%B9%88%E8%AE%A4%E7%9C%9F%E5%9B%9E%E5%A4%8D%E8%BF%99%E4%B8%AA%23&Refer=top) `1.8M 🔥`
@@ -55,9 +56,8 @@
 1. [金钱豹外逃事件5人被采取刑事强制措施](https://s.weibo.com/weibo?q=%23%E9%87%91%E9%92%B1%E8%B1%B9%E5%A4%96%E9%80%83%E4%BA%8B%E4%BB%B65%E4%BA%BA%E8%A2%AB%E9%87%87%E5%8F%96%E5%88%91%E4%BA%8B%E5%BC%BA%E5%88%B6%E6%8E%AA%E6%96%BD%23&Refer=top) `851.2K 🔥`
 1. [米卡房间的电视机](https://s.weibo.com/weibo?q=%23%E7%B1%B3%E5%8D%A1%E6%88%BF%E9%97%B4%E7%9A%84%E7%94%B5%E8%A7%86%E6%9C%BA%23&Refer=top) `837.3K 🔥`
 1. [Xiaohu回归中路](https://s.weibo.com/weibo?q=Xiaohu%E5%9B%9E%E5%BD%92%E4%B8%AD%E8%B7%AF&Refer=top) `836.0K 🔥`
-1. [盖茨夫妇2019年已酝酿离婚](https://s.weibo.com/weibo?q=%E7%9B%96%E8%8C%A8%E5%A4%AB%E5%A6%872019%E5%B9%B4%E5%B7%B2%E9%85%9D%E9%85%BF%E7%A6%BB%E5%A9%9A&Refer=top) `824.7K 🔥`
 
-数据更新于 2021-05-10 16:29:55
+数据更新于 2021-05-10 16:51:46
 
 <!-- END -->
 
