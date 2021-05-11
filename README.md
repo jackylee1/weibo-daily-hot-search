@@ -29,8 +29,8 @@
 1. [龚俊 张老师生日快乐](https://s.weibo.com/weibo?q=%E9%BE%9A%E4%BF%8A%20%E5%BC%A0%E8%80%81%E5%B8%88%E7%94%9F%E6%97%A5%E5%BF%AB%E4%B9%90&Refer=top) `1.9M 🔥`
 1. [教育部建议家长不跟风报班](https://s.weibo.com/weibo?q=%23%E6%95%99%E8%82%B2%E9%83%A8%E5%BB%BA%E8%AE%AE%E5%AE%B6%E9%95%BF%E4%B8%8D%E8%B7%9F%E9%A3%8E%E6%8A%A5%E7%8F%AD%23&Refer=top) `1.9M 🔥`
 1. [第七次全国人口普查主要数据结果](https://s.weibo.com/weibo?q=%23%E7%AC%AC%E4%B8%83%E6%AC%A1%E5%85%A8%E5%9B%BD%E4%BA%BA%E5%8F%A3%E6%99%AE%E6%9F%A5%E4%B8%BB%E8%A6%81%E6%95%B0%E6%8D%AE%E7%BB%93%E6%9E%9C%23&Refer=top) `1.9M 🔥`
-1. [成都四十九中回应学生在校高坠离世](https://s.weibo.com/weibo?q=%23%E6%88%90%E9%83%BD%E5%9B%9B%E5%8D%81%E4%B9%9D%E4%B8%AD%E5%9B%9E%E5%BA%94%E5%AD%A6%E7%94%9F%E5%9C%A8%E6%A0%A1%E9%AB%98%E5%9D%A0%E7%A6%BB%E4%B8%96%23&Refer=top) `1.8M 🔥`
 1. [重庆德牧壮壮](https://s.weibo.com/weibo?q=%E9%87%8D%E5%BA%86%E5%BE%B7%E7%89%A7%E5%A3%AE%E5%A3%AE&Refer=top) `1.8M 🔥`
+1. [成都四十九中回应学生在校高坠离世](https://s.weibo.com/weibo?q=%23%E6%88%90%E9%83%BD%E5%9B%9B%E5%8D%81%E4%B9%9D%E4%B8%AD%E5%9B%9E%E5%BA%94%E5%AD%A6%E7%94%9F%E5%9C%A8%E6%A0%A1%E9%AB%98%E5%9D%A0%E7%A6%BB%E4%B8%96%23&Refer=top) `1.8M 🔥`
 1. [赵丽颖直播状态](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E4%B8%BD%E9%A2%96%E7%9B%B4%E6%92%AD%E7%8A%B6%E6%80%81%23&Refer=top) `1.8M 🔥`
 1. [技嘉道歉](https://s.weibo.com/weibo?q=%23%E6%8A%80%E5%98%89%E9%81%93%E6%AD%89%23&Refer=top) `1.7M 🔥`
 1. [洱海坠机牺牲机组人员信息](https://s.weibo.com/weibo?q=%23%E6%B4%B1%E6%B5%B7%E5%9D%A0%E6%9C%BA%E7%89%BA%E7%89%B2%E6%9C%BA%E7%BB%84%E4%BA%BA%E5%91%98%E4%BF%A1%E6%81%AF%23&Refer=top) `1.7M 🔥`
@@ -57,7 +57,7 @@
 1. [吴青峰称苏打绿休团是林暐哲逼的](https://s.weibo.com/weibo?q=%23%E5%90%B4%E9%9D%92%E5%B3%B0%E7%A7%B0%E8%8B%8F%E6%89%93%E7%BB%BF%E4%BC%91%E5%9B%A2%E6%98%AF%E6%9E%97%E6%9A%90%E5%93%B2%E9%80%BC%E7%9A%84%23&Refer=top) `1.0M 🔥`
 1. [印度黑市氧气卖出天价](https://s.weibo.com/weibo?q=%E5%8D%B0%E5%BA%A6%E9%BB%91%E5%B8%82%E6%B0%A7%E6%B0%94%E5%8D%96%E5%87%BA%E5%A4%A9%E4%BB%B7&Refer=top) `1.0M 🔥`
 
-数据更新于 2021-05-11 22:01:52
+数据更新于 2021-05-11 22:11:21
 
 <!-- END -->
 
