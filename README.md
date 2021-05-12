@@ -38,6 +38,7 @@
 1. [13年前的新闻播报 她哭了我们也哭了](https://s.weibo.com/weibo?q=13%E5%B9%B4%E5%89%8D%E7%9A%84%E6%96%B0%E9%97%BB%E6%92%AD%E6%8A%A5%20%E5%A5%B9%E5%93%AD%E4%BA%86%E6%88%91%E4%BB%AC%E4%B9%9F%E5%93%AD%E4%BA%86&Refer=top) `1.8M 🔥`
 1. [ZARA因以次充好被行政处罚](https://s.weibo.com/weibo?q=%23ZARA%E5%9B%A0%E4%BB%A5%E6%AC%A1%E5%85%85%E5%A5%BD%E8%A2%AB%E8%A1%8C%E6%94%BF%E5%A4%84%E7%BD%9A%23&Refer=top) `1.7M 🔥`
 1. [重庆德牧壮壮](https://s.weibo.com/weibo?q=%E9%87%8D%E5%BA%86%E5%BE%B7%E7%89%A7%E5%A3%AE%E5%A3%AE&Refer=top) `1.7M 🔥`
+1. [印度变异毒株已传至40多国和地区](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E5%8F%98%E5%BC%82%E6%AF%92%E6%A0%AA%E5%B7%B2%E4%BC%A0%E8%87%B340%E5%A4%9A%E5%9B%BD%E5%92%8C%E5%9C%B0%E5%8C%BA%23&Refer=top) `1.7M 🔥`
 1. [90后的三十岁](https://s.weibo.com/weibo?q=%2390%E5%90%8E%E7%9A%84%E4%B8%89%E5%8D%81%E5%B2%81%23&Refer=top) `1.6M 🔥`
 1. [中国从不以超越美国为目标但不回避竞争](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E4%BB%8E%E4%B8%8D%E4%BB%A5%E8%B6%85%E8%B6%8A%E7%BE%8E%E5%9B%BD%E4%B8%BA%E7%9B%AE%E6%A0%87%E4%BD%86%E4%B8%8D%E5%9B%9E%E9%81%BF%E7%AB%9E%E4%BA%89%23&Refer=top) `1.6M 🔥`
 1. [禁忌女孩](https://s.weibo.com/weibo?q=%E7%A6%81%E5%BF%8C%E5%A5%B3%E5%AD%A9&Refer=top) `1.6M 🔥`
@@ -55,9 +56,8 @@
 1. [周杰伦女儿拉琴照和前世情人MV一样](https://s.weibo.com/weibo?q=%23%E5%91%A8%E6%9D%B0%E4%BC%A6%E5%A5%B3%E5%84%BF%E6%8B%89%E7%90%B4%E7%85%A7%E5%92%8C%E5%89%8D%E4%B8%96%E6%83%85%E4%BA%BAMV%E4%B8%80%E6%A0%B7%23&Refer=top) `1.3M 🔥`
 1. [黄景瑜给考研粉丝发回误删资料](https://s.weibo.com/weibo?q=%23%E9%BB%84%E6%99%AF%E7%91%9C%E7%BB%99%E8%80%83%E7%A0%94%E7%B2%89%E4%B8%9D%E5%8F%91%E5%9B%9E%E8%AF%AF%E5%88%A0%E8%B5%84%E6%96%99%23&Refer=top) `1.3M 🔥`
 1. [猪坚强](https://s.weibo.com/weibo?q=%23%E7%8C%AA%E5%9D%9A%E5%BC%BA%23&Refer=top) `1.2M 🔥`
-1. [央视评高中生坠亡通报需以更多事实回应](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E8%AF%84%E9%AB%98%E4%B8%AD%E7%94%9F%E5%9D%A0%E4%BA%A1%E9%80%9A%E6%8A%A5%E9%9C%80%E4%BB%A5%E6%9B%B4%E5%A4%9A%E4%BA%8B%E5%AE%9E%E5%9B%9E%E5%BA%94%23&Refer=top) `1.2M 🔥`
 
-数据更新于 2021-05-12 21:44:38
+数据更新于 2021-05-12 21:59:27
 
 <!-- END -->
 
