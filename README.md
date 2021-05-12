@@ -7,9 +7,9 @@
 <!-- BEGIN -->
 
 1. [阿迪达斯被罚](https://s.weibo.com/weibo?q=%E9%98%BF%E8%BF%AA%E8%BE%BE%E6%96%AF%E8%A2%AB%E7%BD%9A&Refer=top) `2.5M 🔥`
+1. [遇龙](https://s.weibo.com/weibo?q=%E9%81%87%E9%BE%99&Refer=top) `1.8M 🔥`
 1. [印度变异毒株已传至40多国和地区](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E5%8F%98%E5%BC%82%E6%AF%92%E6%A0%AA%E5%B7%B2%E4%BC%A0%E8%87%B340%E5%A4%9A%E5%9B%BD%E5%92%8C%E5%9C%B0%E5%8C%BA%23&Refer=top) `1.5M 🔥`
 1. [利路修登上Pitchfork首页](https://s.weibo.com/weibo?q=%23%E5%88%A9%E8%B7%AF%E4%BF%AE%E7%99%BB%E4%B8%8APitchfork%E9%A6%96%E9%A1%B5%23&Refer=top) `1.4M 🔥`
-1. [遇龙](https://s.weibo.com/weibo?q=%E9%81%87%E9%BE%99&Refer=top) `1.3M 🔥`
 1. [杜海涛沈梦辰](https://s.weibo.com/weibo?q=%23%E6%9D%9C%E6%B5%B7%E6%B6%9B%E6%B2%88%E6%A2%A6%E8%BE%B0%23&Refer=top) `1.3M 🔥`
 1. [张雪迎发长文回应粉丝](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E9%9B%AA%E8%BF%8E%E5%8F%91%E9%95%BF%E6%96%87%E5%9B%9E%E5%BA%94%E7%B2%89%E4%B8%9D%23&Refer=top) `1.2M 🔥`
 1. [内卷就该这么卷](https://s.weibo.com/weibo?q=%23%E5%86%85%E5%8D%B7%E5%B0%B1%E8%AF%A5%E8%BF%99%E4%B9%88%E5%8D%B7%23&Refer=top) `1.2M 🔥`
@@ -57,7 +57,7 @@
 1. [皮囊之下](https://s.weibo.com/weibo?q=%E7%9A%AE%E5%9B%8A%E4%B9%8B%E4%B8%8B&Refer=top) `144.7K 🔥`
 1. [实时监测消耗卡路里的智慧跑道](https://s.weibo.com/weibo?q=%E5%AE%9E%E6%97%B6%E7%9B%91%E6%B5%8B%E6%B6%88%E8%80%97%E5%8D%A1%E8%B7%AF%E9%87%8C%E7%9A%84%E6%99%BA%E6%85%A7%E8%B7%91%E9%81%93&Refer=top) `140.7K 🔥`
 
-数据更新于 2021-05-13 07:04:00
+数据更新于 2021-05-13 07:29:12
 
 <!-- END -->
 
