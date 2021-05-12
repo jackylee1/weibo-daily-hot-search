@@ -9,9 +9,9 @@
 1. [警方通报成都四十九中学生坠亡](https://s.weibo.com/weibo?q=%23%E8%AD%A6%E6%96%B9%E9%80%9A%E6%8A%A5%E6%88%90%E9%83%BD%E5%9B%9B%E5%8D%81%E4%B9%9D%E4%B8%AD%E5%AD%A6%E7%94%9F%E5%9D%A0%E4%BA%A1%23&Refer=top) `7.8M 🔥`
 1. [周杰伦的稻香是写给汶川地震的](https://s.weibo.com/weibo?q=%23%E5%91%A8%E6%9D%B0%E4%BC%A6%E7%9A%84%E7%A8%BB%E9%A6%99%E6%98%AF%E5%86%99%E7%BB%99%E6%B1%B6%E5%B7%9D%E5%9C%B0%E9%9C%87%E7%9A%84%23&Refer=top) `5.6M 🔥`
 1. [512](https://s.weibo.com/weibo?q=%23512%23&Refer=top) `3.8M 🔥`
+1. [吴京在汶川地震时给灾民搭建帐篷](https://s.weibo.com/weibo?q=%23%E5%90%B4%E4%BA%AC%E5%9C%A8%E6%B1%B6%E5%B7%9D%E5%9C%B0%E9%9C%87%E6%97%B6%E7%BB%99%E7%81%BE%E6%B0%91%E6%90%AD%E5%BB%BA%E5%B8%90%E7%AF%B7%23&Refer=top) `3.2M 🔥`
 1. [高中生坠亡通报请少一些硬邦邦](https://s.weibo.com/weibo?q=%23%E9%AB%98%E4%B8%AD%E7%94%9F%E5%9D%A0%E4%BA%A1%E9%80%9A%E6%8A%A5%E8%AF%B7%E5%B0%91%E4%B8%80%E4%BA%9B%E7%A1%AC%E9%82%A6%E9%82%A6%23&Refer=top) `3.1M 🔥`
 1. [汶川地震夹缝男孩明年结婚](https://s.weibo.com/weibo?q=%23%E6%B1%B6%E5%B7%9D%E5%9C%B0%E9%9C%87%E5%A4%B9%E7%BC%9D%E7%94%B7%E5%AD%A9%E6%98%8E%E5%B9%B4%E7%BB%93%E5%A9%9A%23&Refer=top) `2.7M 🔥`
-1. [吴京在汶川地震时给灾民搭建帐篷](https://s.weibo.com/weibo?q=%23%E5%90%B4%E4%BA%AC%E5%9C%A8%E6%B1%B6%E5%B7%9D%E5%9C%B0%E9%9C%87%E6%97%B6%E7%BB%99%E7%81%BE%E6%B0%91%E6%90%AD%E5%BB%BA%E5%B8%90%E7%AF%B7%23&Refer=top) `2.5M 🔥`
 1. [江苏宜兴重大命案](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%8B%8F%E5%AE%9C%E5%85%B4%E9%87%8D%E5%A4%A7%E5%91%BD%E6%A1%88%23&Refer=top) `2.5M 🔥`
 1. [乔丹曝光与科比最后的短信交流](https://s.weibo.com/weibo?q=%23%E4%B9%94%E4%B8%B9%E6%9B%9D%E5%85%89%E4%B8%8E%E7%A7%91%E6%AF%94%E6%9C%80%E5%90%8E%E7%9A%84%E7%9F%AD%E4%BF%A1%E4%BA%A4%E6%B5%81%23&Refer=top) `2.3M 🔥`
 1. [药水哥道歉](https://s.weibo.com/weibo?q=%23%E8%8D%AF%E6%B0%B4%E5%93%A5%E9%81%93%E6%AD%89%23&Refer=top) `2.2M 🔥`
@@ -26,6 +26,7 @@
 1. [杜海涛回应被沈梦辰催婚催不动](https://s.weibo.com/weibo?q=%23%E6%9D%9C%E6%B5%B7%E6%B6%9B%E5%9B%9E%E5%BA%94%E8%A2%AB%E6%B2%88%E6%A2%A6%E8%BE%B0%E5%82%AC%E5%A9%9A%E5%82%AC%E4%B8%8D%E5%8A%A8%23&Refer=top) `1.5M 🔥`
 1. [吊篮撞楼死者家属发声](https://s.weibo.com/weibo?q=%23%E5%90%8A%E7%AF%AE%E6%92%9E%E6%A5%BC%E6%AD%BB%E8%80%85%E5%AE%B6%E5%B1%9E%E5%8F%91%E5%A3%B0%23&Refer=top) `1.4M 🔥`
 1. [周杰伦女儿拉琴照和前世情人MV一样](https://s.weibo.com/weibo?q=%23%E5%91%A8%E6%9D%B0%E4%BC%A6%E5%A5%B3%E5%84%BF%E6%8B%89%E7%90%B4%E7%85%A7%E5%92%8C%E5%89%8D%E4%B8%96%E6%83%85%E4%BA%BAMV%E4%B8%80%E6%A0%B7%23&Refer=top) `1.3M 🔥`
+1. [为考研她摸过的盲文试卷有半米高](https://s.weibo.com/weibo?q=%23%E4%B8%BA%E8%80%83%E7%A0%94%E5%A5%B9%E6%91%B8%E8%BF%87%E7%9A%84%E7%9B%B2%E6%96%87%E8%AF%95%E5%8D%B7%E6%9C%89%E5%8D%8A%E7%B1%B3%E9%AB%98%23&Refer=top) `1.3M 🔥`
 1. [猪坚强](https://s.weibo.com/weibo?q=%23%E7%8C%AA%E5%9D%9A%E5%BC%BA%23&Refer=top) `1.2M 🔥`
 1. [央视评高中生坠亡通报需以更多事实回应](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E8%AF%84%E9%AB%98%E4%B8%AD%E7%94%9F%E5%9D%A0%E4%BA%A1%E9%80%9A%E6%8A%A5%E9%9C%80%E4%BB%A5%E6%9B%B4%E5%A4%9A%E4%BA%8B%E5%AE%9E%E5%9B%9E%E5%BA%94%23&Refer=top) `1.2M 🔥`
 1. [当地回应中学生坠亡关键六问](https://s.weibo.com/weibo?q=%23%E5%BD%93%E5%9C%B0%E5%9B%9E%E5%BA%94%E4%B8%AD%E5%AD%A6%E7%94%9F%E5%9D%A0%E4%BA%A1%E5%85%B3%E9%94%AE%E5%85%AD%E9%97%AE%23&Refer=top) `1.2M 🔥`
@@ -55,9 +56,8 @@
 1. [洱海坠机牺牲机长生前采访](https://s.weibo.com/weibo?q=%E6%B4%B1%E6%B5%B7%E5%9D%A0%E6%9C%BA%E7%89%BA%E7%89%B2%E6%9C%BA%E9%95%BF%E7%94%9F%E5%89%8D%E9%87%87%E8%AE%BF&Refer=top) `730.5K 🔥`
 1. [地铁偶遇龚俊](https://s.weibo.com/weibo?q=%23%E5%9C%B0%E9%93%81%E5%81%B6%E9%81%87%E9%BE%9A%E4%BF%8A%23&Refer=top) `728.2K 🔥`
 1. [朴秀荣SOLO](https://s.weibo.com/weibo?q=%23%E6%9C%B4%E7%A7%80%E8%8D%A3SOLO%23&Refer=top) `721.1K 🔥`
-1. [为考研她摸过的盲文试卷有半米高](https://s.weibo.com/weibo?q=%23%E4%B8%BA%E8%80%83%E7%A0%94%E5%A5%B9%E6%91%B8%E8%BF%87%E7%9A%84%E7%9B%B2%E6%96%87%E8%AF%95%E5%8D%B7%E6%9C%89%E5%8D%8A%E7%B1%B3%E9%AB%98%23&Refer=top) `720.7K 🔥`
 
-数据更新于 2021-05-12 14:32:31
+数据更新于 2021-05-12 14:58:52
 
 <!-- END -->
 
