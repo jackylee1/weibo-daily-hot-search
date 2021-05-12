@@ -22,9 +22,9 @@
 1. [13年前的新闻播报 她哭了我们也哭了](https://s.weibo.com/weibo?q=13%E5%B9%B4%E5%89%8D%E7%9A%84%E6%96%B0%E9%97%BB%E6%92%AD%E6%8A%A5%20%E5%A5%B9%E5%93%AD%E4%BA%86%E6%88%91%E4%BB%AC%E4%B9%9F%E5%93%AD%E4%BA%86&Refer=top) `1.8M 🔥`
 1. [重庆德牧壮壮](https://s.weibo.com/weibo?q=%E9%87%8D%E5%BA%86%E5%BE%B7%E7%89%A7%E5%A3%AE%E5%A3%AE&Refer=top) `1.7M 🔥`
 1. [90后的三十岁](https://s.weibo.com/weibo?q=%2390%E5%90%8E%E7%9A%84%E4%B8%89%E5%8D%81%E5%B2%81%23&Refer=top) `1.6M 🔥`
+1. [为考研她摸过的盲文试卷有半米高](https://s.weibo.com/weibo?q=%23%E4%B8%BA%E8%80%83%E7%A0%94%E5%A5%B9%E6%91%B8%E8%BF%87%E7%9A%84%E7%9B%B2%E6%96%87%E8%AF%95%E5%8D%B7%E6%9C%89%E5%8D%8A%E7%B1%B3%E9%AB%98%23&Refer=top) `1.6M 🔥`
 1. [中国从不以超越美国为目标但不回避竞争](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E4%BB%8E%E4%B8%8D%E4%BB%A5%E8%B6%85%E8%B6%8A%E7%BE%8E%E5%9B%BD%E4%B8%BA%E7%9B%AE%E6%A0%87%E4%BD%86%E4%B8%8D%E5%9B%9E%E9%81%BF%E7%AB%9E%E4%BA%89%23&Refer=top) `1.6M 🔥`
 1. [杜海涛回应被沈梦辰催婚催不动](https://s.weibo.com/weibo?q=%23%E6%9D%9C%E6%B5%B7%E6%B6%9B%E5%9B%9E%E5%BA%94%E8%A2%AB%E6%B2%88%E6%A2%A6%E8%BE%B0%E5%82%AC%E5%A9%9A%E5%82%AC%E4%B8%8D%E5%8A%A8%23&Refer=top) `1.5M 🔥`
-1. [为考研她摸过的盲文试卷有半米高](https://s.weibo.com/weibo?q=%23%E4%B8%BA%E8%80%83%E7%A0%94%E5%A5%B9%E6%91%B8%E8%BF%87%E7%9A%84%E7%9B%B2%E6%96%87%E8%AF%95%E5%8D%B7%E6%9C%89%E5%8D%8A%E7%B1%B3%E9%AB%98%23&Refer=top) `1.5M 🔥`
 1. [吊篮撞楼死者家属发声](https://s.weibo.com/weibo?q=%23%E5%90%8A%E7%AF%AE%E6%92%9E%E6%A5%BC%E6%AD%BB%E8%80%85%E5%AE%B6%E5%B1%9E%E5%8F%91%E5%A3%B0%23&Refer=top) `1.4M 🔥`
 1. [周杰伦女儿拉琴照和前世情人MV一样](https://s.weibo.com/weibo?q=%23%E5%91%A8%E6%9D%B0%E4%BC%A6%E5%A5%B3%E5%84%BF%E6%8B%89%E7%90%B4%E7%85%A7%E5%92%8C%E5%89%8D%E4%B8%96%E6%83%85%E4%BA%BAMV%E4%B8%80%E6%A0%B7%23&Refer=top) `1.3M 🔥`
 1. [猪坚强](https://s.weibo.com/weibo?q=%23%E7%8C%AA%E5%9D%9A%E5%BC%BA%23&Refer=top) `1.2M 🔥`
@@ -57,7 +57,7 @@
 1. [洱海坠机牺牲机长生前采访](https://s.weibo.com/weibo?q=%E6%B4%B1%E6%B5%B7%E5%9D%A0%E6%9C%BA%E7%89%BA%E7%89%B2%E6%9C%BA%E9%95%BF%E7%94%9F%E5%89%8D%E9%87%87%E8%AE%BF&Refer=top) `730.5K 🔥`
 1. [地铁偶遇龚俊](https://s.weibo.com/weibo?q=%23%E5%9C%B0%E9%93%81%E5%81%B6%E9%81%87%E9%BE%9A%E4%BF%8A%23&Refer=top) `728.2K 🔥`
 
-数据更新于 2021-05-12 15:53:06
+数据更新于 2021-05-12 15:58:43
 
 <!-- END -->
 
