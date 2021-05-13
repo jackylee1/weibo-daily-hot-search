@@ -57,7 +57,7 @@
 1. [美媒称中国科兴疫苗高度有效](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%AA%92%E7%A7%B0%E4%B8%AD%E5%9B%BD%E7%A7%91%E5%85%B4%E7%96%AB%E8%8B%97%E9%AB%98%E5%BA%A6%E6%9C%89%E6%95%88%23&Refer=top) `1.1M 🔥`
 1. [小学生让骗子自挂电话](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E5%AD%A6%E7%94%9F%E8%AE%A9%E9%AA%97%E5%AD%90%E8%87%AA%E6%8C%82%E7%94%B5%E8%AF%9D%23&Refer=top) `1.0M 🔥`
 
-数据更新于 2021-05-13 19:48:52
+数据更新于 2021-05-13 19:54:33
 
 <!-- END -->
 
