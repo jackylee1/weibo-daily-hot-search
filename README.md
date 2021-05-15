@@ -51,13 +51,13 @@
 1. [禁忌女孩](https://s.weibo.com/weibo?q=%E7%A6%81%E5%BF%8C%E5%A5%B3%E5%AD%A9&Refer=top) `225.4K 🔥`
 1. [低估了小偷的敬业](https://s.weibo.com/weibo?q=%23%E4%BD%8E%E4%BC%B0%E4%BA%86%E5%B0%8F%E5%81%B7%E7%9A%84%E6%95%AC%E4%B8%9A%23&Refer=top) `223.5K 🔥`
 1. [中国97%的成年人患有牙结石](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD97%25%E7%9A%84%E6%88%90%E5%B9%B4%E4%BA%BA%E6%82%A3%E6%9C%89%E7%89%99%E7%BB%93%E7%9F%B3%23&Refer=top) `219.4K 🔥`
-1. [金曲青春](https://s.weibo.com/weibo?q=%23%E9%87%91%E6%9B%B2%E9%9D%92%E6%98%A5%23&Refer=top) `202.2K 🔥`
+1. [金曲青春](https://s.weibo.com/weibo?q=%23%E9%87%91%E6%9B%B2%E9%9D%92%E6%98%A5%23&Refer=top) `207.8K 🔥`
 1. [生活家](https://s.weibo.com/weibo?q=%E7%94%9F%E6%B4%BB%E5%AE%B6&Refer=top) `202.0K 🔥`
 1. [武汉暴雨](https://s.weibo.com/weibo?q=%23%E6%AD%A6%E6%B1%89%E6%9A%B4%E9%9B%A8%23&Refer=top) `200.0K 🔥`
 1. [重庆一小学组织学生校内收麦子](https://s.weibo.com/weibo?q=%23%E9%87%8D%E5%BA%86%E4%B8%80%E5%B0%8F%E5%AD%A6%E7%BB%84%E7%BB%87%E5%AD%A6%E7%94%9F%E6%A0%A1%E5%86%85%E6%94%B6%E9%BA%A6%E5%AD%90%23&Refer=top) `189.9K 🔥`
 1. [景甜说看完刘宇宁直播失眠了](https://s.weibo.com/weibo?q=%23%E6%99%AF%E7%94%9C%E8%AF%B4%E7%9C%8B%E5%AE%8C%E5%88%98%E5%AE%87%E5%AE%81%E7%9B%B4%E6%92%AD%E5%A4%B1%E7%9C%A0%E4%BA%86%23&Refer=top) `189.5K 🔥`
 
-数据更新于 2021-05-16 00:55:27
+数据更新于 2021-05-16 01:34:55
 
 <!-- END -->
 
