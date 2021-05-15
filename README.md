@@ -44,6 +44,7 @@
 1. [科比正式进入名人堂](https://s.weibo.com/weibo?q=%23%E7%A7%91%E6%AF%94%E6%AD%A3%E5%BC%8F%E8%BF%9B%E5%85%A5%E5%90%8D%E4%BA%BA%E5%A0%82%23&Refer=top) `969.7K 🔥`
 1. [辽宁营口5例感染病例均未注射新冠疫苗](https://s.weibo.com/weibo?q=%23%E8%BE%BD%E5%AE%81%E8%90%A5%E5%8F%A35%E4%BE%8B%E6%84%9F%E6%9F%93%E7%97%85%E4%BE%8B%E5%9D%87%E6%9C%AA%E6%B3%A8%E5%B0%84%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%23&Refer=top) `962.5K 🔥`
 1. [NASA发来贺电](https://s.weibo.com/weibo?q=%23NASA%E5%8F%91%E6%9D%A5%E8%B4%BA%E7%94%B5%23&Refer=top) `954.8K 🔥`
+1. [辽宁新增4例本土确诊](https://s.weibo.com/weibo?q=%23%E8%BE%BD%E5%AE%81%E6%96%B0%E5%A2%9E4%E4%BE%8B%E6%9C%AC%E5%9C%9F%E7%A1%AE%E8%AF%8A%23&Refer=top) `929.2K 🔥`
 1. [朱一龙起诉造谣者](https://s.weibo.com/weibo?q=%23%E6%9C%B1%E4%B8%80%E9%BE%99%E8%B5%B7%E8%AF%89%E9%80%A0%E8%B0%A3%E8%80%85%23&Refer=top) `915.6K 🔥`
 1. [武汉9级龙卷风多人受伤](https://s.weibo.com/weibo?q=%23%E6%AD%A6%E6%B1%899%E7%BA%A7%E9%BE%99%E5%8D%B7%E9%A3%8E%E5%A4%9A%E4%BA%BA%E5%8F%97%E4%BC%A4%23&Refer=top) `909.3K 🔥`
 1. [湖北恩施发现一安徽病例密接者](https://s.weibo.com/weibo?q=%23%E6%B9%96%E5%8C%97%E6%81%A9%E6%96%BD%E5%8F%91%E7%8E%B0%E4%B8%80%E5%AE%89%E5%BE%BD%E7%97%85%E4%BE%8B%E5%AF%86%E6%8E%A5%E8%80%85%23&Refer=top) `907.7K 🔥`
@@ -55,9 +56,8 @@
 1. [印度700余名教师协助选举后感染死亡](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6700%E4%BD%99%E5%90%8D%E6%95%99%E5%B8%88%E5%8D%8F%E5%8A%A9%E9%80%89%E4%B8%BE%E5%90%8E%E6%84%9F%E6%9F%93%E6%AD%BB%E4%BA%A1%23&Refer=top) `863.3K 🔥`
 1. [合肥1例确诊患者在兰州密接17人](https://s.weibo.com/weibo?q=%23%E5%90%88%E8%82%A51%E4%BE%8B%E7%A1%AE%E8%AF%8A%E6%82%A3%E8%80%85%E5%9C%A8%E5%85%B0%E5%B7%9E%E5%AF%86%E6%8E%A517%E4%BA%BA%23&Refer=top) `860.9K 🔥`
 1. [杨幂黑袍披风造型](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E5%B9%82%E9%BB%91%E8%A2%8D%E6%8A%AB%E9%A3%8E%E9%80%A0%E5%9E%8B%23&Refer=top) `856.6K 🔥`
-1. [六安共发现3名确诊7名无症状](https://s.weibo.com/weibo?q=%23%E5%85%AD%E5%AE%89%E5%85%B1%E5%8F%91%E7%8E%B03%E5%90%8D%E7%A1%AE%E8%AF%8A7%E5%90%8D%E6%97%A0%E7%97%87%E7%8A%B6%23&Refer=top) `800.2K 🔥`
 
-数据更新于 2021-05-15 19:51:33
+数据更新于 2021-05-15 19:57:13
 
 <!-- END -->
 
