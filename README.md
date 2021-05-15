@@ -25,7 +25,10 @@
 1. [刘雯情商](https://s.weibo.com/weibo?q=%23%E5%88%98%E9%9B%AF%E6%83%85%E5%95%86%23&Refer=top) `1.0M 🔥`
 1. [沈梦辰爆炸头](https://s.weibo.com/weibo?q=%23%E6%B2%88%E6%A2%A6%E8%BE%B0%E7%88%86%E7%82%B8%E5%A4%B4%23&Refer=top) `998.5K 🔥`
 1. [学校耗资800万购波音737教学](https://s.weibo.com/weibo?q=%23%E5%AD%A6%E6%A0%A1%E8%80%97%E8%B5%84800%E4%B8%87%E8%B4%AD%E6%B3%A2%E9%9F%B3737%E6%95%99%E5%AD%A6%23&Refer=top) `996.4K 🔥`
+1. [钟南山张伯礼喊你尽快打疫苗](https://s.weibo.com/weibo?q=%23%E9%92%9F%E5%8D%97%E5%B1%B1%E5%BC%A0%E4%BC%AF%E7%A4%BC%E5%96%8A%E4%BD%A0%E5%B0%BD%E5%BF%AB%E6%89%93%E7%96%AB%E8%8B%97%23&Refer=top) `826.7K 🔥`
+1. [上海暴雨](https://s.weibo.com/weibo?q=%E4%B8%8A%E6%B5%B7%E6%9A%B4%E9%9B%A8&Refer=top) `803.9K 🔥`
 1. [中国人对种菜有多执着](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E4%BA%BA%E5%AF%B9%E7%A7%8D%E8%8F%9C%E6%9C%89%E5%A4%9A%E6%89%A7%E7%9D%80%23&Refer=top) `743.3K 🔥`
+1. [沈阳确诊病例曾与12人去鲅鱼圈旅游](https://s.weibo.com/weibo?q=%E6%B2%88%E9%98%B3%E7%A1%AE%E8%AF%8A%E7%97%85%E4%BE%8B%E6%9B%BE%E4%B8%8E12%E4%BA%BA%E5%8E%BB%E9%B2%85%E9%B1%BC%E5%9C%88%E6%97%85%E6%B8%B8&Refer=top) `675.0K 🔥`
 1. [殷世航订婚现场](https://s.weibo.com/weibo?q=%23%E6%AE%B7%E4%B8%96%E8%88%AA%E8%AE%A2%E5%A9%9A%E7%8E%B0%E5%9C%BA%23&Refer=top) `666.5K 🔥`
 1. [没想到妈妈会给我道歉](https://s.weibo.com/weibo?q=%23%E6%B2%A1%E6%83%B3%E5%88%B0%E5%A6%88%E5%A6%88%E4%BC%9A%E7%BB%99%E6%88%91%E9%81%93%E6%AD%89%23&Refer=top) `646.4K 🔥`
 1. [娜扎穷哈式报幕](https://s.weibo.com/weibo?q=%23%E5%A8%9C%E6%89%8E%E7%A9%B7%E5%93%88%E5%BC%8F%E6%8A%A5%E5%B9%95%23&Refer=top) `633.6K 🔥`
@@ -38,7 +41,6 @@
 1. [成都世界大运会举办时间确定](https://s.weibo.com/weibo?q=%23%E6%88%90%E9%83%BD%E4%B8%96%E7%95%8C%E5%A4%A7%E8%BF%90%E4%BC%9A%E4%B8%BE%E5%8A%9E%E6%97%B6%E9%97%B4%E7%A1%AE%E5%AE%9A%23&Refer=top) `456.2K 🔥`
 1. [生孩子可以巩固婚姻吗](https://s.weibo.com/weibo?q=%23%E7%94%9F%E5%AD%A9%E5%AD%90%E5%8F%AF%E4%BB%A5%E5%B7%A9%E5%9B%BA%E5%A9%9A%E5%A7%BB%E5%90%97%23&Refer=top) `450.6K 🔥`
 1. [张艺兴金曲青春染色体改编专场](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%89%BA%E5%85%B4%E9%87%91%E6%9B%B2%E9%9D%92%E6%98%A5%E6%9F%93%E8%89%B2%E4%BD%93%E6%94%B9%E7%BC%96%E4%B8%93%E5%9C%BA%23&Refer=top) `440.7K 🔥`
-1. [上海暴雨](https://s.weibo.com/weibo?q=%E4%B8%8A%E6%B5%B7%E6%9A%B4%E9%9B%A8&Refer=top) `430.9K 🔥`
 1. [宫脇咲良将从HKT48毕业](https://s.weibo.com/weibo?q=%23%E5%AE%AB%E8%84%87%E5%92%B2%E8%89%AF%E5%B0%86%E4%BB%8EHKT48%E6%AF%95%E4%B8%9A%23&Refer=top) `424.9K 🔥`
 1. [快乐大本营](https://s.weibo.com/weibo?q=%E5%BF%AB%E4%B9%90%E5%A4%A7%E6%9C%AC%E8%90%A5&Refer=top) `368.3K 🔥`
 1. [邓孝慈ins自拍](https://s.weibo.com/weibo?q=%23%E9%82%93%E5%AD%9D%E6%85%88ins%E8%87%AA%E6%8B%8D%23&Refer=top) `312.5K 🔥`
@@ -47,17 +49,15 @@
 1. [女生穿西装可以有多帅](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E7%94%9F%E7%A9%BF%E8%A5%BF%E8%A3%85%E5%8F%AF%E4%BB%A5%E6%9C%89%E5%A4%9A%E5%B8%85%23&Refer=top) `290.5K 🔥`
 1. [金曲青春](https://s.weibo.com/weibo?q=%23%E9%87%91%E6%9B%B2%E9%9D%92%E6%98%A5%23&Refer=top) `284.5K 🔥`
 1. [龚俊否认是漏斗](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E5%90%A6%E8%AE%A4%E6%98%AF%E6%BC%8F%E6%96%97%23&Refer=top) `279.1K 🔥`
-1. [钟南山张伯礼喊你尽快打疫苗](https://s.weibo.com/weibo?q=%23%E9%92%9F%E5%8D%97%E5%B1%B1%E5%BC%A0%E4%BC%AF%E7%A4%BC%E5%96%8A%E4%BD%A0%E5%B0%BD%E5%BF%AB%E6%89%93%E7%96%AB%E8%8B%97%23&Refer=top) `270.5K 🔥`
 1. [如何巧妙拒绝加班](https://s.weibo.com/weibo?q=%23%E5%A6%82%E4%BD%95%E5%B7%A7%E5%A6%99%E6%8B%92%E7%BB%9D%E5%8A%A0%E7%8F%AD%23&Refer=top) `253.5K 🔥`
 1. [挑榴莲指南](https://s.weibo.com/weibo?q=%23%E6%8C%91%E6%A6%B4%E8%8E%B2%E6%8C%87%E5%8D%97%23&Refer=top) `236.0K 🔥`
 1. [辽宁新增4例本土确诊](https://s.weibo.com/weibo?q=%23%E8%BE%BD%E5%AE%81%E6%96%B0%E5%A2%9E4%E4%BE%8B%E6%9C%AC%E5%9C%9F%E7%A1%AE%E8%AF%8A%23&Refer=top) `235.5K 🔥`
+1. [内陆城市为何会出现龙卷风](https://s.weibo.com/weibo?q=%23%E5%86%85%E9%99%86%E5%9F%8E%E5%B8%82%E4%B8%BA%E4%BD%95%E4%BC%9A%E5%87%BA%E7%8E%B0%E9%BE%99%E5%8D%B7%E9%A3%8E%23&Refer=top) `226.8K 🔥`
+1. [印媒恶意抹黑中国制氧机质量有问题](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%AA%92%E6%81%B6%E6%84%8F%E6%8A%B9%E9%BB%91%E4%B8%AD%E5%9B%BD%E5%88%B6%E6%B0%A7%E6%9C%BA%E8%B4%A8%E9%87%8F%E6%9C%89%E9%97%AE%E9%A2%98%23&Refer=top) `225.5K 🔥`
 1. [禁忌女孩](https://s.weibo.com/weibo?q=%E7%A6%81%E5%BF%8C%E5%A5%B3%E5%AD%A9&Refer=top) `225.4K 🔥`
 1. [低估了小偷的敬业](https://s.weibo.com/weibo?q=%23%E4%BD%8E%E4%BC%B0%E4%BA%86%E5%B0%8F%E5%81%B7%E7%9A%84%E6%95%AC%E4%B8%9A%23&Refer=top) `223.5K 🔥`
-1. [中国97%的成年人患有牙结石](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD97%25%E7%9A%84%E6%88%90%E5%B9%B4%E4%BA%BA%E6%82%A3%E6%9C%89%E7%89%99%E7%BB%93%E7%9F%B3%23&Refer=top) `219.4K 🔥`
-1. [生活家](https://s.weibo.com/weibo?q=%E7%94%9F%E6%B4%BB%E5%AE%B6&Refer=top) `202.0K 🔥`
-1. [武汉暴雨](https://s.weibo.com/weibo?q=%23%E6%AD%A6%E6%B1%89%E6%9A%B4%E9%9B%A8%23&Refer=top) `200.0K 🔥`
 
-数据更新于 2021-05-16 07:29:07
+数据更新于 2021-05-16 07:50:23
 
 <!-- END -->
 
