@@ -41,6 +41,7 @@
 1. [宋亚轩刘耀文遛狗](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E4%BA%9A%E8%BD%A9%E5%88%98%E8%80%80%E6%96%87%E9%81%9B%E7%8B%97%23&Refer=top) `319.7K 🔥`
 1. [辽宁高考生考前14天须每日健康监测](https://s.weibo.com/weibo?q=%23%E8%BE%BD%E5%AE%81%E9%AB%98%E8%80%83%E7%94%9F%E8%80%83%E5%89%8D14%E5%A4%A9%E9%A1%BB%E6%AF%8F%E6%97%A5%E5%81%A5%E5%BA%B7%E7%9B%91%E6%B5%8B%23&Refer=top) `303.9K 🔥`
 1. [比特币行情](https://s.weibo.com/weibo?q=%E6%AF%94%E7%89%B9%E5%B8%81%E8%A1%8C%E6%83%85&Refer=top) `295.7K 🔥`
+1. [张新成背头](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%96%B0%E6%88%90%E8%83%8C%E5%A4%B4%23&Refer=top) `287.4K 🔥`
 1. [当你卖掉了前任送的东西](https://s.weibo.com/weibo?q=%23%E5%BD%93%E4%BD%A0%E5%8D%96%E6%8E%89%E4%BA%86%E5%89%8D%E4%BB%BB%E9%80%81%E7%9A%84%E4%B8%9C%E8%A5%BF%23&Refer=top) `285.4K 🔥`
 1. [李慧珍敷面膜爬山](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E6%85%A7%E7%8F%8D%E6%95%B7%E9%9D%A2%E8%86%9C%E7%88%AC%E5%B1%B1%23&Refer=top) `265.9K 🔥`
 1. [小腿肌肉阻断术](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E8%85%BF%E8%82%8C%E8%82%89%E9%98%BB%E6%96%AD%E6%9C%AF%23&Refer=top) `222.1K 🔥`
@@ -55,9 +56,8 @@
 1. [赛格大厦员工回忆撤离过程](https://s.weibo.com/weibo?q=%23%E8%B5%9B%E6%A0%BC%E5%A4%A7%E5%8E%A6%E5%91%98%E5%B7%A5%E5%9B%9E%E5%BF%86%E6%92%A4%E7%A6%BB%E8%BF%87%E7%A8%8B%23&Refer=top) `170.1K 🔥`
 1. [五月的青春](https://s.weibo.com/weibo?q=%E4%BA%94%E6%9C%88%E7%9A%84%E9%9D%92%E6%98%A5&Refer=top) `169.2K 🔥`
 1. [张彬彬机场被安保架着走](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%BD%AC%E5%BD%AC%E6%9C%BA%E5%9C%BA%E8%A2%AB%E5%AE%89%E4%BF%9D%E6%9E%B6%E7%9D%80%E8%B5%B0%23&Refer=top) `168.7K 🔥`
-1. [深圳应急管理回应赛格大厦摇晃](https://s.weibo.com/weibo?q=%23%E6%B7%B1%E5%9C%B3%E5%BA%94%E6%80%A5%E7%AE%A1%E7%90%86%E5%9B%9E%E5%BA%94%E8%B5%9B%E6%A0%BC%E5%A4%A7%E5%8E%A6%E6%91%87%E6%99%83%23&Refer=top) `166.4K 🔥`
 
-数据更新于 2021-05-19 00:11:54
+数据更新于 2021-05-19 00:53:55
 
 <!-- END -->
 
