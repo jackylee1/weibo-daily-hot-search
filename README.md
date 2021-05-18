@@ -48,6 +48,7 @@
 1. [台湾亚东医院发生院内感染](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E6%B9%BE%E4%BA%9A%E4%B8%9C%E5%8C%BB%E9%99%A2%E5%8F%91%E7%94%9F%E9%99%A2%E5%86%85%E6%84%9F%E6%9F%93%23&Refer=top) `1.1M 🔥`
 1. [每周工作超55小时或心脏病致死](https://s.weibo.com/weibo?q=%23%E6%AF%8F%E5%91%A8%E5%B7%A5%E4%BD%9C%E8%B6%8555%E5%B0%8F%E6%97%B6%E6%88%96%E5%BF%83%E8%84%8F%E7%97%85%E8%87%B4%E6%AD%BB%23&Refer=top) `1.1M 🔥`
 1. [美国向以色列出售7.35亿美元武器](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E5%90%91%E4%BB%A5%E8%89%B2%E5%88%97%E5%87%BA%E5%94%AE7.35%E4%BA%BF%E7%BE%8E%E5%85%83%E6%AD%A6%E5%99%A8%23&Refer=top) `1.1M 🔥`
+1. [大多数主播月收入3000至5000元](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%A4%9A%E6%95%B0%E4%B8%BB%E6%92%AD%E6%9C%88%E6%94%B6%E5%85%A53000%E8%87%B35000%E5%85%83%23&Refer=top) `1.1M 🔥`
 1. [GFriend将解散](https://s.weibo.com/weibo?q=%23GFriend%E5%B0%86%E8%A7%A3%E6%95%A3%23&Refer=top) `1.1M 🔥`
 1. [难听](https://s.weibo.com/weibo?q=%E9%9A%BE%E5%90%AC&Refer=top) `1.1M 🔥`
 1. [欢瑞被判支付青云志欠款600万](https://s.weibo.com/weibo?q=%23%E6%AC%A2%E7%91%9E%E8%A2%AB%E5%88%A4%E6%94%AF%E4%BB%98%E9%9D%92%E4%BA%91%E5%BF%97%E6%AC%A0%E6%AC%BE600%E4%B8%87%23&Refer=top) `1.1M 🔥`
@@ -55,9 +56,8 @@
 1. [赵立坚说上亿剂疫苗正在美国仓库闲置](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E7%AB%8B%E5%9D%9A%E8%AF%B4%E4%B8%8A%E4%BA%BF%E5%89%82%E7%96%AB%E8%8B%97%E6%AD%A3%E5%9C%A8%E7%BE%8E%E5%9B%BD%E4%BB%93%E5%BA%93%E9%97%B2%E7%BD%AE%23&Refer=top) `1.1M 🔥`
 1. [刘宇宁叫错徐开骋名字](https://s.weibo.com/weibo?q=%23%E5%88%98%E5%AE%87%E5%AE%81%E5%8F%AB%E9%94%99%E5%BE%90%E5%BC%80%E9%AA%8B%E5%90%8D%E5%AD%97%23&Refer=top) `1.1M 🔥`
 1. [康辉说疫苗接种速度还得加快](https://s.weibo.com/weibo?q=%23%E5%BA%B7%E8%BE%89%E8%AF%B4%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A7%8D%E9%80%9F%E5%BA%A6%E8%BF%98%E5%BE%97%E5%8A%A0%E5%BF%AB%23&Refer=top) `1.1M 🔥`
-1. [拜登公开呼吁巴以停火](https://s.weibo.com/weibo?q=%23%E6%8B%9C%E7%99%BB%E5%85%AC%E5%BC%80%E5%91%BC%E5%90%81%E5%B7%B4%E4%BB%A5%E5%81%9C%E7%81%AB%23&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-05-18 21:55:40
+数据更新于 2021-05-18 22:02:45
 
 <!-- END -->
 
