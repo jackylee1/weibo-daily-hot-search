@@ -57,7 +57,7 @@
 1. [中方对美国严重强迫劳动现象深表关切](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E6%96%B9%E5%AF%B9%E7%BE%8E%E5%9B%BD%E4%B8%A5%E9%87%8D%E5%BC%BA%E8%BF%AB%E5%8A%B3%E5%8A%A8%E7%8E%B0%E8%B1%A1%E6%B7%B1%E8%A1%A8%E5%85%B3%E5%88%87%23&Refer=top) `1.3M 🔥`
 1. [印度近千名医生在疫情中殉职](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E8%BF%91%E5%8D%83%E5%90%8D%E5%8C%BB%E7%94%9F%E5%9C%A8%E7%96%AB%E6%83%85%E4%B8%AD%E6%AE%89%E8%81%8C%23&Refer=top) `1.3M 🔥`
 
-数据更新于 2021-05-19 21:18:45
+数据更新于 2021-05-19 21:40:43
 
 <!-- END -->
 
