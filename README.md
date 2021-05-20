@@ -20,11 +20,11 @@
 1. [奥巴马被曝曾脏话攻击特朗普](https://s.weibo.com/weibo?q=%23%E5%A5%A5%E5%B7%B4%E9%A9%AC%E8%A2%AB%E6%9B%9D%E6%9B%BE%E8%84%8F%E8%AF%9D%E6%94%BB%E5%87%BB%E7%89%B9%E6%9C%97%E6%99%AE%23&Refer=top) `3.6M 🔥`
 1. [520](https://s.weibo.com/weibo?q=520&Refer=top) `3.5M 🔥`
 1. [刘宇垫肩](https://s.weibo.com/weibo?q=%23%E5%88%98%E5%AE%87%E5%9E%AB%E8%82%A9%23&Refer=top) `3.4M 🔥`
+1. [唐嫣生图](https://s.weibo.com/weibo?q=%23%E5%94%90%E5%AB%A3%E7%94%9F%E5%9B%BE%23&Refer=top) `3.3M 🔥`
 1. [618预售提前](https://s.weibo.com/weibo?q=%23618%E9%A2%84%E5%94%AE%E6%8F%90%E5%89%8D%23&Refer=top) `3.1M 🔥`
 1. [撤热搜](https://s.weibo.com/weibo?q=%E6%92%A4%E7%83%AD%E6%90%9C&Refer=top) `3.0M 🔥`
 1. [关晓彤工作室否认吃播假吃](https://s.weibo.com/weibo?q=%23%E5%85%B3%E6%99%93%E5%BD%A4%E5%B7%A5%E4%BD%9C%E5%AE%A4%E5%90%A6%E8%AE%A4%E5%90%83%E6%92%AD%E5%81%87%E5%90%83%23&Refer=top) `3.0M 🔥`
 1. [上海一老人将300万房产送给水果摊主](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E4%B8%80%E8%80%81%E4%BA%BA%E5%B0%86300%E4%B8%87%E6%88%BF%E4%BA%A7%E9%80%81%E7%BB%99%E6%B0%B4%E6%9E%9C%E6%91%8A%E4%B8%BB%23&Refer=top) `2.9M 🔥`
-1. [唐嫣生图](https://s.weibo.com/weibo?q=%23%E5%94%90%E5%AB%A3%E7%94%9F%E5%9B%BE%23&Refer=top) `2.8M 🔥`
 1. [端午放假三天不调休](https://s.weibo.com/weibo?q=%23%E7%AB%AF%E5%8D%88%E6%94%BE%E5%81%87%E4%B8%89%E5%A4%A9%E4%B8%8D%E8%B0%83%E4%BC%91%23&Refer=top) `2.8M 🔥`
 1. [钢铁直男送的520礼物](https://s.weibo.com/weibo?q=%23%E9%92%A2%E9%93%81%E7%9B%B4%E7%94%B7%E9%80%81%E7%9A%84520%E7%A4%BC%E7%89%A9%23&Refer=top) `2.8M 🔥`
 1. [20年前硕士论文称赛格大厦边设计边施工](https://s.weibo.com/weibo?q=%2320%E5%B9%B4%E5%89%8D%E7%A1%95%E5%A3%AB%E8%AE%BA%E6%96%87%E7%A7%B0%E8%B5%9B%E6%A0%BC%E5%A4%A7%E5%8E%A6%E8%BE%B9%E8%AE%BE%E8%AE%A1%E8%BE%B9%E6%96%BD%E5%B7%A5%23&Refer=top) `2.7M 🔥`
@@ -57,7 +57,7 @@
 1. [广州查获50只巨人恐蚁](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E6%9F%A5%E8%8E%B750%E5%8F%AA%E5%B7%A8%E4%BA%BA%E6%81%90%E8%9A%81%23&Refer=top) `1.4M 🔥`
 1. [易烊千玺 无聊一天出门走走](https://s.weibo.com/weibo?q=%E6%98%93%E7%83%8A%E5%8D%83%E7%8E%BA%20%E6%97%A0%E8%81%8A%E4%B8%80%E5%A4%A9%E5%87%BA%E9%97%A8%E8%B5%B0%E8%B5%B0&Refer=top) `1.3M 🔥`
 
-数据更新于 2021-05-20 23:24:24
+数据更新于 2021-05-20 23:46:52
 
 <!-- END -->
 
