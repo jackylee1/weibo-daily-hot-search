@@ -57,7 +57,7 @@
 1. [美国107岁黑人奶奶讲述种族大屠杀经历](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD107%E5%B2%81%E9%BB%91%E4%BA%BA%E5%A5%B6%E5%A5%B6%E8%AE%B2%E8%BF%B0%E7%A7%8D%E6%97%8F%E5%A4%A7%E5%B1%A0%E6%9D%80%E7%BB%8F%E5%8E%86%23&Refer=top) `1.1M 🔥`
 1. [北京地铁可支付宝刷码乘车](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E5%9C%B0%E9%93%81%E5%8F%AF%E6%94%AF%E4%BB%98%E5%AE%9D%E5%88%B7%E7%A0%81%E4%B9%98%E8%BD%A6%23&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-05-20 18:59:45
+数据更新于 2021-05-20 19:03:22
 
 <!-- END -->
 
