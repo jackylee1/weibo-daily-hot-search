@@ -17,8 +17,8 @@
 1. [民政部回复网友安徽六安读Lu](https://s.weibo.com/weibo?q=%23%E6%B0%91%E6%94%BF%E9%83%A8%E5%9B%9E%E5%A4%8D%E7%BD%91%E5%8F%8B%E5%AE%89%E5%BE%BD%E5%85%AD%E5%AE%89%E8%AF%BBLu%23&Refer=top) `3.9M 🔥`
 1. [奥巴马被曝曾脏话攻击特朗普](https://s.weibo.com/weibo?q=%23%E5%A5%A5%E5%B7%B4%E9%A9%AC%E8%A2%AB%E6%9B%9D%E6%9B%BE%E8%84%8F%E8%AF%9D%E6%94%BB%E5%87%BB%E7%89%B9%E6%9C%97%E6%99%AE%23&Refer=top) `3.6M 🔥`
 1. [520](https://s.weibo.com/weibo?q=520&Refer=top) `3.5M 🔥`
+1. [刘宇垫肩](https://s.weibo.com/weibo?q=%23%E5%88%98%E5%AE%87%E5%9E%AB%E8%82%A9%23&Refer=top) `3.3M 🔥`
 1. [618预售提前](https://s.weibo.com/weibo?q=%23618%E9%A2%84%E5%94%AE%E6%8F%90%E5%89%8D%23&Refer=top) `3.1M 🔥`
-1. [刘宇垫肩](https://s.weibo.com/weibo?q=%23%E5%88%98%E5%AE%87%E5%9E%AB%E8%82%A9%23&Refer=top) `3.1M 🔥`
 1. [撤热搜](https://s.weibo.com/weibo?q=%E6%92%A4%E7%83%AD%E6%90%9C&Refer=top) `3.0M 🔥`
 1. [关晓彤工作室否认吃播假吃](https://s.weibo.com/weibo?q=%23%E5%85%B3%E6%99%93%E5%BD%A4%E5%B7%A5%E4%BD%9C%E5%AE%A4%E5%90%A6%E8%AE%A4%E5%90%83%E6%92%AD%E5%81%87%E5%90%83%23&Refer=top) `3.0M 🔥`
 1. [上海一老人将300万房产送给水果摊主](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E4%B8%80%E8%80%81%E4%BA%BA%E5%B0%86300%E4%B8%87%E6%88%BF%E4%BA%A7%E9%80%81%E7%BB%99%E6%B0%B4%E6%9E%9C%E6%91%8A%E4%B8%BB%23&Refer=top) `2.9M 🔥`
@@ -57,7 +57,7 @@
 1. [赵立坚提到520说祝融号带着爱继续前行](https://s.weibo.com/weibo?q=%E8%B5%B5%E7%AB%8B%E5%9D%9A%E6%8F%90%E5%88%B0520%E8%AF%B4%E7%A5%9D%E8%9E%8D%E5%8F%B7%E5%B8%A6%E7%9D%80%E7%88%B1%E7%BB%A7%E7%BB%AD%E5%89%8D%E8%A1%8C&Refer=top) `1.2M 🔥`
 1. [鹿晗出演邓紫棋新歌MV](https://s.weibo.com/weibo?q=%23%E9%B9%BF%E6%99%97%E5%87%BA%E6%BC%94%E9%82%93%E7%B4%AB%E6%A3%8B%E6%96%B0%E6%AD%8CMV%23&Refer=top) `1.2M 🔥`
 
-数据更新于 2021-05-20 21:16:12
+数据更新于 2021-05-20 21:21:00
 
 <!-- END -->
 
