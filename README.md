@@ -57,7 +57,7 @@
 1. [安徽辽宁病例的病毒基因序列完全相同](https://s.weibo.com/weibo?q=%23%E5%AE%89%E5%BE%BD%E8%BE%BD%E5%AE%81%E7%97%85%E4%BE%8B%E7%9A%84%E7%97%85%E6%AF%92%E5%9F%BA%E5%9B%A0%E5%BA%8F%E5%88%97%E5%AE%8C%E5%85%A8%E7%9B%B8%E5%90%8C%23&Refer=top) `1.3M 🔥`
 1. [我国现有新冠疫苗可应对印度变异株](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD%E7%8E%B0%E6%9C%89%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E5%8F%AF%E5%BA%94%E5%AF%B9%E5%8D%B0%E5%BA%A6%E5%8F%98%E5%BC%82%E6%A0%AA%23&Refer=top) `1.3M 🔥`
 
-数据更新于 2021-05-20 22:52:26
+数据更新于 2021-05-20 22:58:07
 
 <!-- END -->
 
