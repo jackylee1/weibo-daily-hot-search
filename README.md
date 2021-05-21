@@ -10,8 +10,8 @@
 1. [大理漾濞6.4级地震](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E7%90%86%E6%BC%BE%E6%BF%9E6.4%E7%BA%A7%E5%9C%B0%E9%9C%87%23&Refer=top) `3.2M 🔥`
 1. [快本导演回应谁红谁上节目的争议](https://s.weibo.com/weibo?q=%23%E5%BF%AB%E6%9C%AC%E5%AF%BC%E6%BC%94%E5%9B%9E%E5%BA%94%E8%B0%81%E7%BA%A2%E8%B0%81%E4%B8%8A%E8%8A%82%E7%9B%AE%E7%9A%84%E4%BA%89%E8%AE%AE%23&Refer=top) `1.8M 🔥`
 1. [难听](https://s.weibo.com/weibo?q=%23%E9%9A%BE%E5%90%AC%23&Refer=top) `1.6M 🔥`
+1. [青海发生7.4级地震](https://s.weibo.com/weibo?q=%23%E9%9D%92%E6%B5%B7%E5%8F%91%E7%94%9F7.4%E7%BA%A7%E5%9C%B0%E9%9C%87%23&Refer=top) `1.6M 🔥`
 1. [林俊杰拯救了我的耳朵](https://s.weibo.com/weibo?q=%23%E6%9E%97%E4%BF%8A%E6%9D%B0%E6%8B%AF%E6%95%91%E4%BA%86%E6%88%91%E7%9A%84%E8%80%B3%E6%9C%B5%23&Refer=top) `1.4M 🔥`
-1. [青海发生7.4级地震](https://s.weibo.com/weibo?q=%23%E9%9D%92%E6%B5%B7%E5%8F%91%E7%94%9F7.4%E7%BA%A7%E5%9C%B0%E9%9C%87%23&Refer=top) `1.4M 🔥`
 1. [刘烨助理](https://s.weibo.com/weibo?q=%23%E5%88%98%E7%83%A8%E5%8A%A9%E7%90%86%23&Refer=top) `1.3M 🔥`
 1. [云南大理连发多次地震](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E5%A4%A7%E7%90%86%E8%BF%9E%E5%8F%91%E5%A4%9A%E6%AC%A1%E5%9C%B0%E9%9C%87%23&Refer=top) `984.5K 🔥`
 1. [泰国一县打疫苗抽奖送牛](https://s.weibo.com/weibo?q=%23%E6%B3%B0%E5%9B%BD%E4%B8%80%E5%8E%BF%E6%89%93%E7%96%AB%E8%8B%97%E6%8A%BD%E5%A5%96%E9%80%81%E7%89%9B%23&Refer=top) `898.5K 🔥`
@@ -57,7 +57,7 @@
 1. [女子被骗22万与骗子网恋将其骗回国](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E8%A2%AB%E9%AA%9722%E4%B8%87%E4%B8%8E%E9%AA%97%E5%AD%90%E7%BD%91%E6%81%8B%E5%B0%86%E5%85%B6%E9%AA%97%E5%9B%9E%E5%9B%BD%23&Refer=top) `250.2K 🔥`
 1. [青海地震](https://s.weibo.com/weibo?q=%E9%9D%92%E6%B5%B7%E5%9C%B0%E9%9C%87&Refer=top) `249.9K 🔥`
 
-数据更新于 2021-05-22 06:39:31
+数据更新于 2021-05-22 06:53:50
 
 <!-- END -->
 
