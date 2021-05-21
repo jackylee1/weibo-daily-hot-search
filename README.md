@@ -11,7 +11,7 @@
 1. [快本导演回应谁红谁上节目的争议](https://s.weibo.com/weibo?q=%23%E5%BF%AB%E6%9C%AC%E5%AF%BC%E6%BC%94%E5%9B%9E%E5%BA%94%E8%B0%81%E7%BA%A2%E8%B0%81%E4%B8%8A%E8%8A%82%E7%9B%AE%E7%9A%84%E4%BA%89%E8%AE%AE%23&Refer=top) `5.0M 🔥`
 1. [张国立 封路](https://s.weibo.com/weibo?q=%E5%BC%A0%E5%9B%BD%E7%AB%8B%20%E5%B0%81%E8%B7%AF&Refer=top) `4.4M 🔥`
 1. [林小清已被医院解聘](https://s.weibo.com/weibo?q=%23%E6%9E%97%E5%B0%8F%E6%B8%85%E5%B7%B2%E8%A2%AB%E5%8C%BB%E9%99%A2%E8%A7%A3%E8%81%98%23&Refer=top) `3.5M 🔥`
-1. [大理漾濞6.4级地震](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E7%90%86%E6%BC%BE%E6%BF%9E6.4%E7%BA%A7%E5%9C%B0%E9%9C%87%23&Refer=top) `3.2M 🔥`
+1. [大理漾濞6.4级地震](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E7%90%86%E6%BC%BE%E6%BF%9E6.4%E7%BA%A7%E5%9C%B0%E9%9C%87%23&Refer=top) `3.5M 🔥`
 1. [赵奕欢 领证之前都不能叫老公](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E5%A5%95%E6%AC%A2%20%E9%A2%86%E8%AF%81%E4%B9%8B%E5%89%8D%E9%83%BD%E4%B8%8D%E8%83%BD%E5%8F%AB%E8%80%81%E5%85%AC%23&Refer=top) `3.1M 🔥`
 1. [郑恺苗苗庆祝结婚一周年](https://s.weibo.com/weibo?q=%23%E9%83%91%E6%81%BA%E8%8B%97%E8%8B%97%E5%BA%86%E7%A5%9D%E7%BB%93%E5%A9%9A%E4%B8%80%E5%91%A8%E5%B9%B4%23&Refer=top) `3.1M 🔥`
 1. [唐嫣生图](https://s.weibo.com/weibo?q=%23%E5%94%90%E5%AB%A3%E7%94%9F%E5%9B%BE%23&Refer=top) `3.0M 🔥`
@@ -36,9 +36,9 @@
 1. [我要我们在一起](https://s.weibo.com/weibo?q=%E6%88%91%E8%A6%81%E6%88%91%E4%BB%AC%E5%9C%A8%E4%B8%80%E8%B5%B7&Refer=top) `1.7M 🔥`
 1. [张桐没入围 离谱](https://s.weibo.com/weibo?q=%E5%BC%A0%E6%A1%90%E6%B2%A1%E5%85%A5%E5%9B%B4%20%E7%A6%BB%E8%B0%B1&Refer=top) `1.7M 🔥`
 1. [沈阳大爷大妈把头挂树上锻炼](https://s.weibo.com/weibo?q=%23%E6%B2%88%E9%98%B3%E5%A4%A7%E7%88%B7%E5%A4%A7%E5%A6%88%E6%8A%8A%E5%A4%B4%E6%8C%82%E6%A0%91%E4%B8%8A%E9%94%BB%E7%82%BC%23&Refer=top) `1.7M 🔥`
+1. [林俊杰拯救了我的耳朵](https://s.weibo.com/weibo?q=%23%E6%9E%97%E4%BF%8A%E6%9D%B0%E6%8B%AF%E6%95%91%E4%BA%86%E6%88%91%E7%9A%84%E8%80%B3%E6%9C%B5%23&Refer=top) `1.7M 🔥`
 1. [广州新增确诊病例行程公布](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E6%96%B0%E5%A2%9E%E7%A1%AE%E8%AF%8A%E7%97%85%E4%BE%8B%E8%A1%8C%E7%A8%8B%E5%85%AC%E5%B8%83%23&Refer=top) `1.7M 🔥`
 1. [山东一酒店入住1例可疑核酸弱阳性人员](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E4%B8%9C%E4%B8%80%E9%85%92%E5%BA%97%E5%85%A5%E4%BD%8F1%E4%BE%8B%E5%8F%AF%E7%96%91%E6%A0%B8%E9%85%B8%E5%BC%B1%E9%98%B3%E6%80%A7%E4%BA%BA%E5%91%98%23&Refer=top) `1.6M 🔥`
-1. [林俊杰拯救了我的耳朵](https://s.weibo.com/weibo?q=%23%E6%9E%97%E4%BF%8A%E6%9D%B0%E6%8B%AF%E6%95%91%E4%BA%86%E6%88%91%E7%9A%84%E8%80%B3%E6%9C%B5%23&Refer=top) `1.6M 🔥`
 1. [向往的生活](https://s.weibo.com/weibo?q=%E5%90%91%E5%BE%80%E7%9A%84%E7%94%9F%E6%B4%BB&Refer=top) `1.6M 🔥`
 1. [广州查获50只巨人恐蚁](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E6%9F%A5%E8%8E%B750%E5%8F%AA%E5%B7%A8%E4%BA%BA%E6%81%90%E8%9A%81%23&Refer=top) `1.5M 🔥`
 1. [3名中企回国人员篡改检测阳性报告](https://s.weibo.com/weibo?q=%233%E5%90%8D%E4%B8%AD%E4%BC%81%E5%9B%9E%E5%9B%BD%E4%BA%BA%E5%91%98%E7%AF%A1%E6%94%B9%E6%A3%80%E6%B5%8B%E9%98%B3%E6%80%A7%E6%8A%A5%E5%91%8A%23&Refer=top) `1.5M 🔥`
@@ -57,7 +57,7 @@
 1. [默读剧组 扰民](https://s.weibo.com/weibo?q=%E9%BB%98%E8%AF%BB%E5%89%A7%E7%BB%84%20%E6%89%B0%E6%B0%91&Refer=top) `1.3M 🔥`
 1. [白玉兰入围名单](https://s.weibo.com/weibo?q=%23%E7%99%BD%E7%8E%89%E5%85%B0%E5%85%A5%E5%9B%B4%E5%90%8D%E5%8D%95%23&Refer=top) `1.3M 🔥`
 
-数据更新于 2021-05-21 22:38:24
+数据更新于 2021-05-21 22:49:06
 
 <!-- END -->
 
