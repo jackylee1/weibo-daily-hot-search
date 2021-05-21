@@ -13,6 +13,7 @@
 1. [林俊杰拯救了我的耳朵](https://s.weibo.com/weibo?q=%23%E6%9E%97%E4%BF%8A%E6%9D%B0%E6%8B%AF%E6%95%91%E4%BA%86%E6%88%91%E7%9A%84%E8%80%B3%E6%9C%B5%23&Refer=top) `1.4M 🔥`
 1. [刘烨助理](https://s.weibo.com/weibo?q=%23%E5%88%98%E7%83%A8%E5%8A%A9%E7%90%86%23&Refer=top) `1.3M 🔥`
 1. [云南大理连发多次地震](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E5%A4%A7%E7%90%86%E8%BF%9E%E5%8F%91%E5%A4%9A%E6%AC%A1%E5%9C%B0%E9%9C%87%23&Refer=top) `984.5K 🔥`
+1. [青海发生7.4级地震](https://s.weibo.com/weibo?q=%23%E9%9D%92%E6%B5%B7%E5%8F%91%E7%94%9F7.4%E7%BA%A7%E5%9C%B0%E9%9C%87%23&Refer=top) `931.9K 🔥`
 1. [泰国一县打疫苗抽奖送牛](https://s.weibo.com/weibo?q=%23%E6%B3%B0%E5%9B%BD%E4%B8%80%E5%8E%BF%E6%89%93%E7%96%AB%E8%8B%97%E6%8A%BD%E5%A5%96%E9%80%81%E7%89%9B%23&Refer=top) `898.5K 🔥`
 1. [向往的生活](https://s.weibo.com/weibo?q=%E5%90%91%E5%BE%80%E7%9A%84%E7%94%9F%E6%B4%BB&Refer=top) `891.2K 🔥`
 1. [比特币大跌](https://s.weibo.com/weibo?q=%23%E6%AF%94%E7%89%B9%E5%B8%81%E5%A4%A7%E8%B7%8C%23&Refer=top) `889.0K 🔥`
@@ -25,7 +26,6 @@
 1. [地震预警](https://s.weibo.com/weibo?q=%E5%9C%B0%E9%9C%87%E9%A2%84%E8%AD%A6&Refer=top) `773.0K 🔥`
 1. [2幼童被锁车内脱水路人砸窗施救](https://s.weibo.com/weibo?q=%232%E5%B9%BC%E7%AB%A5%E8%A2%AB%E9%94%81%E8%BD%A6%E5%86%85%E8%84%B1%E6%B0%B4%E8%B7%AF%E4%BA%BA%E7%A0%B8%E7%AA%97%E6%96%BD%E6%95%91%23&Refer=top) `763.8K 🔥`
 1. [湖北一男子患空调病生命垂危](https://s.weibo.com/weibo?q=%23%E6%B9%96%E5%8C%97%E4%B8%80%E7%94%B7%E5%AD%90%E6%82%A3%E7%A9%BA%E8%B0%83%E7%97%85%E7%94%9F%E5%91%BD%E5%9E%82%E5%8D%B1%23&Refer=top) `761.0K 🔥`
-1. [青海发生7.4级地震](https://s.weibo.com/weibo?q=%23%E9%9D%92%E6%B5%B7%E5%8F%91%E7%94%9F7.4%E7%BA%A7%E5%9C%B0%E9%9C%87%23&Refer=top) `751.8K 🔥`
 1. [52只企鹅创收2188万](https://s.weibo.com/weibo?q=%2352%E5%8F%AA%E4%BC%81%E9%B9%85%E5%88%9B%E6%94%B62188%E4%B8%87%23&Refer=top) `743.1K 🔥`
 1. [我的姐姐](https://s.weibo.com/weibo?q=%E6%88%91%E7%9A%84%E5%A7%90%E5%A7%90&Refer=top) `730.6K 🔥`
 1. [张雨绮对利路修说你保护我一下](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E9%9B%A8%E7%BB%AE%E5%AF%B9%E5%88%A9%E8%B7%AF%E4%BF%AE%E8%AF%B4%E4%BD%A0%E4%BF%9D%E6%8A%A4%E6%88%91%E4%B8%80%E4%B8%8B%23&Refer=top) `684.3K 🔥`
@@ -57,7 +57,7 @@
 1. [女子被骗22万与骗子网恋将其骗回国](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E8%A2%AB%E9%AA%9722%E4%B8%87%E4%B8%8E%E9%AA%97%E5%AD%90%E7%BD%91%E6%81%8B%E5%B0%86%E5%85%B6%E9%AA%97%E5%9B%9E%E5%9B%BD%23&Refer=top) `250.2K 🔥`
 1. [青海地震](https://s.weibo.com/weibo?q=%E9%9D%92%E6%B5%B7%E5%9C%B0%E9%9C%87&Refer=top) `249.9K 🔥`
 
-数据更新于 2021-05-22 06:02:58
+数据更新于 2021-05-22 06:15:41
 
 <!-- END -->
 
