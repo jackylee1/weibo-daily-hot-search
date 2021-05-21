@@ -38,6 +38,7 @@
 1. [国防部回应美舰非法闯入我西沙领海](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E9%98%B2%E9%83%A8%E5%9B%9E%E5%BA%94%E7%BE%8E%E8%88%B0%E9%9D%9E%E6%B3%95%E9%97%AF%E5%85%A5%E6%88%91%E8%A5%BF%E6%B2%99%E9%A2%86%E6%B5%B7%23&Refer=top) `1.3M 🔥`
 1. [王子文坐吴永恩肩上自拍](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E5%AD%90%E6%96%87%E5%9D%90%E5%90%B4%E6%B0%B8%E6%81%A9%E8%82%A9%E4%B8%8A%E8%87%AA%E6%8B%8D%23&Refer=top) `1.2M 🔥`
 1. [Kingdom](https://s.weibo.com/weibo?q=Kingdom&Refer=top) `1.2M 🔥`
+1. [安徽新增感染均由摄影培训引起](https://s.weibo.com/weibo?q=%23%E5%AE%89%E5%BE%BD%E6%96%B0%E5%A2%9E%E6%84%9F%E6%9F%93%E5%9D%87%E7%94%B1%E6%91%84%E5%BD%B1%E5%9F%B9%E8%AE%AD%E5%BC%95%E8%B5%B7%23&Refer=top) `1.2M 🔥`
 1. [中疾控回应疫苗中发现絮状物](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E7%96%BE%E6%8E%A7%E5%9B%9E%E5%BA%94%E7%96%AB%E8%8B%97%E4%B8%AD%E5%8F%91%E7%8E%B0%E7%B5%AE%E7%8A%B6%E7%89%A9%23&Refer=top) `1.2M 🔥`
 1. [以色列与哈马斯宣布停火](https://s.weibo.com/weibo?q=%23%E4%BB%A5%E8%89%B2%E5%88%97%E4%B8%8E%E5%93%88%E9%A9%AC%E6%96%AF%E5%AE%A3%E5%B8%83%E5%81%9C%E7%81%AB%23&Refer=top) `1.2M 🔥`
 1. [女大学生打耳洞差点导致瘫痪](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%A4%A7%E5%AD%A6%E7%94%9F%E6%89%93%E8%80%B3%E6%B4%9E%E5%B7%AE%E7%82%B9%E5%AF%BC%E8%87%B4%E7%98%AB%E7%97%AA%23&Refer=top) `1.2M 🔥`
@@ -55,9 +56,8 @@
 1. [约每5个中小学生就有1个小胖墩](https://s.weibo.com/weibo?q=%23%E7%BA%A6%E6%AF%8F5%E4%B8%AA%E4%B8%AD%E5%B0%8F%E5%AD%A6%E7%94%9F%E5%B0%B1%E6%9C%891%E4%B8%AA%E5%B0%8F%E8%83%96%E5%A2%A9%23&Refer=top) `982.0K 🔥`
 1. [黄晓明生图状态](https://s.weibo.com/weibo?q=%23%E9%BB%84%E6%99%93%E6%98%8E%E7%94%9F%E5%9B%BE%E7%8A%B6%E6%80%81%23&Refer=top) `976.0K 🔥`
 1. [521](https://s.weibo.com/weibo?q=521&Refer=top) `973.9K 🔥`
-1. [欧阳娜娜王鹤棣祝绪丹偶遇](https://s.weibo.com/weibo?q=%23%E6%AC%A7%E9%98%B3%E5%A8%9C%E5%A8%9C%E7%8E%8B%E9%B9%A4%E6%A3%A3%E7%A5%9D%E7%BB%AA%E4%B8%B9%E5%81%B6%E9%81%87%23&Refer=top) `956.4K 🔥`
 
-数据更新于 2021-05-21 18:04:53
+数据更新于 2021-05-21 18:28:03
 
 <!-- END -->
 
