@@ -9,12 +9,12 @@
 1. [精灵耳 整容](https://s.weibo.com/weibo?q=%E7%B2%BE%E7%81%B5%E8%80%B3%20%E6%95%B4%E5%AE%B9&Refer=top) `5.3M 🔥`
 1. [黄奕女儿曾被前夫诱导拍视频](https://s.weibo.com/weibo?q=%23%E9%BB%84%E5%A5%95%E5%A5%B3%E5%84%BF%E6%9B%BE%E8%A2%AB%E5%89%8D%E5%A4%AB%E8%AF%B1%E5%AF%BC%E6%8B%8D%E8%A7%86%E9%A2%91%23&Refer=top) `5.2M 🔥`
 1. [张国立 封路](https://s.weibo.com/weibo?q=%E5%BC%A0%E5%9B%BD%E7%AB%8B%20%E5%B0%81%E8%B7%AF&Refer=top) `4.4M 🔥`
+1. [快本导演回应谁红谁上节目的争议](https://s.weibo.com/weibo?q=%23%E5%BF%AB%E6%9C%AC%E5%AF%BC%E6%BC%94%E5%9B%9E%E5%BA%94%E8%B0%81%E7%BA%A2%E8%B0%81%E4%B8%8A%E8%8A%82%E7%9B%AE%E7%9A%84%E4%BA%89%E8%AE%AE%23&Refer=top) `4.4M 🔥`
 1. [林小清已被医院解聘](https://s.weibo.com/weibo?q=%23%E6%9E%97%E5%B0%8F%E6%B8%85%E5%B7%B2%E8%A2%AB%E5%8C%BB%E9%99%A2%E8%A7%A3%E8%81%98%23&Refer=top) `3.5M 🔥`
 1. [赵奕欢 领证之前都不能叫老公](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E5%A5%95%E6%AC%A2%20%E9%A2%86%E8%AF%81%E4%B9%8B%E5%89%8D%E9%83%BD%E4%B8%8D%E8%83%BD%E5%8F%AB%E8%80%81%E5%85%AC%23&Refer=top) `3.1M 🔥`
 1. [郑恺苗苗庆祝结婚一周年](https://s.weibo.com/weibo?q=%23%E9%83%91%E6%81%BA%E8%8B%97%E8%8B%97%E5%BA%86%E7%A5%9D%E7%BB%93%E5%A9%9A%E4%B8%80%E5%91%A8%E5%B9%B4%23&Refer=top) `3.1M 🔥`
 1. [唐嫣生图](https://s.weibo.com/weibo?q=%23%E5%94%90%E5%AB%A3%E7%94%9F%E5%9B%BE%23&Refer=top) `3.0M 🔥`
 1. [张哲瀚状态](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%93%B2%E7%80%9A%E7%8A%B6%E6%80%81%23&Refer=top) `2.9M 🔥`
-1. [快本导演回应谁红谁上节目的争议](https://s.weibo.com/weibo?q=%23%E5%BF%AB%E6%9C%AC%E5%AF%BC%E6%BC%94%E5%9B%9E%E5%BA%94%E8%B0%81%E7%BA%A2%E8%B0%81%E4%B8%8A%E8%8A%82%E7%9B%AE%E7%9A%84%E4%BA%89%E8%AE%AE%23&Refer=top) `2.9M 🔥`
 1. [甄嬛传或成白玉兰最大赢家](https://s.weibo.com/weibo?q=%23%E7%94%84%E5%AC%9B%E4%BC%A0%E6%88%96%E6%88%90%E7%99%BD%E7%8E%89%E5%85%B0%E6%9C%80%E5%A4%A7%E8%B5%A2%E5%AE%B6%23&Refer=top) `2.6M 🔥`
 1. [金晨李斯丹妮挽手散步](https://s.weibo.com/weibo?q=%E9%87%91%E6%99%A8%E6%9D%8E%E6%96%AF%E4%B8%B9%E5%A6%AE%E6%8C%BD%E6%89%8B%E6%95%A3%E6%AD%A5&Refer=top) `2.4M 🔥`
 1. [广州荔湾发现1例核酸疑似阳性](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E8%8D%94%E6%B9%BE%E5%8F%91%E7%8E%B01%E4%BE%8B%E6%A0%B8%E9%85%B8%E7%96%91%E4%BC%BC%E9%98%B3%E6%80%A7%23&Refer=top) `2.3M 🔥`
@@ -57,7 +57,7 @@
 1. [王子文坐吴永恩肩上自拍](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E5%AD%90%E6%96%87%E5%9D%90%E5%90%B4%E6%B0%B8%E6%81%A9%E8%82%A9%E4%B8%8A%E8%87%AA%E6%8B%8D%23&Refer=top) `1.2M 🔥`
 1. [Kingdom](https://s.weibo.com/weibo?q=Kingdom&Refer=top) `1.2M 🔥`
 
-数据更新于 2021-05-21 21:46:42
+数据更新于 2021-05-21 21:59:27
 
 <!-- END -->
 
