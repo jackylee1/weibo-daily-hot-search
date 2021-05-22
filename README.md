@@ -9,6 +9,7 @@
 1. [袁隆平去世](https://s.weibo.com/weibo?q=%23%E8%A2%81%E9%9A%86%E5%B9%B3%E5%8E%BB%E4%B8%96%23&Refer=top) `51.4M 🔥`
 1. [秘书称袁隆平目前在医院](https://s.weibo.com/weibo?q=%23%E7%A7%98%E4%B9%A6%E7%A7%B0%E8%A2%81%E9%9A%86%E5%B9%B3%E7%9B%AE%E5%89%8D%E5%9C%A8%E5%8C%BB%E9%99%A2%23&Refer=top) `31.3M 🔥`
 1. [袁隆平](https://s.weibo.com/weibo?q=%E8%A2%81%E9%9A%86%E5%B9%B3&Refer=top) `18.5M 🔥`
+1. [袁隆平逝世](https://s.weibo.com/weibo?q=%23%E8%A2%81%E9%9A%86%E5%B9%B3%E9%80%9D%E4%B8%96%23&Refer=top) `13.1M 🔥`
 1. [CGTN道歉](https://s.weibo.com/weibo?q=%23CGTN%E9%81%93%E6%AD%89%23&Refer=top) `9.0M 🔥`
 1. [玉树地震时你们来了现在换我们来](https://s.weibo.com/weibo?q=%23%E7%8E%89%E6%A0%91%E5%9C%B0%E9%9C%87%E6%97%B6%E4%BD%A0%E4%BB%AC%E6%9D%A5%E4%BA%86%E7%8E%B0%E5%9C%A8%E6%8D%A2%E6%88%91%E4%BB%AC%E6%9D%A5%23&Refer=top) `7.4M 🔥`
 1. [青海发生7.4级地震](https://s.weibo.com/weibo?q=%23%E9%9D%92%E6%B5%B7%E5%8F%91%E7%94%9F7.4%E7%BA%A7%E5%9C%B0%E9%9C%87%23&Refer=top) `6.1M 🔥`
@@ -55,9 +56,8 @@
 1. [我的姐姐](https://s.weibo.com/weibo?q=%E6%88%91%E7%9A%84%E5%A7%90%E5%A7%90&Refer=top) `730.6K 🔥`
 1. [文在寅访美与拜登会面](https://s.weibo.com/weibo?q=%23%E6%96%87%E5%9C%A8%E5%AF%85%E8%AE%BF%E7%BE%8E%E4%B8%8E%E6%8B%9C%E7%99%BB%E4%BC%9A%E9%9D%A2%23&Refer=top) `724.0K 🔥`
 1. [向往的生活预告](https://s.weibo.com/weibo?q=%23%E5%90%91%E5%BE%80%E7%9A%84%E7%94%9F%E6%B4%BB%E9%A2%84%E5%91%8A%23&Refer=top) `716.5K 🔥`
-1. [张雨绮对利路修说你保护我一下](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E9%9B%A8%E7%BB%AE%E5%AF%B9%E5%88%A9%E8%B7%AF%E4%BF%AE%E8%AF%B4%E4%BD%A0%E4%BF%9D%E6%8A%A4%E6%88%91%E4%B8%80%E4%B8%8B%23&Refer=top) `684.3K 🔥`
 
-数据更新于 2021-05-22 13:56:57
+数据更新于 2021-05-22 14:04:47
 
 <!-- END -->
 
