@@ -39,12 +39,12 @@
 1. [快本导演回应谁红谁上节目的争议](https://s.weibo.com/weibo?q=%23%E5%BF%AB%E6%9C%AC%E5%AF%BC%E6%BC%94%E5%9B%9E%E5%BA%94%E8%B0%81%E7%BA%A2%E8%B0%81%E4%B8%8A%E8%8A%82%E7%9B%AE%E7%9A%84%E4%BA%89%E8%AE%AE%23&Refer=top) `1.8M 🔥`
 1. [他想等我们安心吃完这顿午饭](https://s.weibo.com/weibo?q=%23%E4%BB%96%E6%83%B3%E7%AD%89%E6%88%91%E4%BB%AC%E5%AE%89%E5%BF%83%E5%90%83%E5%AE%8C%E8%BF%99%E9%A1%BF%E5%8D%88%E9%A5%AD%23&Refer=top) `1.8M 🔥`
 1. [难听](https://s.weibo.com/weibo?q=%23%E9%9A%BE%E5%90%AC%23&Refer=top) `1.6M 🔥`
+1. [华西医院专家组紧急赶赴大理](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E8%A5%BF%E5%8C%BB%E9%99%A2%E4%B8%93%E5%AE%B6%E7%BB%84%E7%B4%A7%E6%80%A5%E8%B5%B6%E8%B5%B4%E5%A4%A7%E7%90%86%23&Refer=top) `1.5M 🔥`
 1. [买到花朵形状洗手液的李诗英](https://s.weibo.com/weibo?q=%23%E4%B9%B0%E5%88%B0%E8%8A%B1%E6%9C%B5%E5%BD%A2%E7%8A%B6%E6%B4%97%E6%89%8B%E6%B6%B2%E7%9A%84%E6%9D%8E%E8%AF%97%E8%8B%B1%23&Refer=top) `1.4M 🔥`
 1. [林俊杰拯救了我的耳朵](https://s.weibo.com/weibo?q=%23%E6%9E%97%E4%BF%8A%E6%9D%B0%E6%8B%AF%E6%95%91%E4%BA%86%E6%88%91%E7%9A%84%E8%80%B3%E6%9C%B5%23&Refer=top) `1.4M 🔥`
 1. [云南青海地震都与印度板块活跃有关](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E9%9D%92%E6%B5%B7%E5%9C%B0%E9%9C%87%E9%83%BD%E4%B8%8E%E5%8D%B0%E5%BA%A6%E6%9D%BF%E5%9D%97%E6%B4%BB%E8%B7%83%E6%9C%89%E5%85%B3%23&Refer=top) `1.4M 🔥`
 1. [青海玛多再发5.1级地震](https://s.weibo.com/weibo?q=%23%E9%9D%92%E6%B5%B7%E7%8E%9B%E5%A4%9A%E5%86%8D%E5%8F%915.1%E7%BA%A7%E5%9C%B0%E9%9C%87%23&Refer=top) `1.4M 🔥`
 1. [窦骁烫伤后冷静处理](https://s.weibo.com/weibo?q=%23%E7%AA%A6%E9%AA%81%E7%83%AB%E4%BC%A4%E5%90%8E%E5%86%B7%E9%9D%99%E5%A4%84%E7%90%86%23&Refer=top) `1.4M 🔥`
-1. [华西医院专家组紧急赶赴大理](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E8%A5%BF%E5%8C%BB%E9%99%A2%E4%B8%93%E5%AE%B6%E7%BB%84%E7%B4%A7%E6%80%A5%E8%B5%B6%E8%B5%B4%E5%A4%A7%E7%90%86%23&Refer=top) `1.3M 🔥`
 1. [刘烨助理](https://s.weibo.com/weibo?q=%23%E5%88%98%E7%83%A8%E5%8A%A9%E7%90%86%23&Refer=top) `1.3M 🔥`
 1. [综艺节目谁红谁上错了吗](https://s.weibo.com/weibo?q=%23%E7%BB%BC%E8%89%BA%E8%8A%82%E7%9B%AE%E8%B0%81%E7%BA%A2%E8%B0%81%E4%B8%8A%E9%94%99%E4%BA%86%E5%90%97%23&Refer=top) `1.2M 🔥`
 1. [商家澄清汪东城直播时睡觉](https://s.weibo.com/weibo?q=%23%E5%95%86%E5%AE%B6%E6%BE%84%E6%B8%85%E6%B1%AA%E4%B8%9C%E5%9F%8E%E7%9B%B4%E6%92%AD%E6%97%B6%E7%9D%A1%E8%A7%89%23&Refer=top) `1.2M 🔥`
@@ -57,7 +57,7 @@
 1. [二建考试](https://s.weibo.com/weibo?q=%E4%BA%8C%E5%BB%BA%E8%80%83%E8%AF%95&Refer=top) `1.0M 🔥`
 1. [青海地震被压群众已救出](https://s.weibo.com/weibo?q=%23%E9%9D%92%E6%B5%B7%E5%9C%B0%E9%9C%87%E8%A2%AB%E5%8E%8B%E7%BE%A4%E4%BC%97%E5%B7%B2%E6%95%91%E5%87%BA%23&Refer=top) `1.0M 🔥`
 
-数据更新于 2021-05-22 17:01:22
+数据更新于 2021-05-22 17:04:35
 
 <!-- END -->
 
