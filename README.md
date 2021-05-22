@@ -9,12 +9,12 @@
 1. [袁隆平去世](https://s.weibo.com/weibo?q=%23%E8%A2%81%E9%9A%86%E5%B9%B3%E5%8E%BB%E4%B8%96%23&Refer=top) `51.4M 🔥`
 1. [秘书称袁隆平目前在医院](https://s.weibo.com/weibo?q=%23%E7%A7%98%E4%B9%A6%E7%A7%B0%E8%A2%81%E9%9A%86%E5%B9%B3%E7%9B%AE%E5%89%8D%E5%9C%A8%E5%8C%BB%E9%99%A2%23&Refer=top) `31.3M 🔥`
 1. [袁隆平](https://s.weibo.com/weibo?q=%E8%A2%81%E9%9A%86%E5%B9%B3&Refer=top) `18.5M 🔥`
+1. [CGTN道歉](https://s.weibo.com/weibo?q=%23CGTN%E9%81%93%E6%AD%89%23&Refer=top) `9.0M 🔥`
 1. [青海发生7.4级地震](https://s.weibo.com/weibo?q=%23%E9%9D%92%E6%B5%B7%E5%8F%91%E7%94%9F7.4%E7%BA%A7%E5%9C%B0%E9%9C%87%23&Refer=top) `6.1M 🔥`
 1. [玉树地震时你们来了现在换我们来](https://s.weibo.com/weibo?q=%23%E7%8E%89%E6%A0%91%E5%9C%B0%E9%9C%87%E6%97%B6%E4%BD%A0%E4%BB%AC%E6%9D%A5%E4%BA%86%E7%8E%B0%E5%9C%A8%E6%8D%A2%E6%88%91%E4%BB%AC%E6%9D%A5%23&Refer=top) `6.0M 🔥`
 1. [杨紫张艺兴 有点好嗑](https://s.weibo.com/weibo?q=%E6%9D%A8%E7%B4%AB%E5%BC%A0%E8%89%BA%E5%85%B4%20%E6%9C%89%E7%82%B9%E5%A5%BD%E5%97%91&Refer=top) `5.1M 🔥`
 1. [云南一家十多口刚逃出房子就塌了](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E4%B8%80%E5%AE%B6%E5%8D%81%E5%A4%9A%E5%8F%A3%E5%88%9A%E9%80%83%E5%87%BA%E6%88%BF%E5%AD%90%E5%B0%B1%E5%A1%8C%E4%BA%86%23&Refer=top) `4.7M 🔥`
 1. [道德绑架式表白](https://s.weibo.com/weibo?q=%23%E9%81%93%E5%BE%B7%E7%BB%91%E6%9E%B6%E5%BC%8F%E8%A1%A8%E7%99%BD%23&Refer=top) `4.0M 🔥`
-1. [CGTN道歉](https://s.weibo.com/weibo?q=%23CGTN%E9%81%93%E6%AD%89%23&Refer=top) `3.9M 🔥`
 1. [云南漾濞连续发生398次地震](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E6%BC%BE%E6%BF%9E%E8%BF%9E%E7%BB%AD%E5%8F%91%E7%94%9F398%E6%AC%A1%E5%9C%B0%E9%9C%87%23&Refer=top) `3.5M 🔥`
 1. [大理漾濞6.4级地震](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E7%90%86%E6%BC%BE%E6%BF%9E6.4%E7%BA%A7%E5%9C%B0%E9%9C%87%23&Refer=top) `3.2M 🔥`
 1. [云南地震已致3死27伤](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E5%9C%B0%E9%9C%87%E5%B7%B2%E8%87%B43%E6%AD%BB27%E4%BC%A4%23&Refer=top) `2.9M 🔥`
@@ -51,13 +51,13 @@
 1. [湖北一男子患空调病生命垂危](https://s.weibo.com/weibo?q=%23%E6%B9%96%E5%8C%97%E4%B8%80%E7%94%B7%E5%AD%90%E6%82%A3%E7%A9%BA%E8%B0%83%E7%97%85%E7%94%9F%E5%91%BD%E5%9E%82%E5%8D%B1%23&Refer=top) `761.0K 🔥`
 1. [52只企鹅创收2188万](https://s.weibo.com/weibo?q=%2352%E5%8F%AA%E4%BC%81%E9%B9%85%E5%88%9B%E6%94%B62188%E4%B8%87%23&Refer=top) `743.1K 🔥`
 1. [我的姐姐](https://s.weibo.com/weibo?q=%E6%88%91%E7%9A%84%E5%A7%90%E5%A7%90&Refer=top) `730.6K 🔥`
+1. [文在寅访美与拜登会面](https://s.weibo.com/weibo?q=%23%E6%96%87%E5%9C%A8%E5%AF%85%E8%AE%BF%E7%BE%8E%E4%B8%8E%E6%8B%9C%E7%99%BB%E4%BC%9A%E9%9D%A2%23&Refer=top) `724.0K 🔥`
 1. [向往的生活预告](https://s.weibo.com/weibo?q=%23%E5%90%91%E5%BE%80%E7%9A%84%E7%94%9F%E6%B4%BB%E9%A2%84%E5%91%8A%23&Refer=top) `716.5K 🔥`
 1. [张雨绮对利路修说你保护我一下](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E9%9B%A8%E7%BB%AE%E5%AF%B9%E5%88%A9%E8%B7%AF%E4%BF%AE%E8%AF%B4%E4%BD%A0%E4%BF%9D%E6%8A%A4%E6%88%91%E4%B8%80%E4%B8%8B%23&Refer=top) `684.3K 🔥`
 1. [全球唯一棕色大熊猫要跟大家见面了](https://s.weibo.com/weibo?q=%23%E5%85%A8%E7%90%83%E5%94%AF%E4%B8%80%E6%A3%95%E8%89%B2%E5%A4%A7%E7%86%8A%E7%8C%AB%E8%A6%81%E8%B7%9F%E5%A4%A7%E5%AE%B6%E8%A7%81%E9%9D%A2%E4%BA%86%23&Refer=top) `682.1K 🔥`
 1. [青海地震致桥梁塌陷国省干线变形](https://s.weibo.com/weibo?q=%23%E9%9D%92%E6%B5%B7%E5%9C%B0%E9%9C%87%E8%87%B4%E6%A1%A5%E6%A2%81%E5%A1%8C%E9%99%B7%E5%9B%BD%E7%9C%81%E5%B9%B2%E7%BA%BF%E5%8F%98%E5%BD%A2%23&Refer=top) `648.0K 🔥`
-1. [文在寅访美与拜登会面](https://s.weibo.com/weibo?q=%23%E6%96%87%E5%9C%A8%E5%AF%85%E8%AE%BF%E7%BE%8E%E4%B8%8E%E6%8B%9C%E7%99%BB%E4%BC%9A%E9%9D%A2%23&Refer=top) `643.9K 🔥`
 
-数据更新于 2021-05-22 12:44:00
+数据更新于 2021-05-22 13:12:21
 
 <!-- END -->
 
