@@ -53,11 +53,11 @@
 1. [厦门一网民侮辱4院士专家被警方控制](https://s.weibo.com/weibo?q=%23%E5%8E%A6%E9%97%A8%E4%B8%80%E7%BD%91%E6%B0%91%E4%BE%AE%E8%BE%B14%E9%99%A2%E5%A3%AB%E4%B8%93%E5%AE%B6%E8%A2%AB%E8%AD%A6%E6%96%B9%E6%8E%A7%E5%88%B6%23&Refer=top) `284.9K 🔥`
 1. [世界网友悼念袁隆平](https://s.weibo.com/weibo?q=%23%E4%B8%96%E7%95%8C%E7%BD%91%E5%8F%8B%E6%82%BC%E5%BF%B5%E8%A2%81%E9%9A%86%E5%B9%B3%23&Refer=top) `277.1K 🔥`
 1. [极限挑战](https://s.weibo.com/weibo?q=%E6%9E%81%E9%99%90%E6%8C%91%E6%88%98&Refer=top) `258.5K 🔥`
+1. [全球最大铜生产商近40%产量面临风险](https://s.weibo.com/weibo?q=%23%E5%85%A8%E7%90%83%E6%9C%80%E5%A4%A7%E9%93%9C%E7%94%9F%E4%BA%A7%E5%95%86%E8%BF%9140%25%E4%BA%A7%E9%87%8F%E9%9D%A2%E4%B8%B4%E9%A3%8E%E9%99%A9%23&Refer=top) `255.8K 🔥`
 1. [小虎的酒桶](https://s.weibo.com/weibo?q=%E5%B0%8F%E8%99%8E%E7%9A%84%E9%85%92%E6%A1%B6&Refer=top) `248.3K 🔥`
 1. [窦骁 温柔](https://s.weibo.com/weibo?q=%E7%AA%A6%E9%AA%81%20%E6%B8%A9%E6%9F%94&Refer=top) `241.8K 🔥`
-1. [李佳琦直播](https://s.weibo.com/weibo?q=%E6%9D%8E%E4%BD%B3%E7%90%A6%E7%9B%B4%E6%92%AD&Refer=top) `241.7K 🔥`
 
-数据更新于 2021-05-24 06:56:38
+数据更新于 2021-05-24 07:02:43
 
 <!-- END -->
 
