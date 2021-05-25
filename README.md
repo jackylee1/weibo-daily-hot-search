@@ -35,9 +35,11 @@
 1. [稻穗状烟花](https://s.weibo.com/weibo?q=%23%E7%A8%BB%E7%A9%97%E7%8A%B6%E7%83%9F%E8%8A%B1%23&Refer=top) `1.5M 🔥`
 1. [真实的缅甸北部](https://s.weibo.com/weibo?q=%23%E7%9C%9F%E5%AE%9E%E7%9A%84%E7%BC%85%E7%94%B8%E5%8C%97%E9%83%A8%23&Refer=top) `1.4M 🔥`
 1. [外交部哀悼日本第一代白毛女喜儿扮演者](https://s.weibo.com/weibo?q=%23%E5%A4%96%E4%BA%A4%E9%83%A8%E5%93%80%E6%82%BC%E6%97%A5%E6%9C%AC%E7%AC%AC%E4%B8%80%E4%BB%A3%E7%99%BD%E6%AF%9B%E5%A5%B3%E5%96%9C%E5%84%BF%E6%89%AE%E6%BC%94%E8%80%85%23&Refer=top) `1.3M 🔥`
+1. [雷军称年轻人入职半年内不要提意见](https://s.weibo.com/weibo?q=%23%E9%9B%B7%E5%86%9B%E7%A7%B0%E5%B9%B4%E8%BD%BB%E4%BA%BA%E5%85%A5%E8%81%8C%E5%8D%8A%E5%B9%B4%E5%86%85%E4%B8%8D%E8%A6%81%E6%8F%90%E6%84%8F%E8%A7%81%23&Refer=top) `1.2M 🔥`
 1. [医生针灸扎错人致患者半昏迷](https://s.weibo.com/weibo?q=%23%E5%8C%BB%E7%94%9F%E9%92%88%E7%81%B8%E6%89%8E%E9%94%99%E4%BA%BA%E8%87%B4%E6%82%A3%E8%80%85%E5%8D%8A%E6%98%8F%E8%BF%B7%23&Refer=top) `1.2M 🔥`
 1. [张柏芝螺蛳粉蛋糕](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%9F%8F%E8%8A%9D%E8%9E%BA%E8%9B%B3%E7%B2%89%E8%9B%8B%E7%B3%95%23&Refer=top) `1.2M 🔥`
 1. [赛格大厦大楼结构整体性能满足要求](https://s.weibo.com/weibo?q=%23%E8%B5%9B%E6%A0%BC%E5%A4%A7%E5%8E%A6%E5%A4%A7%E6%A5%BC%E7%BB%93%E6%9E%84%E6%95%B4%E4%BD%93%E6%80%A7%E8%83%BD%E6%BB%A1%E8%B6%B3%E8%A6%81%E6%B1%82%23&Refer=top) `1.1M 🔥`
+1. [每3支医美针剂就有2支是假货](https://s.weibo.com/weibo?q=%23%E6%AF%8F3%E6%94%AF%E5%8C%BB%E7%BE%8E%E9%92%88%E5%89%82%E5%B0%B1%E6%9C%892%E6%94%AF%E6%98%AF%E5%81%87%E8%B4%A7%23&Refer=top) `1.1M 🔥`
 1. [海南30多头牛被雷击中](https://s.weibo.com/weibo?q=%23%E6%B5%B7%E5%8D%9730%E5%A4%9A%E5%A4%B4%E7%89%9B%E8%A2%AB%E9%9B%B7%E5%87%BB%E4%B8%AD%23&Refer=top) `1.1M 🔥`
 1. [Angelababy经纪人内涵跑男](https://s.weibo.com/weibo?q=%23Angelababy%E7%BB%8F%E7%BA%AA%E4%BA%BA%E5%86%85%E6%B6%B5%E8%B7%91%E7%94%B7%23&Refer=top) `988.6K 🔥`
 1. [大连虐待小球员教练被拘留](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E8%BF%9E%E8%99%90%E5%BE%85%E5%B0%8F%E7%90%83%E5%91%98%E6%95%99%E7%BB%83%E8%A2%AB%E6%8B%98%E7%95%99%23&Refer=top) `956.2K 🔥`
@@ -50,14 +52,12 @@
 1. [中国好声音 海选](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E5%A5%BD%E5%A3%B0%E9%9F%B3%20%E6%B5%B7%E9%80%89&Refer=top) `904.0K 🔥`
 1. [甘肃马拉松1000万元应急赔付金已到位](https://s.weibo.com/weibo?q=%23%E7%94%98%E8%82%83%E9%A9%AC%E6%8B%89%E6%9D%BE1000%E4%B8%87%E5%85%83%E5%BA%94%E6%80%A5%E8%B5%94%E4%BB%98%E9%87%91%E5%B7%B2%E5%88%B0%E4%BD%8D%23&Refer=top) `896.1K 🔥`
 1. [孙杨第二次听证会为期3天](https://s.weibo.com/weibo?q=%23%E5%AD%99%E6%9D%A8%E7%AC%AC%E4%BA%8C%E6%AC%A1%E5%90%AC%E8%AF%81%E4%BC%9A%E4%B8%BA%E6%9C%9F3%E5%A4%A9%23&Refer=top) `881.2K 🔥`
-1. [每3支医美针剂就有2支是假货](https://s.weibo.com/weibo?q=%23%E6%AF%8F3%E6%94%AF%E5%8C%BB%E7%BE%8E%E9%92%88%E5%89%82%E5%B0%B1%E6%9C%892%E6%94%AF%E6%98%AF%E5%81%87%E8%B4%A7%23&Refer=top) `867.8K 🔥`
 1. [美发布最高级旅行警告建议勿前往日本](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%8F%91%E5%B8%83%E6%9C%80%E9%AB%98%E7%BA%A7%E6%97%85%E8%A1%8C%E8%AD%A6%E5%91%8A%E5%BB%BA%E8%AE%AE%E5%8B%BF%E5%89%8D%E5%BE%80%E6%97%A5%E6%9C%AC%23&Refer=top) `844.3K 🔥`
+1. [智能剥虾机1分钟剥千只小龙虾](https://s.weibo.com/weibo?q=%23%E6%99%BA%E8%83%BD%E5%89%A5%E8%99%BE%E6%9C%BA1%E5%88%86%E9%92%9F%E5%89%A5%E5%8D%83%E5%8F%AA%E5%B0%8F%E9%BE%99%E8%99%BE%23&Refer=top) `776.4K 🔥`
 1. [世卫大会再次拒绝涉台提案](https://s.weibo.com/weibo?q=%23%E4%B8%96%E5%8D%AB%E5%A4%A7%E4%BC%9A%E5%86%8D%E6%AC%A1%E6%8B%92%E7%BB%9D%E6%B6%89%E5%8F%B0%E6%8F%90%E6%A1%88%23&Refer=top) `775.9K 🔥`
 1. [四川一食品厂疑似有害气体中毒5人死亡](https://s.weibo.com/weibo?q=%E5%9B%9B%E5%B7%9D%E4%B8%80%E9%A3%9F%E5%93%81%E5%8E%82%E7%96%91%E4%BC%BC%E6%9C%89%E5%AE%B3%E6%B0%94%E4%BD%93%E4%B8%AD%E6%AF%925%E4%BA%BA%E6%AD%BB%E4%BA%A1&Refer=top) `758.4K 🔥`
-1. [郭富城演蓝盈莹爸爸](https://s.weibo.com/weibo?q=%23%E9%83%AD%E5%AF%8C%E5%9F%8E%E6%BC%94%E8%93%9D%E7%9B%88%E8%8E%B9%E7%88%B8%E7%88%B8%23&Refer=top) `738.2K 🔥`
-1. [boss直聘崩了](https://s.weibo.com/weibo?q=%23boss%E7%9B%B4%E8%81%98%E5%B4%A9%E4%BA%86%23&Refer=top) `729.3K 🔥`
 
-数据更新于 2021-05-25 16:11:01
+数据更新于 2021-05-25 16:45:23
 
 <!-- END -->
 
