@@ -25,8 +25,10 @@
 1. [医生核酸检测遇儿子问作业](https://s.weibo.com/weibo?q=%23%E5%8C%BB%E7%94%9F%E6%A0%B8%E9%85%B8%E6%A3%80%E6%B5%8B%E9%81%87%E5%84%BF%E5%AD%90%E9%97%AE%E4%BD%9C%E4%B8%9A%23&Refer=top) `1.3M 🔥`
 1. [翻到父亲手机里未发送的短信](https://s.weibo.com/weibo?q=%23%E7%BF%BB%E5%88%B0%E7%88%B6%E4%BA%B2%E6%89%8B%E6%9C%BA%E9%87%8C%E6%9C%AA%E5%8F%91%E9%80%81%E7%9A%84%E7%9F%AD%E4%BF%A1%23&Refer=top) `1.1M 🔥`
 1. [科目一考了34次](https://s.weibo.com/weibo?q=%23%E7%A7%91%E7%9B%AE%E4%B8%80%E8%80%83%E4%BA%8634%E6%AC%A1%23&Refer=top) `1.1M 🔥`
+1. [顶楼第三季朱丹泰没有吻戏](https://s.weibo.com/weibo?q=%23%E9%A1%B6%E6%A5%BC%E7%AC%AC%E4%B8%89%E5%AD%A3%E6%9C%B1%E4%B8%B9%E6%B3%B0%E6%B2%A1%E6%9C%89%E5%90%BB%E6%88%8F%23&Refer=top) `1.1M 🔥`
 1. [NASA将128只小鱿鱼送往太空](https://s.weibo.com/weibo?q=%23NASA%E5%B0%86128%E5%8F%AA%E5%B0%8F%E9%B1%BF%E9%B1%BC%E9%80%81%E5%BE%80%E5%A4%AA%E7%A9%BA%23&Refer=top) `1.0M 🔥`
 1. [中国邮政成立奶茶店](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E9%82%AE%E6%94%BF%E6%88%90%E7%AB%8B%E5%A5%B6%E8%8C%B6%E5%BA%97%23&Refer=top) `1.0M 🔥`
+1. [6岁小男孩让暴雨中的人上车躲雨](https://s.weibo.com/weibo?q=%236%E5%B2%81%E5%B0%8F%E7%94%B7%E5%AD%A9%E8%AE%A9%E6%9A%B4%E9%9B%A8%E4%B8%AD%E7%9A%84%E4%BA%BA%E4%B8%8A%E8%BD%A6%E8%BA%B2%E9%9B%A8%23&Refer=top) `951.9K 🔥`
 1. [兵哥哥休假回家假扮顾客逗老妈](https://s.weibo.com/weibo?q=%23%E5%85%B5%E5%93%A5%E5%93%A5%E4%BC%91%E5%81%87%E5%9B%9E%E5%AE%B6%E5%81%87%E6%89%AE%E9%A1%BE%E5%AE%A2%E9%80%97%E8%80%81%E5%A6%88%23&Refer=top) `913.4K 🔥`
 1. [阿姨测完核酸霸气帮志愿者举牌](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%A7%A8%E6%B5%8B%E5%AE%8C%E6%A0%B8%E9%85%B8%E9%9C%B8%E6%B0%94%E5%B8%AE%E5%BF%97%E6%84%BF%E8%80%85%E4%B8%BE%E7%89%8C%23&Refer=top) `874.1K 🔥`
 1. [字节回应腾讯副总裁称短视频低智](https://s.weibo.com/weibo?q=%23%E5%AD%97%E8%8A%82%E5%9B%9E%E5%BA%94%E8%85%BE%E8%AE%AF%E5%89%AF%E6%80%BB%E8%A3%81%E7%A7%B0%E7%9F%AD%E8%A7%86%E9%A2%91%E4%BD%8E%E6%99%BA%23&Refer=top) `853.4K 🔥`
@@ -54,10 +56,8 @@
 1. [全智贤婆婆称听到离婚传闻非常生气](https://s.weibo.com/weibo?q=%23%E5%85%A8%E6%99%BA%E8%B4%A4%E5%A9%86%E5%A9%86%E7%A7%B0%E5%90%AC%E5%88%B0%E7%A6%BB%E5%A9%9A%E4%BC%A0%E9%97%BB%E9%9D%9E%E5%B8%B8%E7%94%9F%E6%B0%94%23&Refer=top) `603.7K 🔥`
 1. [青岛晚霞](https://s.weibo.com/weibo?q=%23%E9%9D%92%E5%B2%9B%E6%99%9A%E9%9C%9E%23&Refer=top) `603.3K 🔥`
 1. [房子租出去被改成了鬼屋](https://s.weibo.com/weibo?q=%23%E6%88%BF%E5%AD%90%E7%A7%9F%E5%87%BA%E5%8E%BB%E8%A2%AB%E6%94%B9%E6%88%90%E4%BA%86%E9%AC%BC%E5%B1%8B%23&Refer=top) `602.3K 🔥`
-1. [乔欣龚俊吻戏路透](https://s.weibo.com/weibo?q=%23%E4%B9%94%E6%AC%A3%E9%BE%9A%E4%BF%8A%E5%90%BB%E6%88%8F%E8%B7%AF%E9%80%8F%23&Refer=top) `600.2K 🔥`
-1. [李惠利柳俊烈约会](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E6%83%A0%E5%88%A9%E6%9F%B3%E4%BF%8A%E7%83%88%E7%BA%A6%E4%BC%9A%23&Refer=top) `598.5K 🔥`
 
-数据更新于 2021-06-04 14:32:46
+数据更新于 2021-06-04 15:35:29
 
 <!-- END -->
 
