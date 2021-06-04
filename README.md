@@ -7,7 +7,7 @@
 <!-- BEGIN -->
 
 1. [绍兴14岁女孩被德云社录取](https://s.weibo.com/weibo?q=%23%E7%BB%8D%E5%85%B414%E5%B2%81%E5%A5%B3%E5%AD%A9%E8%A2%AB%E5%BE%B7%E4%BA%91%E7%A4%BE%E5%BD%95%E5%8F%96%23&Refer=top) `4.4M 🔥`
-1. [正骨大夫问金晨是不是盘起来睡觉的](https://s.weibo.com/weibo?q=%23%E6%AD%A3%E9%AA%A8%E5%A4%A7%E5%A4%AB%E9%97%AE%E9%87%91%E6%99%A8%E6%98%AF%E4%B8%8D%E6%98%AF%E7%9B%98%E8%B5%B7%E6%9D%A5%E7%9D%A1%E8%A7%89%E7%9A%84%23&Refer=top) `3.9M 🔥`
+1. [正骨大夫问金晨是不是盘起来睡觉的](https://s.weibo.com/weibo?q=%23%E6%AD%A3%E9%AA%A8%E5%A4%A7%E5%A4%AB%E9%97%AE%E9%87%91%E6%99%A8%E6%98%AF%E4%B8%8D%E6%98%AF%E7%9B%98%E8%B5%B7%E6%9D%A5%E7%9D%A1%E8%A7%89%E7%9A%84%23&Refer=top) `4.3M 🔥`
 1. [疫苗为何打在胳膊而不是屁股上](https://s.weibo.com/weibo?q=%23%E7%96%AB%E8%8B%97%E4%B8%BA%E4%BD%95%E6%89%93%E5%9C%A8%E8%83%B3%E8%86%8A%E8%80%8C%E4%B8%8D%E6%98%AF%E5%B1%81%E8%82%A1%E4%B8%8A%23&Refer=top) `3.5M 🔥`
 1. [广州疫情](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E7%96%AB%E6%83%85%23&Refer=top) `3.4M 🔥`
 1. [丁禹兮承认自己胖了](https://s.weibo.com/weibo?q=%23%E4%B8%81%E7%A6%B9%E5%85%AE%E6%89%BF%E8%AE%A4%E8%87%AA%E5%B7%B1%E8%83%96%E4%BA%86%23&Refer=top) `2.8M 🔥`
@@ -38,6 +38,7 @@
 1. [顶楼第三季朱丹泰没有吻戏](https://s.weibo.com/weibo?q=%23%E9%A1%B6%E6%A5%BC%E7%AC%AC%E4%B8%89%E5%AD%A3%E6%9C%B1%E4%B8%B9%E6%B3%B0%E6%B2%A1%E6%9C%89%E5%90%BB%E6%88%8F%23&Refer=top) `1.1M 🔥`
 1. [NASA将128只小鱿鱼送往太空](https://s.weibo.com/weibo?q=%23NASA%E5%B0%86128%E5%8F%AA%E5%B0%8F%E9%B1%BF%E9%B1%BC%E9%80%81%E5%BE%80%E5%A4%AA%E7%A9%BA%23&Refer=top) `1.0M 🔥`
 1. [中国邮政成立奶茶店](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E9%82%AE%E6%94%BF%E6%88%90%E7%AB%8B%E5%A5%B6%E8%8C%B6%E5%BA%97%23&Refer=top) `1.0M 🔥`
+1. [一家4口扶梯摔倒路过民警10秒救下](https://s.weibo.com/weibo?q=%23%E4%B8%80%E5%AE%B64%E5%8F%A3%E6%89%B6%E6%A2%AF%E6%91%94%E5%80%92%E8%B7%AF%E8%BF%87%E6%B0%91%E8%AD%A610%E7%A7%92%E6%95%91%E4%B8%8B%23&Refer=top) `1.0M 🔥`
 1. [趣住被曝涉黄后用户数竟激增10万](https://s.weibo.com/weibo?q=%23%E8%B6%A3%E4%BD%8F%E8%A2%AB%E6%9B%9D%E6%B6%89%E9%BB%84%E5%90%8E%E7%94%A8%E6%88%B7%E6%95%B0%E7%AB%9F%E6%BF%80%E5%A2%9E10%E4%B8%87%23&Refer=top) `980.9K 🔥`
 1. [6岁小男孩让暴雨中的人上车躲雨](https://s.weibo.com/weibo?q=%236%E5%B2%81%E5%B0%8F%E7%94%B7%E5%AD%A9%E8%AE%A9%E6%9A%B4%E9%9B%A8%E4%B8%AD%E7%9A%84%E4%BA%BA%E4%B8%8A%E8%BD%A6%E8%BA%B2%E9%9B%A8%23&Refer=top) `951.9K 🔥`
 1. [兵哥哥休假回家假扮顾客逗老妈](https://s.weibo.com/weibo?q=%23%E5%85%B5%E5%93%A5%E5%93%A5%E4%BC%91%E5%81%87%E5%9B%9E%E5%AE%B6%E5%81%87%E6%89%AE%E9%A1%BE%E5%AE%A2%E9%80%97%E8%80%81%E5%A6%88%23&Refer=top) `913.4K 🔥`
@@ -55,9 +56,8 @@
 1. [江苏高考期间或有高温雷暴大风](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%8B%8F%E9%AB%98%E8%80%83%E6%9C%9F%E9%97%B4%E6%88%96%E6%9C%89%E9%AB%98%E6%B8%A9%E9%9B%B7%E6%9A%B4%E5%A4%A7%E9%A3%8E%23&Refer=top) `760.6K 🔥`
 1. [芳村花地湾滘口站只出不进](https://s.weibo.com/weibo?q=%E8%8A%B3%E6%9D%91%E8%8A%B1%E5%9C%B0%E6%B9%BE%E6%BB%98%E5%8F%A3%E7%AB%99%E5%8F%AA%E5%87%BA%E4%B8%8D%E8%BF%9B&Refer=top) `760.5K 🔥`
 1. [把男朋友熬成了祖孙三代](https://s.weibo.com/weibo?q=%23%E6%8A%8A%E7%94%B7%E6%9C%8B%E5%8F%8B%E7%86%AC%E6%88%90%E4%BA%86%E7%A5%96%E5%AD%99%E4%B8%89%E4%BB%A3%23&Refer=top) `755.4K 🔥`
-1. [我国玻璃景观已超2000个](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD%E7%8E%BB%E7%92%83%E6%99%AF%E8%A7%82%E5%B7%B2%E8%B6%852000%E4%B8%AA%23&Refer=top) `751.2K 🔥`
 
-数据更新于 2021-06-04 19:04:28
+数据更新于 2021-06-04 19:26:43
 
 <!-- END -->
 
