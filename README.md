@@ -8,11 +8,11 @@
 
 1. [汪小菲回应](https://s.weibo.com/weibo?q=%23%E6%B1%AA%E5%B0%8F%E8%8F%B2%E5%9B%9E%E5%BA%94%23&Refer=top) `8.0M 🔥`
 1. [大S向柴智屏表明离婚意向](https://s.weibo.com/weibo?q=%23%E5%A4%A7S%E5%90%91%E6%9F%B4%E6%99%BA%E5%B1%8F%E8%A1%A8%E6%98%8E%E7%A6%BB%E5%A9%9A%E6%84%8F%E5%90%91%23&Refer=top) `5.4M 🔥`
-1. [长沙起火](https://s.weibo.com/weibo?q=%23%E9%95%BF%E6%B2%99%E8%B5%B7%E7%81%AB%23&Refer=top) `4.4M 🔥`
+1. [长沙起火](https://s.weibo.com/weibo?q=%23%E9%95%BF%E6%B2%99%E8%B5%B7%E7%81%AB%23&Refer=top) `4.8M 🔥`
+1. [中国人首次拿到三阶魔方平均世界纪录](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E4%BA%BA%E9%A6%96%E6%AC%A1%E6%8B%BF%E5%88%B0%E4%B8%89%E9%98%B6%E9%AD%94%E6%96%B9%E5%B9%B3%E5%9D%87%E4%B8%96%E7%95%8C%E7%BA%AA%E5%BD%95%23&Refer=top) `4.0M 🔥`
 1. [信小呆不想再被打扰](https://s.weibo.com/weibo?q=%23%E4%BF%A1%E5%B0%8F%E5%91%86%E4%B8%8D%E6%83%B3%E5%86%8D%E8%A2%AB%E6%89%93%E6%89%B0%23&Refer=top) `3.7M 🔥`
 1. [林心如硕士毕业](https://s.weibo.com/weibo?q=%23%E6%9E%97%E5%BF%83%E5%A6%82%E7%A1%95%E5%A3%AB%E6%AF%95%E4%B8%9A%23&Refer=top) `3.3M 🔥`
-1. [中国人首次拿到三阶魔方平均世界纪录](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E4%BA%BA%E9%A6%96%E6%AC%A1%E6%8B%BF%E5%88%B0%E4%B8%89%E9%98%B6%E9%AD%94%E6%96%B9%E5%B9%B3%E5%9D%87%E4%B8%96%E7%95%8C%E7%BA%AA%E5%BD%95%23&Refer=top) `3.2M 🔥`
-1. [赵丽颖去拔罐了吗](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E4%B8%BD%E9%A2%96%E5%8E%BB%E6%8B%94%E7%BD%90%E4%BA%86%E5%90%97%23&Refer=top) `3.1M 🔥`
+1. [赵丽颖去拔罐了吗](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E4%B8%BD%E9%A2%96%E5%8E%BB%E6%8B%94%E7%BD%90%E4%BA%86%E5%90%97%23&Refer=top) `3.2M 🔥`
 1. [汪小菲的编辑记录逐渐收敛](https://s.weibo.com/weibo?q=%23%E6%B1%AA%E5%B0%8F%E8%8F%B2%E7%9A%84%E7%BC%96%E8%BE%91%E8%AE%B0%E5%BD%95%E9%80%90%E6%B8%90%E6%94%B6%E6%95%9B%23&Refer=top) `3.1M 🔥`
 1. [考古研究院学生掉入考古坑致骨折](https://s.weibo.com/weibo?q=%23%E8%80%83%E5%8F%A4%E7%A0%94%E7%A9%B6%E9%99%A2%E5%AD%A6%E7%94%9F%E6%8E%89%E5%85%A5%E8%80%83%E5%8F%A4%E5%9D%91%E8%87%B4%E9%AA%A8%E6%8A%98%23&Refer=top) `3.0M 🔥`
 1. [张子枫手机壳放着与欧阳娜娜的合照](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%AD%90%E6%9E%AB%E6%89%8B%E6%9C%BA%E5%A3%B3%E6%94%BE%E7%9D%80%E4%B8%8E%E6%AC%A7%E9%98%B3%E5%A8%9C%E5%A8%9C%E7%9A%84%E5%90%88%E7%85%A7%23&Refer=top) `2.9M 🔥`
@@ -57,7 +57,7 @@
 1. [全部离南沙通道暂时关闭](https://s.weibo.com/weibo?q=%23%E5%85%A8%E9%83%A8%E7%A6%BB%E5%8D%97%E6%B2%99%E9%80%9A%E9%81%93%E6%9A%82%E6%97%B6%E5%85%B3%E9%97%AD%23&Refer=top) `695.7K 🔥`
 1. [大S 汪小菲](https://s.weibo.com/weibo?q=%E5%A4%A7S%20%E6%B1%AA%E5%B0%8F%E8%8F%B2&Refer=top) `688.6K 🔥`
 
-数据更新于 2021-06-05 17:13:04
+数据更新于 2021-06-05 17:29:22
 
 <!-- END -->
 
