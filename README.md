@@ -57,7 +57,7 @@
 1. [迪丽热巴驭鲛记路透](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E9%A9%AD%E9%B2%9B%E8%AE%B0%E8%B7%AF%E9%80%8F%23&Refer=top) `221.9K 🔥`
 1. [女孩高考前坐末班车给司机留纸条](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%A9%E9%AB%98%E8%80%83%E5%89%8D%E5%9D%90%E6%9C%AB%E7%8F%AD%E8%BD%A6%E7%BB%99%E5%8F%B8%E6%9C%BA%E7%95%99%E7%BA%B8%E6%9D%A1%23&Refer=top) `181.0K 🔥`
 
-数据更新于 2021-06-07 02:10:07
+数据更新于 2021-06-07 02:47:35
 
 <!-- END -->
 
