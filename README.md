@@ -31,6 +31,7 @@
 1. [杨紫哭戏秒落泪](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E7%B4%AB%E5%93%AD%E6%88%8F%E7%A7%92%E8%90%BD%E6%B3%AA%23&Refer=top) `682.8K 🔥`
 1. [张彬彬把隐形眼镜哭掉了](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%BD%AC%E5%BD%AC%E6%8A%8A%E9%9A%90%E5%BD%A2%E7%9C%BC%E9%95%9C%E5%93%AD%E6%8E%89%E4%BA%86%23&Refer=top) `642.3K 🔥`
 1. [校长为高考生送1个火腿2鸡蛋](https://s.weibo.com/weibo?q=%23%E6%A0%A1%E9%95%BF%E4%B8%BA%E9%AB%98%E8%80%83%E7%94%9F%E9%80%811%E4%B8%AA%E7%81%AB%E8%85%BF2%E9%B8%A1%E8%9B%8B%23&Refer=top) `535.0K 🔥`
+1. [面具男孩要高考啦](https://s.weibo.com/weibo?q=%23%E9%9D%A2%E5%85%B7%E7%94%B7%E5%AD%A9%E8%A6%81%E9%AB%98%E8%80%83%E5%95%A6%23&Refer=top) `529.5K 🔥`
 1. [大S妈妈透露大S仍在生气](https://s.weibo.com/weibo?q=%23%E5%A4%A7S%E5%A6%88%E5%A6%88%E9%80%8F%E9%9C%B2%E5%A4%A7S%E4%BB%8D%E5%9C%A8%E7%94%9F%E6%B0%94%23&Refer=top) `510.8K 🔥`
 1. [刘涛许凯吃西瓜沾盐的表情](https://s.weibo.com/weibo?q=%23%E5%88%98%E6%B6%9B%E8%AE%B8%E5%87%AF%E5%90%83%E8%A5%BF%E7%93%9C%E6%B2%BE%E7%9B%90%E7%9A%84%E8%A1%A8%E6%83%85%23&Refer=top) `486.4K 🔥`
 1. [初晨的露娜](https://s.weibo.com/weibo?q=%23%E5%88%9D%E6%99%A8%E7%9A%84%E9%9C%B2%E5%A8%9C%23&Refer=top) `427.8K 🔥`
@@ -42,6 +43,7 @@
 1. [因摩尔庄园分手了](https://s.weibo.com/weibo?q=%23%E5%9B%A0%E6%91%A9%E5%B0%94%E5%BA%84%E5%9B%AD%E5%88%86%E6%89%8B%E4%BA%86%23&Refer=top) `345.4K 🔥`
 1. [白俄总理称准备放弃欧美技术](https://s.weibo.com/weibo?q=%23%E7%99%BD%E4%BF%84%E6%80%BB%E7%90%86%E7%A7%B0%E5%87%86%E5%A4%87%E6%94%BE%E5%BC%83%E6%AC%A7%E7%BE%8E%E6%8A%80%E6%9C%AF%23&Refer=top) `335.4K 🔥`
 1. [广州地铁好空](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E5%9C%B0%E9%93%81%E5%A5%BD%E7%A9%BA%23&Refer=top) `334.2K 🔥`
+1. [加好友是想看你们越过越好](https://s.weibo.com/weibo?q=%23%E5%8A%A0%E5%A5%BD%E5%8F%8B%E6%98%AF%E6%83%B3%E7%9C%8B%E4%BD%A0%E4%BB%AC%E8%B6%8A%E8%BF%87%E8%B6%8A%E5%A5%BD%23&Refer=top) `320.5K 🔥`
 1. [觉醒年代](https://s.weibo.com/weibo?q=%E8%A7%89%E9%86%92%E5%B9%B4%E4%BB%A3&Refer=top) `318.1K 🔥`
 1. [论文人在导师面前有多卑微](https://s.weibo.com/weibo?q=%23%E8%AE%BA%E6%96%87%E4%BA%BA%E5%9C%A8%E5%AF%BC%E5%B8%88%E9%9D%A2%E5%89%8D%E6%9C%89%E5%A4%9A%E5%8D%91%E5%BE%AE%23&Refer=top) `317.2K 🔥`
 1. [二十岁就参透生死是啥体验](https://s.weibo.com/weibo?q=%23%E4%BA%8C%E5%8D%81%E5%B2%81%E5%B0%B1%E5%8F%82%E9%80%8F%E7%94%9F%E6%AD%BB%E6%98%AF%E5%95%A5%E4%BD%93%E9%AA%8C%23&Refer=top) `308.8K 🔥`
@@ -50,14 +52,12 @@
 1. [张哲瀚ins更新](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%93%B2%E7%80%9Ains%E6%9B%B4%E6%96%B0%23&Refer=top) `254.6K 🔥`
 1. [宁夏女生教室戏腔清唱自如](https://s.weibo.com/weibo?q=%23%E5%AE%81%E5%A4%8F%E5%A5%B3%E7%94%9F%E6%95%99%E5%AE%A4%E6%88%8F%E8%85%94%E6%B8%85%E5%94%B1%E8%87%AA%E5%A6%82%23&Refer=top) `251.8K 🔥`
 1. [天天向上](https://s.weibo.com/weibo?q=%E5%A4%A9%E5%A4%A9%E5%90%91%E4%B8%8A&Refer=top) `251.6K 🔥`
-1. [加好友是想看你们越过越好](https://s.weibo.com/weibo?q=%23%E5%8A%A0%E5%A5%BD%E5%8F%8B%E6%98%AF%E6%83%B3%E7%9C%8B%E4%BD%A0%E4%BB%AC%E8%B6%8A%E8%BF%87%E8%B6%8A%E5%A5%BD%23&Refer=top) `242.2K 🔥`
+1. [袁咏琳小时候曾被霸凌](https://s.weibo.com/weibo?q=%E8%A2%81%E5%92%8F%E7%90%B3%E5%B0%8F%E6%97%B6%E5%80%99%E6%9B%BE%E8%A2%AB%E9%9C%B8%E5%87%8C&Refer=top) `243.8K 🔥`
 1. [高三晚自习遇上夏夜晚霞](https://s.weibo.com/weibo?q=%23%E9%AB%98%E4%B8%89%E6%99%9A%E8%87%AA%E4%B9%A0%E9%81%87%E4%B8%8A%E5%A4%8F%E5%A4%9C%E6%99%9A%E9%9C%9E%23&Refer=top) `237.2K 🔥`
-1. [面具男孩要高考啦](https://s.weibo.com/weibo?q=%23%E9%9D%A2%E5%85%B7%E7%94%B7%E5%AD%A9%E8%A6%81%E9%AB%98%E8%80%83%E5%95%A6%23&Refer=top) `234.5K 🔥`
 1. [迪丽热巴驭鲛记路透](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E9%A9%AD%E9%B2%9B%E8%AE%B0%E8%B7%AF%E9%80%8F%23&Refer=top) `221.9K 🔥`
 1. [女孩高考前坐末班车给司机留纸条](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%A9%E9%AB%98%E8%80%83%E5%89%8D%E5%9D%90%E6%9C%AB%E7%8F%AD%E8%BD%A6%E7%BB%99%E5%8F%B8%E6%9C%BA%E7%95%99%E7%BA%B8%E6%9D%A1%23&Refer=top) `181.0K 🔥`
-1. [nv夺冠](https://s.weibo.com/weibo?q=%23nv%E5%A4%BA%E5%86%A0%23&Refer=top) `179.8K 🔥`
 
-数据更新于 2021-06-07 00:27:54
+数据更新于 2021-06-07 01:53:34
 
 <!-- END -->
 
