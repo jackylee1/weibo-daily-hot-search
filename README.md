@@ -40,6 +40,7 @@
 1. [有些人比狗还要狗](https://s.weibo.com/weibo?q=%23%E6%9C%89%E4%BA%9B%E4%BA%BA%E6%AF%94%E7%8B%97%E8%BF%98%E8%A6%81%E7%8B%97%23&Refer=top) `391.7K 🔥`
 1. [连打疫苗都有内卷了](https://s.weibo.com/weibo?q=%23%E8%BF%9E%E6%89%93%E7%96%AB%E8%8B%97%E9%83%BD%E6%9C%89%E5%86%85%E5%8D%B7%E4%BA%86%23&Refer=top) `386.2K 🔥`
 1. [一个班级可以有多温暖](https://s.weibo.com/weibo?q=%23%E4%B8%80%E4%B8%AA%E7%8F%AD%E7%BA%A7%E5%8F%AF%E4%BB%A5%E6%9C%89%E5%A4%9A%E6%B8%A9%E6%9A%96%23&Refer=top) `361.7K 🔥`
+1. [为店铺刷好评被明确定性为黑灰产](https://s.weibo.com/weibo?q=%E4%B8%BA%E5%BA%97%E9%93%BA%E5%88%B7%E5%A5%BD%E8%AF%84%E8%A2%AB%E6%98%8E%E7%A1%AE%E5%AE%9A%E6%80%A7%E4%B8%BA%E9%BB%91%E7%81%B0%E4%BA%A7&Refer=top) `350.1K 🔥`
 1. [因摩尔庄园分手了](https://s.weibo.com/weibo?q=%23%E5%9B%A0%E6%91%A9%E5%B0%94%E5%BA%84%E5%9B%AD%E5%88%86%E6%89%8B%E4%BA%86%23&Refer=top) `345.4K 🔥`
 1. [白俄总理称准备放弃欧美技术](https://s.weibo.com/weibo?q=%23%E7%99%BD%E4%BF%84%E6%80%BB%E7%90%86%E7%A7%B0%E5%87%86%E5%A4%87%E6%94%BE%E5%BC%83%E6%AC%A7%E7%BE%8E%E6%8A%80%E6%9C%AF%23&Refer=top) `335.4K 🔥`
 1. [广州地铁好空](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E5%9C%B0%E9%93%81%E5%A5%BD%E7%A9%BA%23&Refer=top) `334.2K 🔥`
@@ -55,9 +56,8 @@
 1. [袁咏琳小时候曾被霸凌](https://s.weibo.com/weibo?q=%E8%A2%81%E5%92%8F%E7%90%B3%E5%B0%8F%E6%97%B6%E5%80%99%E6%9B%BE%E8%A2%AB%E9%9C%B8%E5%87%8C&Refer=top) `243.8K 🔥`
 1. [高三晚自习遇上夏夜晚霞](https://s.weibo.com/weibo?q=%23%E9%AB%98%E4%B8%89%E6%99%9A%E8%87%AA%E4%B9%A0%E9%81%87%E4%B8%8A%E5%A4%8F%E5%A4%9C%E6%99%9A%E9%9C%9E%23&Refer=top) `237.2K 🔥`
 1. [迪丽热巴驭鲛记路透](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E9%A9%AD%E9%B2%9B%E8%AE%B0%E8%B7%AF%E9%80%8F%23&Refer=top) `221.9K 🔥`
-1. [女孩高考前坐末班车给司机留纸条](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%A9%E9%AB%98%E8%80%83%E5%89%8D%E5%9D%90%E6%9C%AB%E7%8F%AD%E8%BD%A6%E7%BB%99%E5%8F%B8%E6%9C%BA%E7%95%99%E7%BA%B8%E6%9D%A1%23&Refer=top) `181.0K 🔥`
 
-数据更新于 2021-06-07 06:11:56
+数据更新于 2021-06-07 06:40:22
 
 <!-- END -->
 
