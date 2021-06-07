@@ -49,15 +49,15 @@
 1. [广州2名确诊考生在医院参加高考](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E2%E5%90%8D%E7%A1%AE%E8%AF%8A%E8%80%83%E7%94%9F%E5%9C%A8%E5%8C%BB%E9%99%A2%E5%8F%82%E5%8A%A0%E9%AB%98%E8%80%83%23&Refer=top) `1.4M 🔥`
 1. [保密高考卷经历了什么](https://s.weibo.com/weibo?q=%23%E4%BF%9D%E5%AF%86%E9%AB%98%E8%80%83%E5%8D%B7%E7%BB%8F%E5%8E%86%E4%BA%86%E4%BB%80%E4%B9%88%23&Refer=top) `1.4M 🔥`
 1. [韩国网友又来整蛊路人了](https://s.weibo.com/weibo?q=%E9%9F%A9%E5%9B%BD%E7%BD%91%E5%8F%8B%E5%8F%88%E6%9D%A5%E6%95%B4%E8%9B%8A%E8%B7%AF%E4%BA%BA%E4%BA%86&Refer=top) `1.4M 🔥`
+1. [男子被蜱虫咬后染病毒进ICU](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E8%A2%AB%E8%9C%B1%E8%99%AB%E5%92%AC%E5%90%8E%E6%9F%93%E7%97%85%E6%AF%92%E8%BF%9BICU%23&Refer=top) `1.4M 🔥`
 1. [四川多地发现太阳鱼](https://s.weibo.com/weibo?q=%23%E5%9B%9B%E5%B7%9D%E5%A4%9A%E5%9C%B0%E5%8F%91%E7%8E%B0%E5%A4%AA%E9%98%B3%E9%B1%BC%23&Refer=top) `1.4M 🔥`
 1. [3米长鲨鱼排便过猛致脱肛](https://s.weibo.com/weibo?q=%233%E7%B1%B3%E9%95%BF%E9%B2%A8%E9%B1%BC%E6%8E%92%E4%BE%BF%E8%BF%87%E7%8C%9B%E8%87%B4%E8%84%B1%E8%82%9B%23&Refer=top) `1.4M 🔥`
 1. [中国女排排名下降到世界第三](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%A5%B3%E6%8E%92%E6%8E%92%E5%90%8D%E4%B8%8B%E9%99%8D%E5%88%B0%E4%B8%96%E7%95%8C%E7%AC%AC%E4%B8%89%23&Refer=top) `1.3M 🔥`
+1. [没想到我让医生社死了](https://s.weibo.com/weibo?q=%23%E6%B2%A1%E6%83%B3%E5%88%B0%E6%88%91%E8%AE%A9%E5%8C%BB%E7%94%9F%E7%A4%BE%E6%AD%BB%E4%BA%86%23&Refer=top) `1.3M 🔥`
 1. [考生遇车祸坐警摩12分钟到考场](https://s.weibo.com/weibo?q=%23%E8%80%83%E7%94%9F%E9%81%87%E8%BD%A6%E7%A5%B8%E5%9D%90%E8%AD%A6%E6%91%A912%E5%88%86%E9%92%9F%E5%88%B0%E8%80%83%E5%9C%BA%23&Refer=top) `1.3M 🔥`
 1. [易烊千玺抱胖虎女儿](https://s.weibo.com/weibo?q=%23%E6%98%93%E7%83%8A%E5%8D%83%E7%8E%BA%E6%8A%B1%E8%83%96%E8%99%8E%E5%A5%B3%E5%84%BF%23&Refer=top) `1.3M 🔥`
-1. [夏之光微博热评](https://s.weibo.com/weibo?q=%23%E5%A4%8F%E4%B9%8B%E5%85%89%E5%BE%AE%E5%8D%9A%E7%83%AD%E8%AF%84%23&Refer=top) `1.3M 🔥`
-1. [没想到我让医生社死了](https://s.weibo.com/weibo?q=%23%E6%B2%A1%E6%83%B3%E5%88%B0%E6%88%91%E8%AE%A9%E5%8C%BB%E7%94%9F%E7%A4%BE%E6%AD%BB%E4%BA%86%23&Refer=top) `1.3M 🔥`
 
-数据更新于 2021-06-07 23:21:07
+数据更新于 2021-06-07 23:23:21
 
 <!-- END -->
 
