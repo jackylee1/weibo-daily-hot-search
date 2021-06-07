@@ -6,9 +6,12 @@
 
 <!-- BEGIN -->
 
+1. [汪小菲 我老婆是第一](https://s.weibo.com/weibo?q=%E6%B1%AA%E5%B0%8F%E8%8F%B2%20%E6%88%91%E8%80%81%E5%A9%86%E6%98%AF%E7%AC%AC%E4%B8%80&Refer=top) `4.5M 🔥`
 1. [考生因太紧张连续2天丢失身份证](https://s.weibo.com/weibo?q=%23%E8%80%83%E7%94%9F%E5%9B%A0%E5%A4%AA%E7%B4%A7%E5%BC%A0%E8%BF%9E%E7%BB%AD2%E5%A4%A9%E4%B8%A2%E5%A4%B1%E8%BA%AB%E4%BB%BD%E8%AF%81%23&Refer=top) `3.5M 🔥`
 1. [粗心父亲半年时间两次丢娃](https://s.weibo.com/weibo?q=%23%E7%B2%97%E5%BF%83%E7%88%B6%E4%BA%B2%E5%8D%8A%E5%B9%B4%E6%97%B6%E9%97%B4%E4%B8%A4%E6%AC%A1%E4%B8%A2%E5%A8%83%23&Refer=top) `2.3M 🔥`
+1. [重庆一中学高三学生坐船赶考](https://s.weibo.com/weibo?q=%23%E9%87%8D%E5%BA%86%E4%B8%80%E4%B8%AD%E5%AD%A6%E9%AB%98%E4%B8%89%E5%AD%A6%E7%94%9F%E5%9D%90%E8%88%B9%E8%B5%B6%E8%80%83%23&Refer=top) `1.6M 🔥`
 1. [面具男孩要高考啦](https://s.weibo.com/weibo?q=%23%E9%9D%A2%E5%85%B7%E7%94%B7%E5%AD%A9%E8%A6%81%E9%AB%98%E8%80%83%E5%95%A6%23&Refer=top) `1.5M 🔥`
+1. [王嘉尔取消麦田音乐节活动](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E5%98%89%E5%B0%94%E5%8F%96%E6%B6%88%E9%BA%A6%E7%94%B0%E9%9F%B3%E4%B9%90%E8%8A%82%E6%B4%BB%E5%8A%A8%23&Refer=top) `1.3M 🔥`
 1. [易烊千玺抱胖虎女儿](https://s.weibo.com/weibo?q=%23%E6%98%93%E7%83%8A%E5%8D%83%E7%8E%BA%E6%8A%B1%E8%83%96%E8%99%8E%E5%A5%B3%E5%84%BF%23&Refer=top) `1.3M 🔥`
 1. [夏之光微博热评](https://s.weibo.com/weibo?q=%23%E5%A4%8F%E4%B9%8B%E5%85%89%E5%BE%AE%E5%8D%9A%E7%83%AD%E8%AF%84%23&Refer=top) `1.3M 🔥`
 1. [女子超市偷4000元巧克力只嚼不咽](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E8%B6%85%E5%B8%82%E5%81%B74000%E5%85%83%E5%B7%A7%E5%85%8B%E5%8A%9B%E5%8F%AA%E5%9A%BC%E4%B8%8D%E5%92%BD%23&Refer=top) `1.3M 🔥`
@@ -26,16 +29,16 @@
 1. [李荣浩连续六年的高考祝福](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E8%8D%A3%E6%B5%A9%E8%BF%9E%E7%BB%AD%E5%85%AD%E5%B9%B4%E7%9A%84%E9%AB%98%E8%80%83%E7%A5%9D%E7%A6%8F%23&Refer=top) `1.2M 🔥`
 1. [高考第一天](https://s.weibo.com/weibo?q=%E9%AB%98%E8%80%83%E7%AC%AC%E4%B8%80%E5%A4%A9&Refer=top) `1.1M 🔥`
 1. [林志玲晒照纪念结婚两周年](https://s.weibo.com/weibo?q=%23%E6%9E%97%E5%BF%97%E7%8E%B2%E6%99%92%E7%85%A7%E7%BA%AA%E5%BF%B5%E7%BB%93%E5%A9%9A%E4%B8%A4%E5%91%A8%E5%B9%B4%23&Refer=top) `1.1M 🔥`
+1. [高三最后一课班主任哭着道歉](https://s.weibo.com/weibo?q=%23%E9%AB%98%E4%B8%89%E6%9C%80%E5%90%8E%E4%B8%80%E8%AF%BE%E7%8F%AD%E4%B8%BB%E4%BB%BB%E5%93%AD%E7%9D%80%E9%81%93%E6%AD%89%23&Refer=top) `984.1K 🔥`
 1. [张颜齐](https://s.weibo.com/weibo?q=%E5%BC%A0%E9%A2%9C%E9%BD%90&Refer=top) `927.9K 🔥`
 1. [一诺状态](https://s.weibo.com/weibo?q=%23%E4%B8%80%E8%AF%BA%E7%8A%B6%E6%80%81%23&Refer=top) `906.7K 🔥`
 1. [梅根二胎产女](https://s.weibo.com/weibo?q=%E6%A2%85%E6%A0%B9%E4%BA%8C%E8%83%8E%E4%BA%A7%E5%A5%B3&Refer=top) `903.8K 🔥`
 1. [邓伦发微博有多严谨](https://s.weibo.com/weibo?q=%23%E9%82%93%E4%BC%A6%E5%8F%91%E5%BE%AE%E5%8D%9A%E6%9C%89%E5%A4%9A%E4%B8%A5%E8%B0%A8%23&Refer=top) `893.8K 🔥`
-1. [重庆一中学高三学生坐船赶考](https://s.weibo.com/weibo?q=%23%E9%87%8D%E5%BA%86%E4%B8%80%E4%B8%AD%E5%AD%A6%E9%AB%98%E4%B8%89%E5%AD%A6%E7%94%9F%E5%9D%90%E8%88%B9%E8%B5%B6%E8%80%83%23&Refer=top) `854.9K 🔥`
 1. [为店铺刷好评被明确定性为黑灰产](https://s.weibo.com/weibo?q=%23%E4%B8%BA%E5%BA%97%E9%93%BA%E5%88%B7%E5%A5%BD%E8%AF%84%E8%A2%AB%E6%98%8E%E7%A1%AE%E5%AE%9A%E6%80%A7%E4%B8%BA%E9%BB%91%E7%81%B0%E4%BA%A7%23&Refer=top) `814.4K 🔥`
 1. [李现晒重庆大学打卡照](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E7%8E%B0%E6%99%92%E9%87%8D%E5%BA%86%E5%A4%A7%E5%AD%A6%E6%89%93%E5%8D%A1%E7%85%A7%23&Refer=top) `812.8K 🔥`
-1. [高三最后一课班主任哭着道歉](https://s.weibo.com/weibo?q=%23%E9%AB%98%E4%B8%89%E6%9C%80%E5%90%8E%E4%B8%80%E8%AF%BE%E7%8F%AD%E4%B8%BB%E4%BB%BB%E5%93%AD%E7%9D%80%E9%81%93%E6%AD%89%23&Refer=top) `786.2K 🔥`
 1. [杨紫哭戏秒落泪](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E7%B4%AB%E5%93%AD%E6%88%8F%E7%A7%92%E8%90%BD%E6%B3%AA%23&Refer=top) `682.8K 🔥`
 1. [张彬彬把隐形眼镜哭掉了](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%BD%AC%E5%BD%AC%E6%8A%8A%E9%9A%90%E5%BD%A2%E7%9C%BC%E9%95%9C%E5%93%AD%E6%8E%89%E4%BA%86%23&Refer=top) `642.3K 🔥`
+1. [小孩高烧抽搐快警护送3分钟就医](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E5%AD%A9%E9%AB%98%E7%83%A7%E6%8A%BD%E6%90%90%E5%BF%AB%E8%AD%A6%E6%8A%A4%E9%80%813%E5%88%86%E9%92%9F%E5%B0%B1%E5%8C%BB%23&Refer=top) `563.4K 🔥`
 1. [南沙解封](https://s.weibo.com/weibo?q=%E5%8D%97%E6%B2%99%E8%A7%A3%E5%B0%81&Refer=top) `562.6K 🔥`
 1. [中国21个新冠疫苗进入临床试验](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD21%E4%B8%AA%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E8%BF%9B%E5%85%A5%E4%B8%B4%E5%BA%8A%E8%AF%95%E9%AA%8C%23&Refer=top) `556.6K 🔥`
 1. [高考加油](https://s.weibo.com/weibo?q=%E9%AB%98%E8%80%83%E5%8A%A0%E6%B2%B9&Refer=top) `552.0K 🔥`
@@ -53,11 +56,8 @@
 1. [路人听到杨超越王迅说谢谢的反应](https://s.weibo.com/weibo?q=%23%E8%B7%AF%E4%BA%BA%E5%90%AC%E5%88%B0%E6%9D%A8%E8%B6%85%E8%B6%8A%E7%8E%8B%E8%BF%85%E8%AF%B4%E8%B0%A2%E8%B0%A2%E7%9A%84%E5%8F%8D%E5%BA%94%23&Refer=top) `396.1K 🔥`
 1. [巴西消费者告赢苹果公司](https://s.weibo.com/weibo?q=%23%E5%B7%B4%E8%A5%BF%E6%B6%88%E8%B4%B9%E8%80%85%E5%91%8A%E8%B5%A2%E8%8B%B9%E6%9E%9C%E5%85%AC%E5%8F%B8%23&Refer=top) `393.6K 🔥`
 1. [东风快递员夏日烧烤晚会](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E9%A3%8E%E5%BF%AB%E9%80%92%E5%91%98%E5%A4%8F%E6%97%A5%E7%83%A7%E7%83%A4%E6%99%9A%E4%BC%9A%23&Refer=top) `392.3K 🔥`
-1. [有些人比狗还要狗](https://s.weibo.com/weibo?q=%23%E6%9C%89%E4%BA%9B%E4%BA%BA%E6%AF%94%E7%8B%97%E8%BF%98%E8%A6%81%E7%8B%97%23&Refer=top) `391.7K 🔥`
-1. [连打疫苗都有内卷了](https://s.weibo.com/weibo?q=%23%E8%BF%9E%E6%89%93%E7%96%AB%E8%8B%97%E9%83%BD%E6%9C%89%E5%86%85%E5%8D%B7%E4%BA%86%23&Refer=top) `386.2K 🔥`
-1. [1078万考生参加高考](https://s.weibo.com/weibo?q=%231078%E4%B8%87%E8%80%83%E7%94%9F%E5%8F%82%E5%8A%A0%E9%AB%98%E8%80%83%23&Refer=top) `384.7K 🔥`
 
-数据更新于 2021-06-07 08:05:19
+数据更新于 2021-06-07 08:28:48
 
 <!-- END -->
 
