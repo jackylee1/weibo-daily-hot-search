@@ -30,10 +30,10 @@
 1. [天官赐福更新演员表](https://s.weibo.com/weibo?q=%23%E5%A4%A9%E5%AE%98%E8%B5%90%E7%A6%8F%E6%9B%B4%E6%96%B0%E6%BC%94%E5%91%98%E8%A1%A8%23&Refer=top) `553.9K 🔥`
 1. [李佳琦金靖刘胜瑛直播](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E4%BD%B3%E7%90%A6%E9%87%91%E9%9D%96%E5%88%98%E8%83%9C%E7%91%9B%E7%9B%B4%E6%92%AD%23&Refer=top) `503.9K 🔥`
 1. [女生直呼数学简单得让她心慌](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E7%94%9F%E7%9B%B4%E5%91%BC%E6%95%B0%E5%AD%A6%E7%AE%80%E5%8D%95%E5%BE%97%E8%AE%A9%E5%A5%B9%E5%BF%83%E6%85%8C%23&Refer=top) `425.5K 🔥`
+1. [中国女排 巴西女排](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E5%A5%B3%E6%8E%92%20%E5%B7%B4%E8%A5%BF%E5%A5%B3%E6%8E%92&Refer=top) `416.1K 🔥`
 1. [走进美甲店要了一份花甲](https://s.weibo.com/weibo?q=%23%E8%B5%B0%E8%BF%9B%E7%BE%8E%E7%94%B2%E5%BA%97%E8%A6%81%E4%BA%86%E4%B8%80%E4%BB%BD%E8%8A%B1%E7%94%B2%23&Refer=top) `415.6K 🔥`
 1. [没想到猫被鱼给咬了](https://s.weibo.com/weibo?q=%23%E6%B2%A1%E6%83%B3%E5%88%B0%E7%8C%AB%E8%A2%AB%E9%B1%BC%E7%BB%99%E5%92%AC%E4%BA%86%23&Refer=top) `396.8K 🔥`
 1. [管泽元解说](https://s.weibo.com/weibo?q=%E7%AE%A1%E6%B3%BD%E5%85%83%E8%A7%A3%E8%AF%B4&Refer=top) `395.2K 🔥`
-1. [中国女排 巴西女排](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E5%A5%B3%E6%8E%92%20%E5%B7%B4%E8%A5%BF%E5%A5%B3%E6%8E%92&Refer=top) `388.8K 🔥`
 1. [高考前夜停水消防员连夜送水17吨](https://s.weibo.com/weibo?q=%23%E9%AB%98%E8%80%83%E5%89%8D%E5%A4%9C%E5%81%9C%E6%B0%B4%E6%B6%88%E9%98%B2%E5%91%98%E8%BF%9E%E5%A4%9C%E9%80%81%E6%B0%B417%E5%90%A8%23&Refer=top) `377.0K 🔥`
 1. [高考英语](https://s.weibo.com/weibo?q=%E9%AB%98%E8%80%83%E8%8B%B1%E8%AF%AD&Refer=top) `369.9K 🔥`
 1. [广州二手房公积金最长可贷30年](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E4%BA%8C%E6%89%8B%E6%88%BF%E5%85%AC%E7%A7%AF%E9%87%91%E6%9C%80%E9%95%BF%E5%8F%AF%E8%B4%B730%E5%B9%B4%23&Refer=top) `345.9K 🔥`
@@ -54,10 +54,10 @@
 1. [谢兴阳 考完三不要](https://s.weibo.com/weibo?q=%23%E8%B0%A2%E5%85%B4%E9%98%B3%20%E8%80%83%E5%AE%8C%E4%B8%89%E4%B8%8D%E8%A6%81%23&Refer=top) `188.3K 🔥`
 1. [2021世界排球联赛](https://s.weibo.com/weibo?q=%232021%E4%B8%96%E7%95%8C%E6%8E%92%E7%90%83%E8%81%94%E8%B5%9B%23&Refer=top) `185.7K 🔥`
 1. [第一个出考场的人](https://s.weibo.com/weibo?q=%23%E7%AC%AC%E4%B8%80%E4%B8%AA%E5%87%BA%E8%80%83%E5%9C%BA%E7%9A%84%E4%BA%BA%23&Refer=top) `185.0K 🔥`
+1. [林俊杰向薇娅推荐自己的演唱会](https://s.weibo.com/weibo?q=%23%E6%9E%97%E4%BF%8A%E6%9D%B0%E5%90%91%E8%96%87%E5%A8%85%E6%8E%A8%E8%8D%90%E8%87%AA%E5%B7%B1%E7%9A%84%E6%BC%94%E5%94%B1%E4%BC%9A%23&Refer=top) `178.3K 🔥`
 1. [宋祖儿海底种珊瑚vlog](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E7%A5%96%E5%84%BF%E6%B5%B7%E5%BA%95%E7%A7%8D%E7%8F%8A%E7%91%9Avlog%23&Refer=top) `177.8K 🔥`
-1. [男孩被困车底40多人赶来救人](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%A9%E8%A2%AB%E5%9B%B0%E8%BD%A6%E5%BA%9540%E5%A4%9A%E4%BA%BA%E8%B5%B6%E6%9D%A5%E6%95%91%E4%BA%BA%23&Refer=top) `176.7K 🔥`
 
-数据更新于 2021-06-09 06:50:04
+数据更新于 2021-06-09 07:00:03
 
 <!-- END -->
 
