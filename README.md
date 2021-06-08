@@ -7,10 +7,10 @@
 <!-- BEGIN -->
 
 1. [高考结束](https://s.weibo.com/weibo?q=%23%E9%AB%98%E8%80%83%E7%BB%93%E6%9D%9F%23&Refer=top) `9.4M 🔥`
+1. [武汉作弊考生同考场学生发声](https://s.weibo.com/weibo?q=%23%E6%AD%A6%E6%B1%89%E4%BD%9C%E5%BC%8A%E8%80%83%E7%94%9F%E5%90%8C%E8%80%83%E5%9C%BA%E5%AD%A6%E7%94%9F%E5%8F%91%E5%A3%B0%23&Refer=top) `7.9M 🔥`
 1. [小猿搜题回应考生拍题作弊](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E7%8C%BF%E6%90%9C%E9%A2%98%E5%9B%9E%E5%BA%94%E8%80%83%E7%94%9F%E6%8B%8D%E9%A2%98%E4%BD%9C%E5%BC%8A%23&Refer=top) `7.6M 🔥`
 1. [猿辅导回应高考生拍照上传细节](https://s.weibo.com/weibo?q=%23%E7%8C%BF%E8%BE%85%E5%AF%BC%E5%9B%9E%E5%BA%94%E9%AB%98%E8%80%83%E7%94%9F%E6%8B%8D%E7%85%A7%E4%B8%8A%E4%BC%A0%E7%BB%86%E8%8A%82%23&Refer=top) `7.6M 🔥`
 1. [方大同 恋爱](https://s.weibo.com/weibo?q=%E6%96%B9%E5%A4%A7%E5%90%8C%20%E6%81%8B%E7%88%B1&Refer=top) `7.0M 🔥`
-1. [武汉作弊考生同考场学生发声](https://s.weibo.com/weibo?q=%23%E6%AD%A6%E6%B1%89%E4%BD%9C%E5%BC%8A%E8%80%83%E7%94%9F%E5%90%8C%E8%80%83%E5%9C%BA%E5%AD%A6%E7%94%9F%E5%8F%91%E5%A3%B0%23&Refer=top) `6.3M 🔥`
 1. [高考英语](https://s.weibo.com/weibo?q=%E9%AB%98%E8%80%83%E8%8B%B1%E8%AF%AD&Refer=top) `5.4M 🔥`
 1. [周也花6块钱拍出来的毕业照](https://s.weibo.com/weibo?q=%23%E5%91%A8%E4%B9%9F%E8%8A%B16%E5%9D%97%E9%92%B1%E6%8B%8D%E5%87%BA%E6%9D%A5%E7%9A%84%E6%AF%95%E4%B8%9A%E7%85%A7%23&Refer=top) `4.7M 🔥`
 1. [女生直呼数学简单得让她心慌](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E7%94%9F%E7%9B%B4%E5%91%BC%E6%95%B0%E5%AD%A6%E7%AE%80%E5%8D%95%E5%BE%97%E8%AE%A9%E5%A5%B9%E5%BF%83%E6%85%8C%23&Refer=top) `4.7M 🔥`
@@ -57,7 +57,7 @@
 1. [去年全国婴儿死亡率下降到5.4‰](https://s.weibo.com/weibo?q=%23%E5%8E%BB%E5%B9%B4%E5%85%A8%E5%9B%BD%E5%A9%B4%E5%84%BF%E6%AD%BB%E4%BA%A1%E7%8E%87%E4%B8%8B%E9%99%8D%E5%88%B05.4%E2%80%B0%23&Refer=top) `1.5M 🔥`
 1. [虞书欣 这会影响我女神的形象吧](https://s.weibo.com/weibo?q=%23%E8%99%9E%E4%B9%A6%E6%AC%A3%20%E8%BF%99%E4%BC%9A%E5%BD%B1%E5%93%8D%E6%88%91%E5%A5%B3%E7%A5%9E%E7%9A%84%E5%BD%A2%E8%B1%A1%E5%90%A7%23&Refer=top) `1.5M 🔥`
 
-数据更新于 2021-06-08 22:50:29
+数据更新于 2021-06-08 22:58:56
 
 <!-- END -->
 
