@@ -18,6 +18,7 @@
 1. [监考老师盯着没有作弊的我](https://s.weibo.com/weibo?q=%23%E7%9B%91%E8%80%83%E8%80%81%E5%B8%88%E7%9B%AF%E7%9D%80%E6%B2%A1%E6%9C%89%E4%BD%9C%E5%BC%8A%E7%9A%84%E6%88%91%23&Refer=top) `3.2M 🔥`
 1. [广东新增19例本土确诊](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E4%B8%9C%E6%96%B0%E5%A2%9E19%E4%BE%8B%E6%9C%AC%E5%9C%9F%E7%A1%AE%E8%AF%8A%23&Refer=top) `3.1M 🔥`
 1. [杨紫 我是单身女强人](https://s.weibo.com/weibo?q=%E6%9D%A8%E7%B4%AB%20%E6%88%91%E6%98%AF%E5%8D%95%E8%BA%AB%E5%A5%B3%E5%BC%BA%E4%BA%BA&Refer=top) `2.9M 🔥`
+1. [班主任承诺带680分学生国内7日游](https://s.weibo.com/weibo?q=%23%E7%8F%AD%E4%B8%BB%E4%BB%BB%E6%89%BF%E8%AF%BA%E5%B8%A6680%E5%88%86%E5%AD%A6%E7%94%9F%E5%9B%BD%E5%86%857%E6%97%A5%E6%B8%B8%23&Refer=top) `2.5M 🔥`
 1. [高考物理](https://s.weibo.com/weibo?q=%E9%AB%98%E8%80%83%E7%89%A9%E7%90%86&Refer=top) `2.4M 🔥`
 1. [拍照上传高考数学题学生承认作弊](https://s.weibo.com/weibo?q=%23%E6%8B%8D%E7%85%A7%E4%B8%8A%E4%BC%A0%E9%AB%98%E8%80%83%E6%95%B0%E5%AD%A6%E9%A2%98%E5%AD%A6%E7%94%9F%E6%89%BF%E8%AE%A4%E4%BD%9C%E5%BC%8A%23&Refer=top) `2.4M 🔥`
 1. [官方通报考生带手机拍摄试卷](https://s.weibo.com/weibo?q=%23%E5%AE%98%E6%96%B9%E9%80%9A%E6%8A%A5%E8%80%83%E7%94%9F%E5%B8%A6%E6%89%8B%E6%9C%BA%E6%8B%8D%E6%91%84%E8%AF%95%E5%8D%B7%23&Refer=top) `2.3M 🔥`
@@ -47,6 +48,7 @@
 1. [漫画作者回应作品入选高考作文题](https://s.weibo.com/weibo?q=%23%E6%BC%AB%E7%94%BB%E4%BD%9C%E8%80%85%E5%9B%9E%E5%BA%94%E4%BD%9C%E5%93%81%E5%85%A5%E9%80%89%E9%AB%98%E8%80%83%E4%BD%9C%E6%96%87%E9%A2%98%23&Refer=top) `1.1M 🔥`
 1. [兰姐关爱儿子媳妇结婚十周年表演](https://s.weibo.com/weibo?q=%E5%85%B0%E5%A7%90%E5%85%B3%E7%88%B1%E5%84%BF%E5%AD%90%E5%AA%B3%E5%A6%87%E7%BB%93%E5%A9%9A%E5%8D%81%E5%91%A8%E5%B9%B4%E8%A1%A8%E6%BC%94&Refer=top) `1.1M 🔥`
 1. [苹果iOS15](https://s.weibo.com/weibo?q=%E8%8B%B9%E6%9E%9CiOS15&Refer=top) `1.1M 🔥`
+1. [罗云熙的腰](https://s.weibo.com/weibo?q=%23%E7%BD%97%E4%BA%91%E7%86%99%E7%9A%84%E8%85%B0%23&Refer=top) `1.1M 🔥`
 1. [广州核酸大排查发现阳性40人](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E6%A0%B8%E9%85%B8%E5%A4%A7%E6%8E%92%E6%9F%A5%E5%8F%91%E7%8E%B0%E9%98%B3%E6%80%A740%E4%BA%BA%23&Refer=top) `1.1M 🔥`
 1. [高跟版洞洞鞋](https://s.weibo.com/weibo?q=%23%E9%AB%98%E8%B7%9F%E7%89%88%E6%B4%9E%E6%B4%9E%E9%9E%8B%23&Refer=top) `1.1M 🔥`
 1. [市民高考期间跳无声广场舞](https://s.weibo.com/weibo?q=%23%E5%B8%82%E6%B0%91%E9%AB%98%E8%80%83%E6%9C%9F%E9%97%B4%E8%B7%B3%E6%97%A0%E5%A3%B0%E5%B9%BF%E5%9C%BA%E8%88%9E%23&Refer=top) `1.0M 🔥`
@@ -54,10 +56,8 @@
 1. [南京大学招生宣传](https://s.weibo.com/weibo?q=%23%E5%8D%97%E4%BA%AC%E5%A4%A7%E5%AD%A6%E6%8B%9B%E7%94%9F%E5%AE%A3%E4%BC%A0%23&Refer=top) `990.5K 🔥`
 1. [中国共产党人的精神谱系](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A%E4%BA%BA%E7%9A%84%E7%B2%BE%E7%A5%9E%E8%B0%B1%E7%B3%BB%23&Refer=top) `958.4K 🔥`
 1. [李晟 李佳航](https://s.weibo.com/weibo?q=%E6%9D%8E%E6%99%9F%20%E6%9D%8E%E4%BD%B3%E8%88%AA&Refer=top) `946.6K 🔥`
-1. [汪小菲离婚风波后首现身](https://s.weibo.com/weibo?q=%23%E6%B1%AA%E5%B0%8F%E8%8F%B2%E7%A6%BB%E5%A9%9A%E9%A3%8E%E6%B3%A2%E5%90%8E%E9%A6%96%E7%8E%B0%E8%BA%AB%23&Refer=top) `945.6K 🔥`
-1. [中国女排四连败](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%A5%B3%E6%8E%92%E5%9B%9B%E8%BF%9E%E8%B4%A5%23&Refer=top) `935.2K 🔥`
 
-数据更新于 2021-06-08 16:33:39
+数据更新于 2021-06-08 16:54:46
 
 <!-- END -->
 
