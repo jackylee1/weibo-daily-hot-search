@@ -51,13 +51,13 @@
 1. [高考第二天](https://s.weibo.com/weibo?q=%23%E9%AB%98%E8%80%83%E7%AC%AC%E4%BA%8C%E5%A4%A9%23&Refer=top) `905.5K 🔥`
 1. [上海一商场未打疫苗不让进](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E4%B8%80%E5%95%86%E5%9C%BA%E6%9C%AA%E6%89%93%E7%96%AB%E8%8B%97%E4%B8%8D%E8%AE%A9%E8%BF%9B%23&Refer=top) `894.1K 🔥`
 1. [民政部曝光8家涉嫌非法社会组织](https://s.weibo.com/weibo?q=%23%E6%B0%91%E6%94%BF%E9%83%A8%E6%9B%9D%E5%85%898%E5%AE%B6%E6%B6%89%E5%AB%8C%E9%9D%9E%E6%B3%95%E7%A4%BE%E4%BC%9A%E7%BB%84%E7%BB%87%23&Refer=top) `882.0K 🔥`
+1. [男班主任穿旗袍给学生送考](https://s.weibo.com/weibo?q=%23%E7%94%B7%E7%8F%AD%E4%B8%BB%E4%BB%BB%E7%A9%BF%E6%97%97%E8%A2%8D%E7%BB%99%E5%AD%A6%E7%94%9F%E9%80%81%E8%80%83%23&Refer=top) `857.5K 🔥`
 1. [工位上两台电脑怼起来了](https://s.weibo.com/weibo?q=%23%E5%B7%A5%E4%BD%8D%E4%B8%8A%E4%B8%A4%E5%8F%B0%E7%94%B5%E8%84%91%E6%80%BC%E8%B5%B7%E6%9D%A5%E4%BA%86%23&Refer=top) `854.8K 🔥`
 1. [高考地理](https://s.weibo.com/weibo?q=%23%E9%AB%98%E8%80%83%E5%9C%B0%E7%90%86%23&Refer=top) `835.2K 🔥`
 1. [家中起火妈妈慌乱10岁儿子冷静救火](https://s.weibo.com/weibo?q=%23%E5%AE%B6%E4%B8%AD%E8%B5%B7%E7%81%AB%E5%A6%88%E5%A6%88%E6%85%8C%E4%B9%B110%E5%B2%81%E5%84%BF%E5%AD%90%E5%86%B7%E9%9D%99%E6%95%91%E7%81%AB%23&Refer=top) `816.0K 🔥`
 1. [鲁迅的设计天赋有多高](https://s.weibo.com/weibo?q=%23%E9%B2%81%E8%BF%85%E7%9A%84%E8%AE%BE%E8%AE%A1%E5%A4%A9%E8%B5%8B%E6%9C%89%E5%A4%9A%E9%AB%98%23&Refer=top) `805.6K 🔥`
-1. [高考数学](https://s.weibo.com/weibo?q=%23%E9%AB%98%E8%80%83%E6%95%B0%E5%AD%A6%23&Refer=top) `800.7K 🔥`
 
-数据更新于 2021-06-08 14:08:59
+数据更新于 2021-06-08 14:18:25
 
 <!-- END -->
 
