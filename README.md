@@ -19,45 +19,45 @@
 1. [张常宁好累](https://s.weibo.com/weibo?q=%E5%BC%A0%E5%B8%B8%E5%AE%81%E5%A5%BD%E7%B4%AF&Refer=top) `737.0K 🔥`
 1. [BIGBANG将以完整体回归](https://s.weibo.com/weibo?q=%23BIGBANG%E5%B0%86%E4%BB%A5%E5%AE%8C%E6%95%B4%E4%BD%93%E5%9B%9E%E5%BD%92%23&Refer=top) `727.7K 🔥`
 1. [大妈嫌让座慢辱骂乘客被行拘](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%A6%88%E5%AB%8C%E8%AE%A9%E5%BA%A7%E6%85%A2%E8%BE%B1%E9%AA%82%E4%B9%98%E5%AE%A2%E8%A2%AB%E8%A1%8C%E6%8B%98%23&Refer=top) `681.9K 🔥`
-1. [新冠全球溯源研究中国部分公布](https://s.weibo.com/weibo?q=%23%E6%96%B0%E5%86%A0%E5%85%A8%E7%90%83%E6%BA%AF%E6%BA%90%E7%A0%94%E7%A9%B6%E4%B8%AD%E5%9B%BD%E9%83%A8%E5%88%86%E5%85%AC%E5%B8%83%23&Refer=top) `569.1K 🔥`
-1. [马嘉祺高考结束后的状态](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E5%98%89%E7%A5%BA%E9%AB%98%E8%80%83%E7%BB%93%E6%9D%9F%E5%90%8E%E7%9A%84%E7%8A%B6%E6%80%81%23&Refer=top) `563.7K 🔥`
-1. [刘大锤 NINE PERCENT](https://s.weibo.com/weibo?q=%E5%88%98%E5%A4%A7%E9%94%A4%20NINE%20PERCENT&Refer=top) `561.2K 🔥`
-1. [爸爸举林墨海报为女儿加油](https://s.weibo.com/weibo?q=%23%E7%88%B8%E7%88%B8%E4%B8%BE%E6%9E%97%E5%A2%A8%E6%B5%B7%E6%8A%A5%E4%B8%BA%E5%A5%B3%E5%84%BF%E5%8A%A0%E6%B2%B9%23&Refer=top) `545.4K 🔥`
-1. [广州疫情](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E7%96%AB%E6%83%85%23&Refer=top) `535.3K 🔥`
-1. [这样的室友好可怕](https://s.weibo.com/weibo?q=%23%E8%BF%99%E6%A0%B7%E7%9A%84%E5%AE%A4%E5%8F%8B%E5%A5%BD%E5%8F%AF%E6%80%95%23&Refer=top) `519.0K 🔥`
-1. [有钱人买东西的方式](https://s.weibo.com/weibo?q=%23%E6%9C%89%E9%92%B1%E4%BA%BA%E4%B9%B0%E4%B8%9C%E8%A5%BF%E7%9A%84%E6%96%B9%E5%BC%8F%23&Refer=top) `509.4K 🔥`
+1. [马嘉祺高考结束后的状态](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E5%98%89%E7%A5%BA%E9%AB%98%E8%80%83%E7%BB%93%E6%9D%9F%E5%90%8E%E7%9A%84%E7%8A%B6%E6%80%81%23&Refer=top) `648.8K 🔥`
+1. [新冠全球溯源研究中国部分公布](https://s.weibo.com/weibo?q=%23%E6%96%B0%E5%86%A0%E5%85%A8%E7%90%83%E6%BA%AF%E6%BA%90%E7%A0%94%E7%A9%B6%E4%B8%AD%E5%9B%BD%E9%83%A8%E5%88%86%E5%85%AC%E5%B8%83%23&Refer=top) `648.1K 🔥`
+1. [刘大锤 NINE PERCENT](https://s.weibo.com/weibo?q=%E5%88%98%E5%A4%A7%E9%94%A4%20NINE%20PERCENT&Refer=top) `646.5K 🔥`
+1. [爸爸举林墨海报为女儿加油](https://s.weibo.com/weibo?q=%23%E7%88%B8%E7%88%B8%E4%B8%BE%E6%9E%97%E5%A2%A8%E6%B5%B7%E6%8A%A5%E4%B8%BA%E5%A5%B3%E5%84%BF%E5%8A%A0%E6%B2%B9%23&Refer=top) `645.1K 🔥`
+1. [这样的室友好可怕](https://s.weibo.com/weibo?q=%23%E8%BF%99%E6%A0%B7%E7%9A%84%E5%AE%A4%E5%8F%8B%E5%A5%BD%E5%8F%AF%E6%80%95%23&Refer=top) `641.7K 🔥`
+1. [广州疫情](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E7%96%AB%E6%83%85%23&Refer=top) `641.6K 🔥`
+1. [刘宇粉丝给刘宇花式p衣](https://s.weibo.com/weibo?q=%23%E5%88%98%E5%AE%87%E7%B2%89%E4%B8%9D%E7%BB%99%E5%88%98%E5%AE%87%E8%8A%B1%E5%BC%8Fp%E8%A1%A3%23&Refer=top) `634.9K 🔥`
+1. [有钱人买东西的方式](https://s.weibo.com/weibo?q=%23%E6%9C%89%E9%92%B1%E4%BA%BA%E4%B9%B0%E4%B8%9C%E8%A5%BF%E7%9A%84%E6%96%B9%E5%BC%8F%23&Refer=top) `589.2K 🔥`
 1. [李佳琦金靖刘胜瑛直播](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E4%BD%B3%E7%90%A6%E9%87%91%E9%9D%96%E5%88%98%E8%83%9C%E7%91%9B%E7%9B%B4%E6%92%AD%23&Refer=top) `503.9K 🔥`
 1. [女生直呼数学简单得让她心慌](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E7%94%9F%E7%9B%B4%E5%91%BC%E6%95%B0%E5%AD%A6%E7%AE%80%E5%8D%95%E5%BE%97%E8%AE%A9%E5%A5%B9%E5%BF%83%E6%85%8C%23&Refer=top) `425.5K 🔥`
 1. [走进美甲店要了一份花甲](https://s.weibo.com/weibo?q=%23%E8%B5%B0%E8%BF%9B%E7%BE%8E%E7%94%B2%E5%BA%97%E8%A6%81%E4%BA%86%E4%B8%80%E4%BB%BD%E8%8A%B1%E7%94%B2%23&Refer=top) `415.6K 🔥`
-1. [刘宇粉丝给刘宇花式p衣](https://s.weibo.com/weibo?q=%23%E5%88%98%E5%AE%87%E7%B2%89%E4%B8%9D%E7%BB%99%E5%88%98%E5%AE%87%E8%8A%B1%E5%BC%8Fp%E8%A1%A3%23&Refer=top) `402.4K 🔥`
 1. [没想到猫被鱼给咬了](https://s.weibo.com/weibo?q=%23%E6%B2%A1%E6%83%B3%E5%88%B0%E7%8C%AB%E8%A2%AB%E9%B1%BC%E7%BB%99%E5%92%AC%E4%BA%86%23&Refer=top) `396.8K 🔥`
 1. [管泽元解说](https://s.weibo.com/weibo?q=%E7%AE%A1%E6%B3%BD%E5%85%83%E8%A7%A3%E8%AF%B4&Refer=top) `395.2K 🔥`
 1. [中国女排 巴西女排](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E5%A5%B3%E6%8E%92%20%E5%B7%B4%E8%A5%BF%E5%A5%B3%E6%8E%92&Refer=top) `388.8K 🔥`
-1. [高考前夜停水消防员连夜送水17吨](https://s.weibo.com/weibo?q=%23%E9%AB%98%E8%80%83%E5%89%8D%E5%A4%9C%E5%81%9C%E6%B0%B4%E6%B6%88%E9%98%B2%E5%91%98%E8%BF%9E%E5%A4%9C%E9%80%81%E6%B0%B417%E5%90%A8%23&Refer=top) `371.5K 🔥`
+1. [高考前夜停水消防员连夜送水17吨](https://s.weibo.com/weibo?q=%23%E9%AB%98%E8%80%83%E5%89%8D%E5%A4%9C%E5%81%9C%E6%B0%B4%E6%B6%88%E9%98%B2%E5%91%98%E8%BF%9E%E5%A4%9C%E9%80%81%E6%B0%B417%E5%90%A8%23&Refer=top) `377.0K 🔥`
 1. [高考英语](https://s.weibo.com/weibo?q=%E9%AB%98%E8%80%83%E8%8B%B1%E8%AF%AD&Refer=top) `369.9K 🔥`
 1. [广州二手房公积金最长可贷30年](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E4%BA%8C%E6%89%8B%E6%88%BF%E5%85%AC%E7%A7%AF%E9%87%91%E6%9C%80%E9%95%BF%E5%8F%AF%E8%B4%B730%E5%B9%B4%23&Refer=top) `345.9K 🔥`
 1. [觉醒年代的隐喻绝了](https://s.weibo.com/weibo?q=%23%E8%A7%89%E9%86%92%E5%B9%B4%E4%BB%A3%E7%9A%84%E9%9A%90%E5%96%BB%E7%BB%9D%E4%BA%86%23&Refer=top) `308.2K 🔥`
 1. [海龟一窝产下196枚卵破纪录](https://s.weibo.com/weibo?q=%23%E6%B5%B7%E9%BE%9F%E4%B8%80%E7%AA%9D%E4%BA%A7%E4%B8%8B196%E6%9E%9A%E5%8D%B5%E7%A0%B4%E7%BA%AA%E5%BD%95%23&Refer=top) `298.7K 🔥`
 1. [不吃辣的广东人](https://s.weibo.com/weibo?q=%23%E4%B8%8D%E5%90%83%E8%BE%A3%E7%9A%84%E5%B9%BF%E4%B8%9C%E4%BA%BA%23&Refer=top) `283.4K 🔥`
 1. [大四女生抗癌1年后重返校园答辩](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%9B%9B%E5%A5%B3%E7%94%9F%E6%8A%97%E7%99%8C1%E5%B9%B4%E5%90%8E%E9%87%8D%E8%BF%94%E6%A0%A1%E5%9B%AD%E7%AD%94%E8%BE%A9%23&Refer=top) `278.0K 🔥`
+1. [3名医生合力救回心脏骤停旅客](https://s.weibo.com/weibo?q=%233%E5%90%8D%E5%8C%BB%E7%94%9F%E5%90%88%E5%8A%9B%E6%95%91%E5%9B%9E%E5%BF%83%E8%84%8F%E9%AA%A4%E5%81%9C%E6%97%85%E5%AE%A2%23&Refer=top) `276.3K 🔥`
 1. [赵丽颖生图](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E4%B8%BD%E9%A2%96%E7%94%9F%E5%9B%BE%23&Refer=top) `273.7K 🔥`
 1. [江苏餐馆强迫顾客扫码点餐或被起诉](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%8B%8F%E9%A4%90%E9%A6%86%E5%BC%BA%E8%BF%AB%E9%A1%BE%E5%AE%A2%E6%89%AB%E7%A0%81%E7%82%B9%E9%A4%90%E6%88%96%E8%A2%AB%E8%B5%B7%E8%AF%89%23&Refer=top) `271.6K 🔥`
 1. [杨幂听许魏洲唱爱的供养的小表情](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E5%B9%82%E5%90%AC%E8%AE%B8%E9%AD%8F%E6%B4%B2%E5%94%B1%E7%88%B1%E7%9A%84%E4%BE%9B%E5%85%BB%E7%9A%84%E5%B0%8F%E8%A1%A8%E6%83%85%23&Refer=top) `249.9K 🔥`
 1. [EDGBLG比赛重开](https://s.weibo.com/weibo?q=EDGBLG%E6%AF%94%E8%B5%9B%E9%87%8D%E5%BC%80&Refer=top) `247.3K 🔥`
-1. [3名医生合力救回心脏骤停旅客](https://s.weibo.com/weibo?q=%233%E5%90%8D%E5%8C%BB%E7%94%9F%E5%90%88%E5%8A%9B%E6%95%91%E5%9B%9E%E5%BF%83%E8%84%8F%E9%AA%A4%E5%81%9C%E6%97%85%E5%AE%A2%23&Refer=top) `228.9K 🔥`
-1. [猫咪的脾气可以有多大](https://s.weibo.com/weibo?q=%23%E7%8C%AB%E5%92%AA%E7%9A%84%E8%84%BE%E6%B0%94%E5%8F%AF%E4%BB%A5%E6%9C%89%E5%A4%9A%E5%A4%A7%23&Refer=top) `219.4K 🔥`
+1. [猫咪的脾气可以有多大](https://s.weibo.com/weibo?q=%23%E7%8C%AB%E5%92%AA%E7%9A%84%E8%84%BE%E6%B0%94%E5%8F%AF%E4%BB%A5%E6%9C%89%E5%A4%9A%E5%A4%A7%23&Refer=top) `224.6K 🔥`
 1. [高考俄语](https://s.weibo.com/weibo?q=%E9%AB%98%E8%80%83%E4%BF%84%E8%AF%AD&Refer=top) `217.7K 🔥`
-1. [觉醒年代](https://s.weibo.com/weibo?q=%E8%A7%89%E9%86%92%E5%B9%B4%E4%BB%A3&Refer=top) `206.5K 🔥`
+1. [觉醒年代](https://s.weibo.com/weibo?q=%E8%A7%89%E9%86%92%E5%B9%B4%E4%BB%A3&Refer=top) `210.2K 🔥`
 1. [R1SE最后一场生日直播](https://s.weibo.com/weibo?q=%23R1SE%E6%9C%80%E5%90%8E%E4%B8%80%E5%9C%BA%E7%94%9F%E6%97%A5%E7%9B%B4%E6%92%AD%23&Refer=top) `192.9K 🔥`
-1. [王梦洁救球](https://s.weibo.com/weibo?q=%E7%8E%8B%E6%A2%A6%E6%B4%81%E6%95%91%E7%90%83&Refer=top) `188.7K 🔥`
+1. [王梦洁救球](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E6%A2%A6%E6%B4%81%E6%95%91%E7%90%83%23&Refer=top) `190.3K 🔥`
 1. [谢兴阳 考完三不要](https://s.weibo.com/weibo?q=%23%E8%B0%A2%E5%85%B4%E9%98%B3%20%E8%80%83%E5%AE%8C%E4%B8%89%E4%B8%8D%E8%A6%81%23&Refer=top) `188.3K 🔥`
 1. [2021世界排球联赛](https://s.weibo.com/weibo?q=%232021%E4%B8%96%E7%95%8C%E6%8E%92%E7%90%83%E8%81%94%E8%B5%9B%23&Refer=top) `185.7K 🔥`
 1. [第一个出考场的人](https://s.weibo.com/weibo?q=%23%E7%AC%AC%E4%B8%80%E4%B8%AA%E5%87%BA%E8%80%83%E5%9C%BA%E7%9A%84%E4%BA%BA%23&Refer=top) `185.0K 🔥`
 1. [宋祖儿海底种珊瑚vlog](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E7%A5%96%E5%84%BF%E6%B5%B7%E5%BA%95%E7%A7%8D%E7%8F%8A%E7%91%9Avlog%23&Refer=top) `177.8K 🔥`
 1. [男孩被困车底40多人赶来救人](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%A9%E8%A2%AB%E5%9B%B0%E8%BD%A6%E5%BA%9540%E5%A4%9A%E4%BA%BA%E8%B5%B6%E6%9D%A5%E6%95%91%E4%BA%BA%23&Refer=top) `176.7K 🔥`
-1. [游戏人密室团建](https://s.weibo.com/weibo?q=%23%E6%B8%B8%E6%88%8F%E4%BA%BA%E5%AF%86%E5%AE%A4%E5%9B%A2%E5%BB%BA%23&Refer=top) `160.1K 🔥`
+1. [游戏人密室团建](https://s.weibo.com/weibo?q=%23%E6%B8%B8%E6%88%8F%E4%BA%BA%E5%AF%86%E5%AE%A4%E5%9B%A2%E5%BB%BA%23&Refer=top) `167.6K 🔥`
 
-数据更新于 2021-06-09 00:12:23
+数据更新于 2021-06-09 00:17:58
 
 <!-- END -->
 
