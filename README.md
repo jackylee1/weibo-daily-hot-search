@@ -26,7 +26,7 @@
 1. [马嘉祺高考结束后的状态](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E5%98%89%E7%A5%BA%E9%AB%98%E8%80%83%E7%BB%93%E6%9D%9F%E5%90%8E%E7%9A%84%E7%8A%B6%E6%80%81%23&Refer=top) `2.9M 🔥`
 1. [BIGBANG将以完整体回归](https://s.weibo.com/weibo?q=%23BIGBANG%E5%B0%86%E4%BB%A5%E5%AE%8C%E6%95%B4%E4%BD%93%E5%9B%9E%E5%BD%92%23&Refer=top) `2.9M 🔥`
 1. [杨紫 我是单身女强人](https://s.weibo.com/weibo?q=%E6%9D%A8%E7%B4%AB%20%E6%88%91%E6%98%AF%E5%8D%95%E8%BA%AB%E5%A5%B3%E5%BC%BA%E4%BA%BA&Refer=top) `2.9M 🔥`
-1. [马克龙遭扇耳光](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E5%85%8B%E9%BE%99%E9%81%AD%E6%89%87%E8%80%B3%E5%85%89%23&Refer=top) `2.6M 🔥`
+1. [马克龙遭扇耳光](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E5%85%8B%E9%BE%99%E9%81%AD%E6%89%87%E8%80%B3%E5%85%89%23&Refer=top) `2.7M 🔥`
 1. [韩美娟哭了](https://s.weibo.com/weibo?q=%E9%9F%A9%E7%BE%8E%E5%A8%9F%E5%93%AD%E4%BA%86&Refer=top) `2.4M 🔥`
 1. [高考物理](https://s.weibo.com/weibo?q=%E9%AB%98%E8%80%83%E7%89%A9%E7%90%86&Refer=top) `2.4M 🔥`
 1. [拍照上传高考数学题学生承认作弊](https://s.weibo.com/weibo?q=%23%E6%8B%8D%E7%85%A7%E4%B8%8A%E4%BC%A0%E9%AB%98%E8%80%83%E6%95%B0%E5%AD%A6%E9%A2%98%E5%AD%A6%E7%94%9F%E6%89%BF%E8%AE%A4%E4%BD%9C%E5%BC%8A%23&Refer=top) `2.4M 🔥`
@@ -37,9 +37,9 @@
 1. [男子辞职去海底种珊瑚](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E8%BE%9E%E8%81%8C%E5%8E%BB%E6%B5%B7%E5%BA%95%E7%A7%8D%E7%8F%8A%E7%91%9A%23&Refer=top) `2.1M 🔥`
 1. [蒋方舟](https://s.weibo.com/weibo?q=%E8%92%8B%E6%96%B9%E8%88%9F&Refer=top) `2.0M 🔥`
 1. [男班主任穿旗袍给学生送考](https://s.weibo.com/weibo?q=%23%E7%94%B7%E7%8F%AD%E4%B8%BB%E4%BB%BB%E7%A9%BF%E6%97%97%E8%A2%8D%E7%BB%99%E5%AD%A6%E7%94%9F%E9%80%81%E8%80%83%23&Refer=top) `2.0M 🔥`
+1. [福建证实福州一高考考点提前打铃](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E8%AF%81%E5%AE%9E%E7%A6%8F%E5%B7%9E%E4%B8%80%E9%AB%98%E8%80%83%E8%80%83%E7%82%B9%E6%8F%90%E5%89%8D%E6%89%93%E9%93%83%23&Refer=top) `2.0M 🔥`
 1. [高考日语](https://s.weibo.com/weibo?q=%E9%AB%98%E8%80%83%E6%97%A5%E8%AF%AD&Refer=top) `2.0M 🔥`
 1. [大四女生抗癌1年后重返校园答辩](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%9B%9B%E5%A5%B3%E7%94%9F%E6%8A%97%E7%99%8C1%E5%B9%B4%E5%90%8E%E9%87%8D%E8%BF%94%E6%A0%A1%E5%9B%AD%E7%AD%94%E8%BE%A9%23&Refer=top) `2.0M 🔥`
-1. [福建证实福州一高考考点提前打铃](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E8%AF%81%E5%AE%9E%E7%A6%8F%E5%B7%9E%E4%B8%80%E9%AB%98%E8%80%83%E8%80%83%E7%82%B9%E6%8F%90%E5%89%8D%E6%89%93%E9%93%83%23&Refer=top) `1.9M 🔥`
 1. [因考生舞弊黄陂区考场加强安检](https://s.weibo.com/weibo?q=%23%E5%9B%A0%E8%80%83%E7%94%9F%E8%88%9E%E5%BC%8A%E9%BB%84%E9%99%82%E5%8C%BA%E8%80%83%E5%9C%BA%E5%8A%A0%E5%BC%BA%E5%AE%89%E6%A3%80%23&Refer=top) `1.9M 🔥`
 1. [美国追回付给黑客的大部分比特币赎金](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E8%BF%BD%E5%9B%9E%E4%BB%98%E7%BB%99%E9%BB%91%E5%AE%A2%E7%9A%84%E5%A4%A7%E9%83%A8%E5%88%86%E6%AF%94%E7%89%B9%E5%B8%81%E8%B5%8E%E9%87%91%23&Refer=top) `1.9M 🔥`
 1. [高考时爆了冷门的科目](https://s.weibo.com/weibo?q=%23%E9%AB%98%E8%80%83%E6%97%B6%E7%88%86%E4%BA%86%E5%86%B7%E9%97%A8%E7%9A%84%E7%A7%91%E7%9B%AE%23&Refer=top) `1.8M 🔥`
@@ -57,7 +57,7 @@
 1. [虞书欣 这会影响我女神的形象吧](https://s.weibo.com/weibo?q=%23%E8%99%9E%E4%B9%A6%E6%AC%A3%20%E8%BF%99%E4%BC%9A%E5%BD%B1%E5%93%8D%E6%88%91%E5%A5%B3%E7%A5%9E%E7%9A%84%E5%BD%A2%E8%B1%A1%E5%90%A7%23&Refer=top) `1.5M 🔥`
 1. [杨幂听许魏洲唱爱的供养的小表情](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E5%B9%82%E5%90%AC%E8%AE%B8%E9%AD%8F%E6%B4%B2%E5%94%B1%E7%88%B1%E7%9A%84%E4%BE%9B%E5%85%BB%E7%9A%84%E5%B0%8F%E8%A1%A8%E6%83%85%23&Refer=top) `1.5M 🔥`
 
-数据更新于 2021-06-08 22:11:52
+数据更新于 2021-06-08 22:31:21
 
 <!-- END -->
 
