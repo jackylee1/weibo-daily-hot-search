@@ -27,6 +27,7 @@
 1. [广州疫情](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E7%96%AB%E6%83%85%23&Refer=top) `641.6K 🔥`
 1. [刘宇粉丝给刘宇花式p衣](https://s.weibo.com/weibo?q=%23%E5%88%98%E5%AE%87%E7%B2%89%E4%B8%9D%E7%BB%99%E5%88%98%E5%AE%87%E8%8A%B1%E5%BC%8Fp%E8%A1%A3%23&Refer=top) `634.9K 🔥`
 1. [有钱人买东西的方式](https://s.weibo.com/weibo?q=%23%E6%9C%89%E9%92%B1%E4%BA%BA%E4%B9%B0%E4%B8%9C%E8%A5%BF%E7%9A%84%E6%96%B9%E5%BC%8F%23&Refer=top) `589.2K 🔥`
+1. [天官赐福更新演员表](https://s.weibo.com/weibo?q=%23%E5%A4%A9%E5%AE%98%E8%B5%90%E7%A6%8F%E6%9B%B4%E6%96%B0%E6%BC%94%E5%91%98%E8%A1%A8%23&Refer=top) `553.9K 🔥`
 1. [李佳琦金靖刘胜瑛直播](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E4%BD%B3%E7%90%A6%E9%87%91%E9%9D%96%E5%88%98%E8%83%9C%E7%91%9B%E7%9B%B4%E6%92%AD%23&Refer=top) `503.9K 🔥`
 1. [女生直呼数学简单得让她心慌](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E7%94%9F%E7%9B%B4%E5%91%BC%E6%95%B0%E5%AD%A6%E7%AE%80%E5%8D%95%E5%BE%97%E8%AE%A9%E5%A5%B9%E5%BF%83%E6%85%8C%23&Refer=top) `425.5K 🔥`
 1. [走进美甲店要了一份花甲](https://s.weibo.com/weibo?q=%23%E8%B5%B0%E8%BF%9B%E7%BE%8E%E7%94%B2%E5%BA%97%E8%A6%81%E4%BA%86%E4%B8%80%E4%BB%BD%E8%8A%B1%E7%94%B2%23&Refer=top) `415.6K 🔥`
@@ -55,9 +56,8 @@
 1. [第一个出考场的人](https://s.weibo.com/weibo?q=%23%E7%AC%AC%E4%B8%80%E4%B8%AA%E5%87%BA%E8%80%83%E5%9C%BA%E7%9A%84%E4%BA%BA%23&Refer=top) `185.0K 🔥`
 1. [宋祖儿海底种珊瑚vlog](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E7%A5%96%E5%84%BF%E6%B5%B7%E5%BA%95%E7%A7%8D%E7%8F%8A%E7%91%9Avlog%23&Refer=top) `177.8K 🔥`
 1. [男孩被困车底40多人赶来救人](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%A9%E8%A2%AB%E5%9B%B0%E8%BD%A6%E5%BA%9540%E5%A4%9A%E4%BA%BA%E8%B5%B6%E6%9D%A5%E6%95%91%E4%BA%BA%23&Refer=top) `176.7K 🔥`
-1. [游戏人密室团建](https://s.weibo.com/weibo?q=%23%E6%B8%B8%E6%88%8F%E4%BA%BA%E5%AF%86%E5%AE%A4%E5%9B%A2%E5%BB%BA%23&Refer=top) `167.6K 🔥`
 
-数据更新于 2021-06-09 00:17:58
+数据更新于 2021-06-09 01:19:42
 
 <!-- END -->
 
