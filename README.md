@@ -34,6 +34,7 @@
 1. [高考时爆了冷门的科目](https://s.weibo.com/weibo?q=%23%E9%AB%98%E8%80%83%E6%97%B6%E7%88%86%E4%BA%86%E5%86%B7%E9%97%A8%E7%9A%84%E7%A7%91%E7%9B%AE%23&Refer=top) `1.7M 🔥`
 1. [高考历史](https://s.weibo.com/weibo?q=%23%E9%AB%98%E8%80%83%E5%8E%86%E5%8F%B2%23&Refer=top) `1.7M 🔥`
 1. [儿子场内高考交警父亲场外执勤](https://s.weibo.com/weibo?q=%23%E5%84%BF%E5%AD%90%E5%9C%BA%E5%86%85%E9%AB%98%E8%80%83%E4%BA%A4%E8%AD%A6%E7%88%B6%E4%BA%B2%E5%9C%BA%E5%A4%96%E6%89%A7%E5%8B%A4%23&Refer=top) `1.7M 🔥`
+1. [主人溺亡金毛双眼哭红不肯离开](https://s.weibo.com/weibo?q=%23%E4%B8%BB%E4%BA%BA%E6%BA%BA%E4%BA%A1%E9%87%91%E6%AF%9B%E5%8F%8C%E7%9C%BC%E5%93%AD%E7%BA%A2%E4%B8%8D%E8%82%AF%E7%A6%BB%E5%BC%80%23&Refer=top) `1.6M 🔥`
 1. [虞书欣 这会影响我女神的形象吧](https://s.weibo.com/weibo?q=%23%E8%99%9E%E4%B9%A6%E6%AC%A3%20%E8%BF%99%E4%BC%9A%E5%BD%B1%E5%93%8D%E6%88%91%E5%A5%B3%E7%A5%9E%E7%9A%84%E5%BD%A2%E8%B1%A1%E5%90%A7%23&Refer=top) `1.5M 🔥`
 1. [刘亦菲 我是会员](https://s.weibo.com/weibo?q=%E5%88%98%E4%BA%A6%E8%8F%B2%20%E6%88%91%E6%98%AF%E4%BC%9A%E5%91%98&Refer=top) `1.4M 🔥`
 1. [郭麒麟问鸡娃是哇唧唧哇吗](https://s.weibo.com/weibo?q=%23%E9%83%AD%E9%BA%92%E9%BA%9F%E9%97%AE%E9%B8%A1%E5%A8%83%E6%98%AF%E5%93%87%E5%94%A7%E5%94%A7%E5%93%87%E5%90%97%23&Refer=top) `1.4M 🔥`
@@ -55,9 +56,8 @@
 1. [汪小菲离婚风波后首现身](https://s.weibo.com/weibo?q=%23%E6%B1%AA%E5%B0%8F%E8%8F%B2%E7%A6%BB%E5%A9%9A%E9%A3%8E%E6%B3%A2%E5%90%8E%E9%A6%96%E7%8E%B0%E8%BA%AB%23&Refer=top) `945.6K 🔥`
 1. [中国女排四连败](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%A5%B3%E6%8E%92%E5%9B%9B%E8%BF%9E%E8%B4%A5%23&Refer=top) `935.2K 🔥`
 1. [易烊千玺迪士尼花絮照](https://s.weibo.com/weibo?q=%23%E6%98%93%E7%83%8A%E5%8D%83%E7%8E%BA%E8%BF%AA%E5%A3%AB%E5%B0%BC%E8%8A%B1%E7%B5%AE%E7%85%A7%23&Refer=top) `934.1K 🔥`
-1. [董明珠称格力将接入鸿蒙](https://s.weibo.com/weibo?q=%23%E8%91%A3%E6%98%8E%E7%8F%A0%E7%A7%B0%E6%A0%BC%E5%8A%9B%E5%B0%86%E6%8E%A5%E5%85%A5%E9%B8%BF%E8%92%99%23&Refer=top) `933.0K 🔥`
 
-数据更新于 2021-06-08 15:49:28
+数据更新于 2021-06-08 16:03:28
 
 <!-- END -->
 
