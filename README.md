@@ -17,9 +17,9 @@
 1. [衣衫褴褛的老太太 26岁的罗翔](https://s.weibo.com/weibo?q=%E8%A1%A3%E8%A1%AB%E8%A4%B4%E8%A4%9B%E7%9A%84%E8%80%81%E5%A4%AA%E5%A4%AA%2026%E5%B2%81%E7%9A%84%E7%BD%97%E7%BF%94&Refer=top) `3.1M 🔥`
 1. [和相恋五年的人互删了](https://s.weibo.com/weibo?q=%23%E5%92%8C%E7%9B%B8%E6%81%8B%E4%BA%94%E5%B9%B4%E7%9A%84%E4%BA%BA%E4%BA%92%E5%88%A0%E4%BA%86%23&Refer=top) `2.4M 🔥`
 1. [教育部通报考生手机作弊事件](https://s.weibo.com/weibo?q=%23%E6%95%99%E8%82%B2%E9%83%A8%E9%80%9A%E6%8A%A5%E8%80%83%E7%94%9F%E6%89%8B%E6%9C%BA%E4%BD%9C%E5%BC%8A%E4%BA%8B%E4%BB%B6%23&Refer=top) `2.4M 🔥`
+1. [女子因害怕打针被老公打](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E5%9B%A0%E5%AE%B3%E6%80%95%E6%89%93%E9%92%88%E8%A2%AB%E8%80%81%E5%85%AC%E6%89%93%23&Refer=top) `2.1M 🔥`
 1. [长春一饭店把剩菜给下桌顾客吃](https://s.weibo.com/weibo?q=%23%E9%95%BF%E6%98%A5%E4%B8%80%E9%A5%AD%E5%BA%97%E6%8A%8A%E5%89%A9%E8%8F%9C%E7%BB%99%E4%B8%8B%E6%A1%8C%E9%A1%BE%E5%AE%A2%E5%90%83%23&Refer=top) `2.1M 🔥`
 1. [广州一小区4万的房子卖2.8万](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E4%B8%80%E5%B0%8F%E5%8C%BA4%E4%B8%87%E7%9A%84%E6%88%BF%E5%AD%90%E5%8D%962.8%E4%B8%87%23&Refer=top) `2.0M 🔥`
-1. [女子因害怕打针被老公打](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E5%9B%A0%E5%AE%B3%E6%80%95%E6%89%93%E9%92%88%E8%A2%AB%E8%80%81%E5%85%AC%E6%89%93%23&Refer=top) `2.0M 🔥`
 1. [猿辅导回应高考生拍照上传细节](https://s.weibo.com/weibo?q=%23%E7%8C%BF%E8%BE%85%E5%AF%BC%E5%9B%9E%E5%BA%94%E9%AB%98%E8%80%83%E7%94%9F%E6%8B%8D%E7%85%A7%E4%B8%8A%E4%BC%A0%E7%BB%86%E8%8A%82%23&Refer=top) `1.9M 🔥`
 1. [范丞丞粉丝 他脑子不太好使](https://s.weibo.com/weibo?q=%E8%8C%83%E4%B8%9E%E4%B8%9E%E7%B2%89%E4%B8%9D%20%E4%BB%96%E8%84%91%E5%AD%90%E4%B8%8D%E5%A4%AA%E5%A5%BD%E4%BD%BF&Refer=top) `1.9M 🔥`
 1. [时代峰峻致歉声明](https://s.weibo.com/weibo?q=%23%E6%97%B6%E4%BB%A3%E5%B3%B0%E5%B3%BB%E8%87%B4%E6%AD%89%E5%A3%B0%E6%98%8E%23&Refer=top) `1.9M 🔥`
@@ -42,6 +42,7 @@
 1. [吴宣仪 你们只要相信我就好了](https://s.weibo.com/weibo?q=%E5%90%B4%E5%AE%A3%E4%BB%AA%20%E4%BD%A0%E4%BB%AC%E5%8F%AA%E8%A6%81%E7%9B%B8%E4%BF%A1%E6%88%91%E5%B0%B1%E5%A5%BD%E4%BA%86&Refer=top) `1.2M 🔥`
 1. [马克龙回应被掌掴](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E5%85%8B%E9%BE%99%E5%9B%9E%E5%BA%94%E8%A2%AB%E6%8E%8C%E6%8E%B4%23&Refer=top) `1.2M 🔥`
 1. [艾福杰尼写高考英语作文](https://s.weibo.com/weibo?q=%23%E8%89%BE%E7%A6%8F%E6%9D%B0%E5%B0%BC%E5%86%99%E9%AB%98%E8%80%83%E8%8B%B1%E8%AF%AD%E4%BD%9C%E6%96%87%23&Refer=top) `1.1M 🔥`
+1. [清华毕业生教育孩子的方式](https://s.weibo.com/weibo?q=%23%E6%B8%85%E5%8D%8E%E6%AF%95%E4%B8%9A%E7%94%9F%E6%95%99%E8%82%B2%E5%AD%A9%E5%AD%90%E7%9A%84%E6%96%B9%E5%BC%8F%23&Refer=top) `1.1M 🔥`
 1. [河南电视台 清空微博](https://s.weibo.com/weibo?q=%E6%B2%B3%E5%8D%97%E7%94%B5%E8%A7%86%E5%8F%B0%20%E6%B8%85%E7%A9%BA%E5%BE%AE%E5%8D%9A&Refer=top) `1.1M 🔥`
 1. [福建证实福州一高考考点提前打铃](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E8%AF%81%E5%AE%9E%E7%A6%8F%E5%B7%9E%E4%B8%80%E9%AB%98%E8%80%83%E8%80%83%E7%82%B9%E6%8F%90%E5%89%8D%E6%89%93%E9%93%83%23&Refer=top) `1.1M 🔥`
 1. [高考结束](https://s.weibo.com/weibo?q=%23%E9%AB%98%E8%80%83%E7%BB%93%E6%9D%9F%23&Refer=top) `996.0K 🔥`
@@ -55,9 +56,8 @@
 1. [以为宋亚轩照片里的船夫是吴彤](https://s.weibo.com/weibo?q=%23%E4%BB%A5%E4%B8%BA%E5%AE%8B%E4%BA%9A%E8%BD%A9%E7%85%A7%E7%89%87%E9%87%8C%E7%9A%84%E8%88%B9%E5%A4%AB%E6%98%AF%E5%90%B4%E5%BD%A4%23&Refer=top) `901.5K 🔥`
 1. [洛基](https://s.weibo.com/weibo?q=%E6%B4%9B%E5%9F%BA&Refer=top) `885.6K 🔥`
 1. [林俊杰向薇娅推荐自己的演唱会](https://s.weibo.com/weibo?q=%23%E6%9E%97%E4%BF%8A%E6%9D%B0%E5%90%91%E8%96%87%E5%A8%85%E6%8E%A8%E8%8D%90%E8%87%AA%E5%B7%B1%E7%9A%84%E6%BC%94%E5%94%B1%E4%BC%9A%23&Refer=top) `882.5K 🔥`
-1. [河南公布高考成绩查询途径](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8D%97%E5%85%AC%E5%B8%83%E9%AB%98%E8%80%83%E6%88%90%E7%BB%A9%E6%9F%A5%E8%AF%A2%E9%80%94%E5%BE%84%23&Refer=top) `860.2K 🔥`
 
-数据更新于 2021-06-09 14:04:01
+数据更新于 2021-06-09 14:15:15
 
 <!-- END -->
 
