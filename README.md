@@ -9,7 +9,7 @@
 1. [周扬青回应与男子撑伞相依](https://s.weibo.com/weibo?q=%23%E5%91%A8%E6%89%AC%E9%9D%92%E5%9B%9E%E5%BA%94%E4%B8%8E%E7%94%B7%E5%AD%90%E6%92%91%E4%BC%9E%E7%9B%B8%E4%BE%9D%23&Refer=top) `6.1M 🔥`
 1. [浙江疫情](https://s.weibo.com/weibo?q=%E6%B5%99%E6%B1%9F%E7%96%AB%E6%83%85&Refer=top) `5.3M 🔥`
 1. [最有排面的求婚小伙要结婚了](https://s.weibo.com/weibo?q=%23%E6%9C%80%E6%9C%89%E6%8E%92%E9%9D%A2%E7%9A%84%E6%B1%82%E5%A9%9A%E5%B0%8F%E4%BC%99%E8%A6%81%E7%BB%93%E5%A9%9A%E4%BA%86%23&Refer=top) `4.4M 🔥`
-1. [迪丽热巴身材](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E8%BA%AB%E6%9D%90%23&Refer=top) `4.3M 🔥`
+1. [迪丽热巴身材](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E8%BA%AB%E6%9D%90%23&Refer=top) `4.4M 🔥`
 1. [朱天天 聊天语音](https://s.weibo.com/weibo?q=%E6%9C%B1%E5%A4%A9%E5%A4%A9%20%E8%81%8A%E5%A4%A9%E8%AF%AD%E9%9F%B3&Refer=top) `4.1M 🔥`
 1. [刘大锤还没放瓜](https://s.weibo.com/weibo?q=%23%E5%88%98%E5%A4%A7%E9%94%A4%E8%BF%98%E6%B2%A1%E6%94%BE%E7%93%9C%23&Refer=top) `3.9M 🔥`
 1. [戴燕妮 清者自清与我无关](https://s.weibo.com/weibo?q=%E6%88%B4%E7%87%95%E5%A6%AE%20%E6%B8%85%E8%80%85%E8%87%AA%E6%B8%85%E4%B8%8E%E6%88%91%E6%97%A0%E5%85%B3&Refer=top) `3.4M 🔥`
@@ -57,7 +57,7 @@
 1. [大乔新皮肤](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E4%B9%94%E6%96%B0%E7%9A%AE%E8%82%A4%23&Refer=top) `1.1M 🔥`
 1. [蓝黑还是白金](https://s.weibo.com/weibo?q=%23%E8%93%9D%E9%BB%91%E8%BF%98%E6%98%AF%E7%99%BD%E9%87%91%23&Refer=top) `1.0M 🔥`
 
-数据更新于 2021-06-10 21:20:48
+数据更新于 2021-06-10 21:21:34
 
 <!-- END -->
 
