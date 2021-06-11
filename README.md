@@ -19,6 +19,7 @@
 1. [于和伟 我荣幸之至欣喜若狂](https://s.weibo.com/weibo?q=%23%E4%BA%8E%E5%92%8C%E4%BC%9F%20%E6%88%91%E8%8D%A3%E5%B9%B8%E4%B9%8B%E8%87%B3%E6%AC%A3%E5%96%9C%E8%8B%A5%E7%8B%82%23&Refer=top) `2.3M 🔥`
 1. [全国多地频现大型食肉动物](https://s.weibo.com/weibo?q=%23%E5%85%A8%E5%9B%BD%E5%A4%9A%E5%9C%B0%E9%A2%91%E7%8E%B0%E5%A4%A7%E5%9E%8B%E9%A3%9F%E8%82%89%E5%8A%A8%E7%89%A9%23&Refer=top) `2.3M 🔥`
 1. [朱怡贞被捕](https://s.weibo.com/weibo?q=%23%E6%9C%B1%E6%80%A1%E8%B4%9E%E8%A2%AB%E6%8D%95%23&Refer=top) `2.3M 🔥`
+1. [韩国丈夫打疫苗后谢谢中国老婆](https://s.weibo.com/weibo?q=%23%E9%9F%A9%E5%9B%BD%E4%B8%88%E5%A4%AB%E6%89%93%E7%96%AB%E8%8B%97%E5%90%8E%E8%B0%A2%E8%B0%A2%E4%B8%AD%E5%9B%BD%E8%80%81%E5%A9%86%23&Refer=top) `2.1M 🔥`
 1. [童瑶 热依扎在山海情里演的非常好](https://s.weibo.com/weibo?q=%E7%AB%A5%E7%91%B6%20%E7%83%AD%E4%BE%9D%E6%89%8E%E5%9C%A8%E5%B1%B1%E6%B5%B7%E6%83%85%E9%87%8C%E6%BC%94%E7%9A%84%E9%9D%9E%E5%B8%B8%E5%A5%BD&Refer=top) `2.0M 🔥`
 1. [热依扎没拿最佳女主角](https://s.weibo.com/weibo?q=%23%E7%83%AD%E4%BE%9D%E6%89%8E%E6%B2%A1%E6%8B%BF%E6%9C%80%E4%BD%B3%E5%A5%B3%E4%B8%BB%E8%A7%92%23&Refer=top) `2.0M 🔥`
 1. [车银优胖了好多](https://s.weibo.com/weibo?q=%23%E8%BD%A6%E9%93%B6%E4%BC%98%E8%83%96%E4%BA%86%E5%A5%BD%E5%A4%9A%23&Refer=top) `2.0M 🔥`
@@ -31,7 +32,6 @@
 1. [孙千的腿好长](https://s.weibo.com/weibo?q=%23%E5%AD%99%E5%8D%83%E7%9A%84%E8%85%BF%E5%A5%BD%E9%95%BF%23&Refer=top) `1.5M 🔥`
 1. [迪丽热巴身材](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E8%BA%AB%E6%9D%90%23&Refer=top) `1.4M 🔥`
 1. [妈妈进门发现鸭鸭猫咪陪小主人学习](https://s.weibo.com/weibo?q=%23%E5%A6%88%E5%A6%88%E8%BF%9B%E9%97%A8%E5%8F%91%E7%8E%B0%E9%B8%AD%E9%B8%AD%E7%8C%AB%E5%92%AA%E9%99%AA%E5%B0%8F%E4%B8%BB%E4%BA%BA%E5%AD%A6%E4%B9%A0%23&Refer=top) `1.4M 🔥`
-1. [韩国丈夫打疫苗后谢谢中国老婆](https://s.weibo.com/weibo?q=%23%E9%9F%A9%E5%9B%BD%E4%B8%88%E5%A4%AB%E6%89%93%E7%96%AB%E8%8B%97%E5%90%8E%E8%B0%A2%E8%B0%A2%E4%B8%AD%E5%9B%BD%E8%80%81%E5%A9%86%23&Refer=top) `1.3M 🔥`
 1. [粽子店将鸭蛋白当垃圾处理](https://s.weibo.com/weibo?q=%23%E7%B2%BD%E5%AD%90%E5%BA%97%E5%B0%86%E9%B8%AD%E8%9B%8B%E7%99%BD%E5%BD%93%E5%9E%83%E5%9C%BE%E5%A4%84%E7%90%86%23&Refer=top) `1.3M 🔥`
 1. [录三年求婚视频主人公完婚](https://s.weibo.com/weibo?q=%23%E5%BD%95%E4%B8%89%E5%B9%B4%E6%B1%82%E5%A9%9A%E8%A7%86%E9%A2%91%E4%B8%BB%E4%BA%BA%E5%85%AC%E5%AE%8C%E5%A9%9A%23&Refer=top) `1.2M 🔥`
 1. [童瑶 奖项只代表过去](https://s.weibo.com/weibo?q=%E7%AB%A5%E7%91%B6%20%E5%A5%96%E9%A1%B9%E5%8F%AA%E4%BB%A3%E8%A1%A8%E8%BF%87%E5%8E%BB&Refer=top) `1.2M 🔥`
@@ -57,7 +57,7 @@
 1. [密室大逃脱](https://s.weibo.com/weibo?q=%E5%AF%86%E5%AE%A4%E5%A4%A7%E9%80%83%E8%84%B1&Refer=top) `919.5K 🔥`
 1. [易烊千玺 电影奇迹](https://s.weibo.com/weibo?q=%E6%98%93%E7%83%8A%E5%8D%83%E7%8E%BA%20%E7%94%B5%E5%BD%B1%E5%A5%87%E8%BF%B9&Refer=top) `913.4K 🔥`
 
-数据更新于 2021-06-11 14:59:43
+数据更新于 2021-06-11 15:08:00
 
 <!-- END -->
 
