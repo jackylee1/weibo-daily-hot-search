@@ -7,14 +7,14 @@
 <!-- BEGIN -->
 
 1. [莫文蔚 杜嘉班纳](https://s.weibo.com/weibo?q=%E8%8E%AB%E6%96%87%E8%94%9A%20%E6%9D%9C%E5%98%89%E7%8F%AD%E7%BA%B3&Refer=top) `6.1M 🔥`
+1. [台湾疫情](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E6%B9%BE%E7%96%AB%E6%83%85%23&Refer=top) `4.3M 🔥`
 1. [磊枫](https://s.weibo.com/weibo?q=%E7%A3%8A%E6%9E%AB&Refer=top) `3.7M 🔥`
 1. [小伙住ICU95天医护写1.1万字日记鼓励](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E4%BC%99%E4%BD%8FICU95%E5%A4%A9%E5%8C%BB%E6%8A%A4%E5%86%991.1%E4%B8%87%E5%AD%97%E6%97%A5%E8%AE%B0%E9%BC%93%E5%8A%B1%23&Refer=top) `3.3M 🔥`
 1. [刘昊然敲车窗](https://s.weibo.com/weibo?q=%23%E5%88%98%E6%98%8A%E7%84%B6%E6%95%B2%E8%BD%A6%E7%AA%97%23&Refer=top) `3.3M 🔥`
 1. [男子即将跳伞时被路人发现没系安全带](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E5%8D%B3%E5%B0%86%E8%B7%B3%E4%BC%9E%E6%97%B6%E8%A2%AB%E8%B7%AF%E4%BA%BA%E5%8F%91%E7%8E%B0%E6%B2%A1%E7%B3%BB%E5%AE%89%E5%85%A8%E5%B8%A6%23&Refer=top) `3.1M 🔥`
 1. [周冬雨一晚上走了三次红毯](https://s.weibo.com/weibo?q=%23%E5%91%A8%E5%86%AC%E9%9B%A8%E4%B8%80%E6%99%9A%E4%B8%8A%E8%B5%B0%E4%BA%86%E4%B8%89%E6%AC%A1%E7%BA%A2%E6%AF%AF%23&Refer=top) `3.0M 🔥`
-1. [台湾疫情](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E6%B9%BE%E7%96%AB%E6%83%85%23&Refer=top) `2.7M 🔥`
+1. [金靖写给李佳琦的信](https://s.weibo.com/weibo?q=%23%E9%87%91%E9%9D%96%E5%86%99%E7%BB%99%E6%9D%8E%E4%BD%B3%E7%90%A6%E7%9A%84%E4%BF%A1%23&Refer=top) `2.8M 🔥`
 1. [四级翻译 铁观音](https://s.weibo.com/weibo?q=%E5%9B%9B%E7%BA%A7%E7%BF%BB%E8%AF%91%20%E9%93%81%E8%A7%82%E9%9F%B3&Refer=top) `2.7M 🔥`
-1. [金靖写给李佳琦的信](https://s.weibo.com/weibo?q=%23%E9%87%91%E9%9D%96%E5%86%99%E7%BB%99%E6%9D%8E%E4%BD%B3%E7%90%A6%E7%9A%84%E4%BF%A1%23&Refer=top) `2.5M 🔥`
 1. [顶楼3 全员双胞胎](https://s.weibo.com/weibo?q=%E9%A1%B6%E6%A5%BC3%20%E5%85%A8%E5%91%98%E5%8F%8C%E8%83%9E%E8%83%8E&Refer=top) `2.4M 🔥`
 1. [英语四级](https://s.weibo.com/weibo?q=%E8%8B%B1%E8%AF%AD%E5%9B%9B%E7%BA%A7&Refer=top) `2.0M 🔥`
 1. [六级](https://s.weibo.com/weibo?q=%E5%85%AD%E7%BA%A7&Refer=top) `2.0M 🔥`
@@ -39,25 +39,25 @@
 1. [温州疫情](https://s.weibo.com/weibo?q=%E6%B8%A9%E5%B7%9E%E7%96%AB%E6%83%85&Refer=top) `1.0M 🔥`
 1. [张子枫找吴磊握手](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%AD%90%E6%9E%AB%E6%89%BE%E5%90%B4%E7%A3%8A%E6%8F%A1%E6%89%8B%23&Refer=top) `984.4K 🔥`
 1. [广西发现首例印度变异株](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E8%A5%BF%E5%8F%91%E7%8E%B0%E9%A6%96%E4%BE%8B%E5%8D%B0%E5%BA%A6%E5%8F%98%E5%BC%82%E6%A0%AA%23&Refer=top) `945.8K 🔥`
+1. [广东核酸检测收费标准调整](https://s.weibo.com/weibo?q=%E5%B9%BF%E4%B8%9C%E6%A0%B8%E9%85%B8%E6%A3%80%E6%B5%8B%E6%94%B6%E8%B4%B9%E6%A0%87%E5%87%86%E8%B0%83%E6%95%B4&Refer=top) `886.9K 🔥`
 1. [江豚妈妈背着江豚宝宝戏水](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%B1%9A%E5%A6%88%E5%A6%88%E8%83%8C%E7%9D%80%E6%B1%9F%E8%B1%9A%E5%AE%9D%E5%AE%9D%E6%88%8F%E6%B0%B4%23&Refer=top) `775.3K 🔥`
 1. [狗狗咬破白酒桶把自己灌醉](https://s.weibo.com/weibo?q=%23%E7%8B%97%E7%8B%97%E5%92%AC%E7%A0%B4%E7%99%BD%E9%85%92%E6%A1%B6%E6%8A%8A%E8%87%AA%E5%B7%B1%E7%81%8C%E9%86%89%23&Refer=top) `774.7K 🔥`
+1. [在摩尔庄园被治愈的瞬间](https://s.weibo.com/weibo?q=%23%E5%9C%A8%E6%91%A9%E5%B0%94%E5%BA%84%E5%9B%AD%E8%A2%AB%E6%B2%BB%E6%84%88%E7%9A%84%E7%9E%AC%E9%97%B4%23&Refer=top) `749.2K 🔥`
 1. [英语四级作文](https://s.weibo.com/weibo?q=%E8%8B%B1%E8%AF%AD%E5%9B%9B%E7%BA%A7%E4%BD%9C%E6%96%87&Refer=top) `748.1K 🔥`
 1. [四级答案](https://s.weibo.com/weibo?q=%E5%9B%9B%E7%BA%A7%E7%AD%94%E6%A1%88&Refer=top) `742.5K 🔥`
 1. [邱泽演技](https://s.weibo.com/weibo?q=%E9%82%B1%E6%B3%BD%E6%BC%94%E6%8A%80&Refer=top) `739.1K 🔥`
+1. [端午假期第一天](https://s.weibo.com/weibo?q=%23%E7%AB%AF%E5%8D%88%E5%81%87%E6%9C%9F%E7%AC%AC%E4%B8%80%E5%A4%A9%23&Refer=top) `738.7K 🔥`
+1. [在本省读大学是啥体验](https://s.weibo.com/weibo?q=%23%E5%9C%A8%E6%9C%AC%E7%9C%81%E8%AF%BB%E5%A4%A7%E5%AD%A6%E6%98%AF%E5%95%A5%E4%BD%93%E9%AA%8C%23&Refer=top) `738.7K 🔥`
 1. [新生女婴望着防疫医护笑盈盈](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%94%9F%E5%A5%B3%E5%A9%B4%E6%9C%9B%E7%9D%80%E9%98%B2%E7%96%AB%E5%8C%BB%E6%8A%A4%E7%AC%91%E7%9B%88%E7%9B%88%23&Refer=top) `730.8K 🔥`
 1. [宋妍霏是tony老师吧](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E5%A6%8D%E9%9C%8F%E6%98%AFtony%E8%80%81%E5%B8%88%E5%90%A7%23&Refer=top) `721.7K 🔥`
 1. [救护车鸣笛遭教练车阻挡4公里](https://s.weibo.com/weibo?q=%23%E6%95%91%E6%8A%A4%E8%BD%A6%E9%B8%A3%E7%AC%9B%E9%81%AD%E6%95%99%E7%BB%83%E8%BD%A6%E9%98%BB%E6%8C%A14%E5%85%AC%E9%87%8C%23&Refer=top) `715.0K 🔥`
 1. [杀人犯潜逃26年因4个打火机落网](https://s.weibo.com/weibo?q=%23%E6%9D%80%E4%BA%BA%E7%8A%AF%E6%BD%9C%E9%80%8326%E5%B9%B4%E5%9B%A04%E4%B8%AA%E6%89%93%E7%81%AB%E6%9C%BA%E8%90%BD%E7%BD%91%23&Refer=top) `705.8K 🔥`
-1. [在本省读大学是啥体验](https://s.weibo.com/weibo?q=%23%E5%9C%A8%E6%9C%AC%E7%9C%81%E8%AF%BB%E5%A4%A7%E5%AD%A6%E6%98%AF%E5%95%A5%E4%BD%93%E9%AA%8C%23&Refer=top) `695.0K 🔥`
-1. [在摩尔庄园被治愈的瞬间](https://s.weibo.com/weibo?q=%23%E5%9C%A8%E6%91%A9%E5%B0%94%E5%BA%84%E5%9B%AD%E8%A2%AB%E6%B2%BB%E6%84%88%E7%9A%84%E7%9E%AC%E9%97%B4%23&Refer=top) `691.9K 🔥`
 1. [新冠疫苗完成接种6个月后是否需补打](https://s.weibo.com/weibo?q=%23%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E5%AE%8C%E6%88%90%E6%8E%A5%E7%A7%8D6%E4%B8%AA%E6%9C%88%E5%90%8E%E6%98%AF%E5%90%A6%E9%9C%80%E8%A1%A5%E6%89%93%23&Refer=top) `671.0K 🔥`
 1. [1头小象遇险3头大象救援](https://s.weibo.com/weibo?q=%231%E5%A4%B4%E5%B0%8F%E8%B1%A1%E9%81%87%E9%99%A93%E5%A4%B4%E5%A4%A7%E8%B1%A1%E6%95%91%E6%8F%B4%23&Refer=top) `670.3K 🔥`
 1. [引起广州疫情变异株传播力比老毒株高1倍](https://s.weibo.com/weibo?q=%23%E5%BC%95%E8%B5%B7%E5%B9%BF%E5%B7%9E%E7%96%AB%E6%83%85%E5%8F%98%E5%BC%82%E6%A0%AA%E4%BC%A0%E6%92%AD%E5%8A%9B%E6%AF%94%E8%80%81%E6%AF%92%E6%A0%AA%E9%AB%981%E5%80%8D%23&Refer=top) `663.8K 🔥`
 1. [男子拖欠孩子13年抚养费被强制执行](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E6%8B%96%E6%AC%A0%E5%AD%A9%E5%AD%9013%E5%B9%B4%E6%8A%9A%E5%85%BB%E8%B4%B9%E8%A2%AB%E5%BC%BA%E5%88%B6%E6%89%A7%E8%A1%8C%23&Refer=top) `651.1K 🔥`
-1. [刘璇 我就是重女轻男](https://s.weibo.com/weibo?q=%E5%88%98%E7%92%87%20%E6%88%91%E5%B0%B1%E6%98%AF%E9%87%8D%E5%A5%B3%E8%BD%BB%E7%94%B7&Refer=top) `645.8K 🔥`
-1. [房租占了工资一半是啥体验](https://s.weibo.com/weibo?q=%23%E6%88%BF%E7%A7%9F%E5%8D%A0%E4%BA%86%E5%B7%A5%E8%B5%84%E4%B8%80%E5%8D%8A%E6%98%AF%E5%95%A5%E4%BD%93%E9%AA%8C%23&Refer=top) `636.5K 🔥`
 
-数据更新于 2021-06-12 12:46:36
+数据更新于 2021-06-12 13:03:04
 
 <!-- END -->
 
