@@ -8,7 +8,7 @@
 
 1. [莫文蔚 杜嘉班纳](https://s.weibo.com/weibo?q=%E8%8E%AB%E6%96%87%E8%94%9A%20%E6%9D%9C%E5%98%89%E7%8F%AD%E7%BA%B3&Refer=top) `6.1M 🔥`
 1. [台湾疫情](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E6%B9%BE%E7%96%AB%E6%83%85%23&Refer=top) `4.3M 🔥`
-1. [周也 冷脸美女](https://s.weibo.com/weibo?q=%E5%91%A8%E4%B9%9F%20%E5%86%B7%E8%84%B8%E7%BE%8E%E5%A5%B3&Refer=top) `4.1M 🔥`
+1. [周也 冷脸美女](https://s.weibo.com/weibo?q=%E5%91%A8%E4%B9%9F%20%E5%86%B7%E8%84%B8%E7%BE%8E%E5%A5%B3&Refer=top) `4.3M 🔥`
 1. [陈志朋晒在大陆接种疫苗视频](https://s.weibo.com/weibo?q=%23%E9%99%88%E5%BF%97%E6%9C%8B%E6%99%92%E5%9C%A8%E5%A4%A7%E9%99%86%E6%8E%A5%E7%A7%8D%E7%96%AB%E8%8B%97%E8%A7%86%E9%A2%91%23&Refer=top) `4.1M 🔥`
 1. [磊枫](https://s.weibo.com/weibo?q=%E7%A3%8A%E6%9E%AB&Refer=top) `3.7M 🔥`
 1. [小伙住ICU95天医护写1.1万字日记鼓励](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E4%BC%99%E4%BD%8FICU95%E5%A4%A9%E5%8C%BB%E6%8A%A4%E5%86%991.1%E4%B8%87%E5%AD%97%E6%97%A5%E8%AE%B0%E9%BC%93%E5%8A%B1%23&Refer=top) `3.3M 🔥`
@@ -57,7 +57,7 @@
 1. [山东曹县人才政策](https://s.weibo.com/weibo?q=%E5%B1%B1%E4%B8%9C%E6%9B%B9%E5%8E%BF%E4%BA%BA%E6%89%8D%E6%94%BF%E7%AD%96&Refer=top) `1.1M 🔥`
 1. [两名省外来肥确诊患者绿码返程](https://s.weibo.com/weibo?q=%23%E4%B8%A4%E5%90%8D%E7%9C%81%E5%A4%96%E6%9D%A5%E8%82%A5%E7%A1%AE%E8%AF%8A%E6%82%A3%E8%80%85%E7%BB%BF%E7%A0%81%E8%BF%94%E7%A8%8B%23&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-06-12 20:54:06
+数据更新于 2021-06-12 21:14:07
 
 <!-- END -->
 
