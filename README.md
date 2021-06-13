@@ -25,8 +25,8 @@
 1. [中国女排战胜荷兰女排](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%A5%B3%E6%8E%92%E6%88%98%E8%83%9C%E8%8D%B7%E5%85%B0%E5%A5%B3%E6%8E%92%23&Refer=top) `2.2M 🔥`
 1. [贝尔老了](https://s.weibo.com/weibo?q=%23%E8%B4%9D%E5%B0%94%E8%80%81%E4%BA%86%23&Refer=top) `2.1M 🔥`
 1. [南方人过不了六级的原因](https://s.weibo.com/weibo?q=%23%E5%8D%97%E6%96%B9%E4%BA%BA%E8%BF%87%E4%B8%8D%E4%BA%86%E5%85%AD%E7%BA%A7%E7%9A%84%E5%8E%9F%E5%9B%A0%23&Refer=top) `2.1M 🔥`
+1. [大四退学参加高考当事人发声](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%9B%9B%E9%80%80%E5%AD%A6%E5%8F%82%E5%8A%A0%E9%AB%98%E8%80%83%E5%BD%93%E4%BA%8B%E4%BA%BA%E5%8F%91%E5%A3%B0%23&Refer=top) `1.9M 🔥`
 1. [埃里克森心脏一度停止跳动](https://s.weibo.com/weibo?q=%E5%9F%83%E9%87%8C%E5%85%8B%E6%A3%AE%E5%BF%83%E8%84%8F%E4%B8%80%E5%BA%A6%E5%81%9C%E6%AD%A2%E8%B7%B3%E5%8A%A8&Refer=top) `1.8M 🔥`
-1. [大四退学参加高考当事人发声](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%9B%9B%E9%80%80%E5%AD%A6%E5%8F%82%E5%8A%A0%E9%AB%98%E8%80%83%E5%BD%93%E4%BA%8B%E4%BA%BA%E5%8F%91%E5%A3%B0%23&Refer=top) `1.8M 🔥`
 1. [林汝为逝世](https://s.weibo.com/weibo?q=%23%E6%9E%97%E6%B1%9D%E4%B8%BA%E9%80%9D%E4%B8%96%23&Refer=top) `1.6M 🔥`
 1. [周琦左眼视网膜裂孔](https://s.weibo.com/weibo?q=%23%E5%91%A8%E7%90%A6%E5%B7%A6%E7%9C%BC%E8%A7%86%E7%BD%91%E8%86%9C%E8%A3%82%E5%AD%94%23&Refer=top) `1.5M 🔥`
 1. [刘浩存的眼睛像小鹿](https://s.weibo.com/weibo?q=%23%E5%88%98%E6%B5%A9%E5%AD%98%E7%9A%84%E7%9C%BC%E7%9D%9B%E5%83%8F%E5%B0%8F%E9%B9%BF%23&Refer=top) `1.5M 🔥`
@@ -57,7 +57,7 @@
 1. [在水下泡26个小时拍出的水下飞天](https://s.weibo.com/weibo?q=%E5%9C%A8%E6%B0%B4%E4%B8%8B%E6%B3%A126%E4%B8%AA%E5%B0%8F%E6%97%B6%E6%8B%8D%E5%87%BA%E7%9A%84%E6%B0%B4%E4%B8%8B%E9%A3%9E%E5%A4%A9&Refer=top) `900.5K 🔥`
 1. [王副站长升职](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E5%89%AF%E7%AB%99%E9%95%BF%E5%8D%87%E8%81%8C%23&Refer=top) `891.7K 🔥`
 
-数据更新于 2021-06-13 16:02:19
+数据更新于 2021-06-13 16:02:36
 
 <!-- END -->
 
