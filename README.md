@@ -39,6 +39,7 @@
 1. [乃万 网上那些嘴臭的人你姐我好得很](https://s.weibo.com/weibo?q=%E4%B9%83%E4%B8%87%20%E7%BD%91%E4%B8%8A%E9%82%A3%E4%BA%9B%E5%98%B4%E8%87%AD%E7%9A%84%E4%BA%BA%E4%BD%A0%E5%A7%90%E6%88%91%E5%A5%BD%E5%BE%97%E5%BE%88&Refer=top) `1.1M 🔥`
 1. [周也 冷脸美女](https://s.weibo.com/weibo?q=%E5%91%A8%E4%B9%9F%20%E5%86%B7%E8%84%B8%E7%BE%8E%E5%A5%B3&Refer=top) `1.1M 🔥`
 1. [十堰爆炸事故已致11人死亡](https://s.weibo.com/weibo?q=%E5%8D%81%E5%A0%B0%E7%88%86%E7%82%B8%E4%BA%8B%E6%95%85%E5%B7%B2%E8%87%B411%E4%BA%BA%E6%AD%BB%E4%BA%A1&Refer=top) `1.1M 🔥`
+1. [广州疫情](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E7%96%AB%E6%83%85%23&Refer=top) `1.1M 🔥`
 1. [井哥哥](https://s.weibo.com/weibo?q=%E4%BA%95%E5%93%A5%E5%93%A5&Refer=top) `1.1M 🔥`
 1. [孙俪给邓超泡的咖啡](https://s.weibo.com/weibo?q=%23%E5%AD%99%E4%BF%AA%E7%BB%99%E9%82%93%E8%B6%85%E6%B3%A1%E7%9A%84%E5%92%96%E5%95%A1%23&Refer=top) `1.1M 🔥`
 1. [玩摩尔庄园说话被奶奶当真](https://s.weibo.com/weibo?q=%23%E7%8E%A9%E6%91%A9%E5%B0%94%E5%BA%84%E5%9B%AD%E8%AF%B4%E8%AF%9D%E8%A2%AB%E5%A5%B6%E5%A5%B6%E5%BD%93%E7%9C%9F%23&Refer=top) `1.1M 🔥`
@@ -55,9 +56,8 @@
 1. [宋妍霏不回弟弟微信](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E5%A6%8D%E9%9C%8F%E4%B8%8D%E5%9B%9E%E5%BC%9F%E5%BC%9F%E5%BE%AE%E4%BF%A1%23&Refer=top) `858.1K 🔥`
 1. [中国女排 荷兰女排](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E5%A5%B3%E6%8E%92%20%E8%8D%B7%E5%85%B0%E5%A5%B3%E6%8E%92&Refer=top) `850.0K 🔥`
 1. [考生涉嫌电诈警方让其先参加高考](https://s.weibo.com/weibo?q=%23%E8%80%83%E7%94%9F%E6%B6%89%E5%AB%8C%E7%94%B5%E8%AF%88%E8%AD%A6%E6%96%B9%E8%AE%A9%E5%85%B6%E5%85%88%E5%8F%82%E5%8A%A0%E9%AB%98%E8%80%83%23&Refer=top) `816.9K 🔥`
-1. [G7峰会](https://s.weibo.com/weibo?q=G7%E5%B3%B0%E4%BC%9A&Refer=top) `797.2K 🔥`
 
-数据更新于 2021-06-13 13:07:46
+数据更新于 2021-06-13 13:09:58
 
 <!-- END -->
 
