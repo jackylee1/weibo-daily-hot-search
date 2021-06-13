@@ -40,6 +40,7 @@
 1. [埃里克森心脏一度停止跳动](https://s.weibo.com/weibo?q=%E5%9F%83%E9%87%8C%E5%85%8B%E6%A3%AE%E5%BF%83%E8%84%8F%E4%B8%80%E5%BA%A6%E5%81%9C%E6%AD%A2%E8%B7%B3%E5%8A%A8&Refer=top) `1.8M 🔥`
 1. [长期不上班会导致什么后果](https://s.weibo.com/weibo?q=%23%E9%95%BF%E6%9C%9F%E4%B8%8D%E4%B8%8A%E7%8F%AD%E4%BC%9A%E5%AF%BC%E8%87%B4%E4%BB%80%E4%B9%88%E5%90%8E%E6%9E%9C%23&Refer=top) `1.7M 🔥`
 1. [林汝为逝世](https://s.weibo.com/weibo?q=%23%E6%9E%97%E6%B1%9D%E4%B8%BA%E9%80%9D%E4%B8%96%23&Refer=top) `1.6M 🔥`
+1. [被王梦洁气到](https://s.weibo.com/weibo?q=%E8%A2%AB%E7%8E%8B%E6%A2%A6%E6%B4%81%E6%B0%94%E5%88%B0&Refer=top) `1.6M 🔥`
 1. [女子谎称患新冠去世诈骗男友11万](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E8%B0%8E%E7%A7%B0%E6%82%A3%E6%96%B0%E5%86%A0%E5%8E%BB%E4%B8%96%E8%AF%88%E9%AA%97%E7%94%B7%E5%8F%8B11%E4%B8%87%23&Refer=top) `1.5M 🔥`
 1. [周琦左眼视网膜裂孔](https://s.weibo.com/weibo?q=%23%E5%91%A8%E7%90%A6%E5%B7%A6%E7%9C%BC%E8%A7%86%E7%BD%91%E8%86%9C%E8%A3%82%E5%AD%94%23&Refer=top) `1.5M 🔥`
 1. [刘浩存的眼睛像小鹿](https://s.weibo.com/weibo?q=%23%E5%88%98%E6%B5%A9%E5%AD%98%E7%9A%84%E7%9C%BC%E7%9D%9B%E5%83%8F%E5%B0%8F%E9%B9%BF%23&Refer=top) `1.5M 🔥`
@@ -55,9 +56,8 @@
 1. [快女冠军段林希现状](https://s.weibo.com/weibo?q=%23%E5%BF%AB%E5%A5%B3%E5%86%A0%E5%86%9B%E6%AE%B5%E6%9E%97%E5%B8%8C%E7%8E%B0%E7%8A%B6%23&Refer=top) `1.2M 🔥`
 1. [日本一老人进食堂被误打第三针新冠疫苗](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E4%B8%80%E8%80%81%E4%BA%BA%E8%BF%9B%E9%A3%9F%E5%A0%82%E8%A2%AB%E8%AF%AF%E6%89%93%E7%AC%AC%E4%B8%89%E9%92%88%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%23&Refer=top) `1.2M 🔥`
 1. [粽子](https://s.weibo.com/weibo?q=%E7%B2%BD%E5%AD%90&Refer=top) `1.2M 🔥`
-1. [焉栩嘉坐轮椅出场](https://s.weibo.com/weibo?q=%23%E7%84%89%E6%A0%A9%E5%98%89%E5%9D%90%E8%BD%AE%E6%A4%85%E5%87%BA%E5%9C%BA%23&Refer=top) `1.2M 🔥`
 
-数据更新于 2021-06-13 23:01:58
+数据更新于 2021-06-13 23:22:41
 
 <!-- END -->
 
