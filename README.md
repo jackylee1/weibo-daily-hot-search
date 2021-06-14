@@ -54,10 +54,10 @@
 1. [长成这样谁还网恋](https://s.weibo.com/weibo?q=%23%E9%95%BF%E6%88%90%E8%BF%99%E6%A0%B7%E8%B0%81%E8%BF%98%E7%BD%91%E6%81%8B%23&Refer=top) `1.1M 🔥`
 1. [等教资面试成绩好紧张](https://s.weibo.com/weibo?q=%23%E7%AD%89%E6%95%99%E8%B5%84%E9%9D%A2%E8%AF%95%E6%88%90%E7%BB%A9%E5%A5%BD%E7%B4%A7%E5%BC%A0%23&Refer=top) `1.1M 🔥`
 1. [原来体检才是社死第一名](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E4%BD%93%E6%A3%80%E6%89%8D%E6%98%AF%E7%A4%BE%E6%AD%BB%E7%AC%AC%E4%B8%80%E5%90%8D%23&Refer=top) `1.1M 🔥`
+1. [金晨小鬼rap版偏爱](https://s.weibo.com/weibo?q=%23%E9%87%91%E6%99%A8%E5%B0%8F%E9%AC%BCrap%E7%89%88%E5%81%8F%E7%88%B1%23&Refer=top) `1.1M 🔥`
 1. [世界献血者日](https://s.weibo.com/weibo?q=%E4%B8%96%E7%95%8C%E7%8C%AE%E8%A1%80%E8%80%85%E6%97%A5&Refer=top) `1.1M 🔥`
-1. [英国小伙感叹中国疫苗接种速度](https://s.weibo.com/weibo?q=%E8%8B%B1%E5%9B%BD%E5%B0%8F%E4%BC%99%E6%84%9F%E5%8F%B9%E4%B8%AD%E5%9B%BD%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A7%8D%E9%80%9F%E5%BA%A6&Refer=top) `1.0M 🔥`
 
-数据更新于 2021-06-14 22:22:28
+数据更新于 2021-06-14 22:34:21
 
 <!-- END -->
 
