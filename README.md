@@ -20,6 +20,7 @@
 1. [男子在海底捞自导自演吃出蟑螂](https://s.weibo.com/weibo?q=%E7%94%B7%E5%AD%90%E5%9C%A8%E6%B5%B7%E5%BA%95%E6%8D%9E%E8%87%AA%E5%AF%BC%E8%87%AA%E6%BC%94%E5%90%83%E5%87%BA%E8%9F%91%E8%9E%82&Refer=top) `4.1M 🔥`
 1. [孙一宁 王思聪](https://s.weibo.com/weibo?q=%E5%AD%99%E4%B8%80%E5%AE%81%20%E7%8E%8B%E6%80%9D%E8%81%AA&Refer=top) `3.8M 🔥`
 1. [中俄关系处在历史最高水平](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E4%BF%84%E5%85%B3%E7%B3%BB%E5%A4%84%E5%9C%A8%E5%8E%86%E5%8F%B2%E6%9C%80%E9%AB%98%E6%B0%B4%E5%B9%B3%23&Refer=top) `3.5M 🔥`
+1. [罗云熙 假唱](https://s.weibo.com/weibo?q=%E7%BD%97%E4%BA%91%E7%86%99%20%E5%81%87%E5%94%B1&Refer=top) `3.1M 🔥`
 1. [李振宁 再打电话骚扰我就曝光了](https://s.weibo.com/weibo?q=%E6%9D%8E%E6%8C%AF%E5%AE%81%20%E5%86%8D%E6%89%93%E7%94%B5%E8%AF%9D%E9%AA%9A%E6%89%B0%E6%88%91%E5%B0%B1%E6%9B%9D%E5%85%89%E4%BA%86&Refer=top) `3.0M 🔥`
 1. [李少红删除耍大牌艺人戏份](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E5%B0%91%E7%BA%A2%E5%88%A0%E9%99%A4%E8%80%8D%E5%A4%A7%E7%89%8C%E8%89%BA%E4%BA%BA%E6%88%8F%E4%BB%BD%23&Refer=top) `2.7M 🔥`
 1. [金莎喝咖啡喝到细菌感染](https://s.weibo.com/weibo?q=%23%E9%87%91%E8%8E%8E%E5%96%9D%E5%92%96%E5%95%A1%E5%96%9D%E5%88%B0%E7%BB%86%E8%8F%8C%E6%84%9F%E6%9F%93%23&Refer=top) `2.7M 🔥`
@@ -36,6 +37,7 @@
 1. [忘查邮箱错过了入职时间](https://s.weibo.com/weibo?q=%23%E5%BF%98%E6%9F%A5%E9%82%AE%E7%AE%B1%E9%94%99%E8%BF%87%E4%BA%86%E5%85%A5%E8%81%8C%E6%97%B6%E9%97%B4%23&Refer=top) `1.6M 🔥`
 1. [香港演员杨淇转行做保安](https://s.weibo.com/weibo?q=%23%E9%A6%99%E6%B8%AF%E6%BC%94%E5%91%98%E6%9D%A8%E6%B7%87%E8%BD%AC%E8%A1%8C%E5%81%9A%E4%BF%9D%E5%AE%89%23&Refer=top) `1.6M 🔥`
 1. [面对身材羞辱最好的回应](https://s.weibo.com/weibo?q=%23%E9%9D%A2%E5%AF%B9%E8%BA%AB%E6%9D%90%E7%BE%9E%E8%BE%B1%E6%9C%80%E5%A5%BD%E7%9A%84%E5%9B%9E%E5%BA%94%23&Refer=top) `1.5M 🔥`
+1. [八旬老人恋上保姆分手被索要20万](https://s.weibo.com/weibo?q=%23%E5%85%AB%E6%97%AC%E8%80%81%E4%BA%BA%E6%81%8B%E4%B8%8A%E4%BF%9D%E5%A7%86%E5%88%86%E6%89%8B%E8%A2%AB%E7%B4%A2%E8%A6%8120%E4%B8%87%23&Refer=top) `1.4M 🔥`
 1. [C罗拒绝与可乐同框](https://s.weibo.com/weibo?q=%23C%E7%BD%97%E6%8B%92%E7%BB%9D%E4%B8%8E%E5%8F%AF%E4%B9%90%E5%90%8C%E6%A1%86%23&Refer=top) `1.4M 🔥`
 1. [建龙集团董事长称钢价涨得不好意思了](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E9%BE%99%E9%9B%86%E5%9B%A2%E8%91%A3%E4%BA%8B%E9%95%BF%E7%A7%B0%E9%92%A2%E4%BB%B7%E6%B6%A8%E5%BE%97%E4%B8%8D%E5%A5%BD%E6%84%8F%E6%80%9D%E4%BA%86%23&Refer=top) `1.4M 🔥`
 1. [吴京防偷外卖表情包](https://s.weibo.com/weibo?q=%23%E5%90%B4%E4%BA%AC%E9%98%B2%E5%81%B7%E5%A4%96%E5%8D%96%E8%A1%A8%E6%83%85%E5%8C%85%23&Refer=top) `1.4M 🔥`
@@ -54,10 +56,8 @@
 1. [上海迪士尼](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E8%BF%AA%E5%A3%AB%E5%B0%BC%23&Refer=top) `1.2M 🔥`
 1. [王嘉尔说自己现在65公斤](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E5%98%89%E5%B0%94%E8%AF%B4%E8%87%AA%E5%B7%B1%E7%8E%B0%E5%9C%A865%E5%85%AC%E6%96%A4%23&Refer=top) `1.2M 🔥`
 1. [教资面试成绩](https://s.weibo.com/weibo?q=%E6%95%99%E8%B5%84%E9%9D%A2%E8%AF%95%E6%88%90%E7%BB%A9&Refer=top) `1.2M 🔥`
-1. [广州疫情](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E7%96%AB%E6%83%85%23&Refer=top) `1.2M 🔥`
-1. [万茜 晚风](https://s.weibo.com/weibo?q=%E4%B8%87%E8%8C%9C%20%E6%99%9A%E9%A3%8E&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-06-15 22:02:06
+数据更新于 2021-06-15 22:18:50
 
 <!-- END -->
 
