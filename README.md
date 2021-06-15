@@ -50,14 +50,14 @@
 1. [重庆夏天有多热](https://s.weibo.com/weibo?q=%23%E9%87%8D%E5%BA%86%E5%A4%8F%E5%A4%A9%E6%9C%89%E5%A4%9A%E7%83%AD%23&Refer=top) `313.5K 🔥`
 1. [C罗梅开二度](https://s.weibo.com/weibo?q=C%E7%BD%97%E6%A2%85%E5%BC%80%E4%BA%8C%E5%BA%A6&Refer=top) `300.5K 🔥`
 1. [没想到考到驾照也能社死](https://s.weibo.com/weibo?q=%23%E6%B2%A1%E6%83%B3%E5%88%B0%E8%80%83%E5%88%B0%E9%A9%BE%E7%85%A7%E4%B9%9F%E8%83%BD%E7%A4%BE%E6%AD%BB%23&Refer=top) `296.1K 🔥`
+1. [国足3比1叙利亚](https://s.weibo.com/weibo?q=%E5%9B%BD%E8%B6%B33%E6%AF%941%E5%8F%99%E5%88%A9%E4%BA%9A&Refer=top) `282.9K 🔥`
 1. [欧洲杯](https://s.weibo.com/weibo?q=%E6%AC%A7%E6%B4%B2%E6%9D%AF&Refer=top) `277.0K 🔥`
 1. [你以为老师不想装空调吗](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E4%BB%A5%E4%B8%BA%E8%80%81%E5%B8%88%E4%B8%8D%E6%83%B3%E8%A3%85%E7%A9%BA%E8%B0%83%E5%90%97%23&Refer=top) `276.5K 🔥`
 1. [5旬男子打劫金项链直接被女员工摁倒](https://s.weibo.com/weibo?q=%235%E6%97%AC%E7%94%B7%E5%AD%90%E6%89%93%E5%8A%AB%E9%87%91%E9%A1%B9%E9%93%BE%E7%9B%B4%E6%8E%A5%E8%A2%AB%E5%A5%B3%E5%91%98%E5%B7%A5%E6%91%81%E5%80%92%23&Refer=top) `276.2K 🔥`
 1. [江苏龙卷风损毁房屋90间](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%8B%8F%E9%BE%99%E5%8D%B7%E9%A3%8E%E6%8D%9F%E6%AF%81%E6%88%BF%E5%B1%8B90%E9%97%B4%23&Refer=top) `276.0K 🔥`
 1. [飞机上拍到的绝妙风景](https://s.weibo.com/weibo?q=%23%E9%A3%9E%E6%9C%BA%E4%B8%8A%E6%8B%8D%E5%88%B0%E7%9A%84%E7%BB%9D%E5%A6%99%E9%A3%8E%E6%99%AF%23&Refer=top) `275.4K 🔥`
-1. [陈祥榕把清澈的爱只为中国写头盔上](https://s.weibo.com/weibo?q=%23%E9%99%88%E7%A5%A5%E6%A6%95%E6%8A%8A%E6%B8%85%E6%BE%88%E7%9A%84%E7%88%B1%E5%8F%AA%E4%B8%BA%E4%B8%AD%E5%9B%BD%E5%86%99%E5%A4%B4%E7%9B%94%E4%B8%8A%23&Refer=top) `274.0K 🔥`
 
-数据更新于 2021-06-16 04:02:08
+数据更新于 2021-06-16 04:10:19
 
 <!-- END -->
 
