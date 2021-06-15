@@ -47,6 +47,7 @@
 1. [CNN称台山核电站泄漏](https://s.weibo.com/weibo?q=%23CNN%E7%A7%B0%E5%8F%B0%E5%B1%B1%E6%A0%B8%E7%94%B5%E7%AB%99%E6%B3%84%E6%BC%8F%23&Refer=top) `337.8K 🔥`
 1. [赵立坚劝G7给美国把脉开药](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E7%AB%8B%E5%9D%9A%E5%8A%9DG7%E7%BB%99%E7%BE%8E%E5%9B%BD%E6%8A%8A%E8%84%89%E5%BC%80%E8%8D%AF%23&Refer=top) `325.0K 🔥`
 1. [重庆夏天有多热](https://s.weibo.com/weibo?q=%23%E9%87%8D%E5%BA%86%E5%A4%8F%E5%A4%A9%E6%9C%89%E5%A4%9A%E7%83%AD%23&Refer=top) `313.5K 🔥`
+1. [C罗梅开二度](https://s.weibo.com/weibo?q=C%E7%BD%97%E6%A2%85%E5%BC%80%E4%BA%8C%E5%BA%A6&Refer=top) `300.5K 🔥`
 1. [没想到考到驾照也能社死](https://s.weibo.com/weibo?q=%23%E6%B2%A1%E6%83%B3%E5%88%B0%E8%80%83%E5%88%B0%E9%A9%BE%E7%85%A7%E4%B9%9F%E8%83%BD%E7%A4%BE%E6%AD%BB%23&Refer=top) `296.1K 🔥`
 1. [欧洲杯](https://s.weibo.com/weibo?q=%E6%AC%A7%E6%B4%B2%E6%9D%AF&Refer=top) `277.0K 🔥`
 1. [你以为老师不想装空调吗](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E4%BB%A5%E4%B8%BA%E8%80%81%E5%B8%88%E4%B8%8D%E6%83%B3%E8%A3%85%E7%A9%BA%E8%B0%83%E5%90%97%23&Refer=top) `276.5K 🔥`
@@ -55,9 +56,8 @@
 1. [飞机上拍到的绝妙风景](https://s.weibo.com/weibo?q=%23%E9%A3%9E%E6%9C%BA%E4%B8%8A%E6%8B%8D%E5%88%B0%E7%9A%84%E7%BB%9D%E5%A6%99%E9%A3%8E%E6%99%AF%23&Refer=top) `275.4K 🔥`
 1. [陈祥榕把清澈的爱只为中国写头盔上](https://s.weibo.com/weibo?q=%23%E9%99%88%E7%A5%A5%E6%A6%95%E6%8A%8A%E6%B8%85%E6%BE%88%E7%9A%84%E7%88%B1%E5%8F%AA%E4%B8%BA%E4%B8%AD%E5%9B%BD%E5%86%99%E5%A4%B4%E7%9B%94%E4%B8%8A%23&Refer=top) `274.0K 🔥`
 1. [墨子战令皮肤](https://s.weibo.com/weibo?q=%23%E5%A2%A8%E5%AD%90%E6%88%98%E4%BB%A4%E7%9A%AE%E8%82%A4%23&Refer=top) `259.2K 🔥`
-1. [湖北十堰消防员吃着包子睡着了](https://s.weibo.com/weibo?q=%23%E6%B9%96%E5%8C%97%E5%8D%81%E5%A0%B0%E6%B6%88%E9%98%B2%E5%91%98%E5%90%83%E7%9D%80%E5%8C%85%E5%AD%90%E7%9D%A1%E7%9D%80%E4%BA%86%23&Refer=top) `256.4K 🔥`
 
-数据更新于 2021-06-16 02:07:56
+数据更新于 2021-06-16 02:35:49
 
 <!-- END -->
 
