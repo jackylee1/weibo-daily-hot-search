@@ -21,12 +21,12 @@
 1. [朋友去世微信要删除吗](https://s.weibo.com/weibo?q=%23%E6%9C%8B%E5%8F%8B%E5%8E%BB%E4%B8%96%E5%BE%AE%E4%BF%A1%E8%A6%81%E5%88%A0%E9%99%A4%E5%90%97%23&Refer=top) `2.6M 🔥`
 1. [毛晓彤1250万片酬遭拖欠](https://s.weibo.com/weibo?q=%23%E6%AF%9B%E6%99%93%E5%BD%A41250%E4%B8%87%E7%89%87%E9%85%AC%E9%81%AD%E6%8B%96%E6%AC%A0%23&Refer=top) `2.4M 🔥`
 1. [柯南工作人员 杨国福](https://s.weibo.com/weibo?q=%E6%9F%AF%E5%8D%97%E5%B7%A5%E4%BD%9C%E4%BA%BA%E5%91%98%20%E6%9D%A8%E5%9B%BD%E7%A6%8F&Refer=top) `2.4M 🔥`
+1. [中国人真的吃光了全球的海鲜吗](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E4%BA%BA%E7%9C%9F%E7%9A%84%E5%90%83%E5%85%89%E4%BA%86%E5%85%A8%E7%90%83%E7%9A%84%E6%B5%B7%E9%B2%9C%E5%90%97&Refer=top) `2.0M 🔥`
 1. [王者荣耀打到国服前十被封号](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E8%80%85%E8%8D%A3%E8%80%80%E6%89%93%E5%88%B0%E5%9B%BD%E6%9C%8D%E5%89%8D%E5%8D%81%E8%A2%AB%E5%B0%81%E5%8F%B7%23&Refer=top) `1.9M 🔥`
 1. [清华毕业应聘保姆涉事家政公司被立案](https://s.weibo.com/weibo?q=%23%E6%B8%85%E5%8D%8E%E6%AF%95%E4%B8%9A%E5%BA%94%E8%81%98%E4%BF%9D%E5%A7%86%E6%B6%89%E4%BA%8B%E5%AE%B6%E6%94%BF%E5%85%AC%E5%8F%B8%E8%A2%AB%E7%AB%8B%E6%A1%88%23&Refer=top) `1.9M 🔥`
 1. [被老板女儿看中后离职](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E8%80%81%E6%9D%BF%E5%A5%B3%E5%84%BF%E7%9C%8B%E4%B8%AD%E5%90%8E%E7%A6%BB%E8%81%8C%23&Refer=top) `1.9M 🔥`
 1. [芈十四 考编](https://s.weibo.com/weibo?q=%E8%8A%88%E5%8D%81%E5%9B%9B%20%E8%80%83%E7%BC%96&Refer=top) `1.9M 🔥`
 1. [孟美岐跑800米赶上了飞机也不飞](https://s.weibo.com/weibo?q=%23%E5%AD%9F%E7%BE%8E%E5%B2%90%E8%B7%91800%E7%B1%B3%E8%B5%B6%E4%B8%8A%E4%BA%86%E9%A3%9E%E6%9C%BA%E4%B9%9F%E4%B8%8D%E9%A3%9E%23&Refer=top) `1.9M 🔥`
-1. [中国人真的吃光了全球的海鲜吗](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E4%BA%BA%E7%9C%9F%E7%9A%84%E5%90%83%E5%85%89%E4%BA%86%E5%85%A8%E7%90%83%E7%9A%84%E6%B5%B7%E9%B2%9C%E5%90%97&Refer=top) `1.9M 🔥`
 1. [王源新专辑夏野了](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E6%BA%90%E6%96%B0%E4%B8%93%E8%BE%91%E5%A4%8F%E9%87%8E%E4%BA%86%23&Refer=top) `1.8M 🔥`
 1. [第一次见家长让女友做饭](https://s.weibo.com/weibo?q=%23%E7%AC%AC%E4%B8%80%E6%AC%A1%E8%A7%81%E5%AE%B6%E9%95%BF%E8%AE%A9%E5%A5%B3%E5%8F%8B%E5%81%9A%E9%A5%AD%23&Refer=top) `1.8M 🔥`
 1. [男朋友带剩饭剩菜给我](https://s.weibo.com/weibo?q=%23%E7%94%B7%E6%9C%8B%E5%8F%8B%E5%B8%A6%E5%89%A9%E9%A5%AD%E5%89%A9%E8%8F%9C%E7%BB%99%E6%88%91%23&Refer=top) `1.8M 🔥`
@@ -57,7 +57,7 @@
 1. [李沁的腰](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E6%B2%81%E7%9A%84%E8%85%B0%23&Refer=top) `957.4K 🔥`
 1. [钟薛高是智商税还是物有所值](https://s.weibo.com/weibo?q=%23%E9%92%9F%E8%96%9B%E9%AB%98%E6%98%AF%E6%99%BA%E5%95%86%E7%A8%8E%E8%BF%98%E6%98%AF%E7%89%A9%E6%9C%89%E6%89%80%E5%80%BC%23&Refer=top) `939.6K 🔥`
 
-数据更新于 2021-06-16 17:50:16
+数据更新于 2021-06-16 17:55:45
 
 <!-- END -->
 
