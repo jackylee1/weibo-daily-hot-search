@@ -28,6 +28,7 @@
 1. [许渊冲逝世](https://s.weibo.com/weibo?q=%23%E8%AE%B8%E6%B8%8A%E5%86%B2%E9%80%9D%E4%B8%96%23&Refer=top) `2.5M 🔥`
 1. [尔冬升 13岁的小演员能有什么话语权](https://s.weibo.com/weibo?q=%E5%B0%94%E5%86%AC%E5%8D%87%2013%E5%B2%81%E7%9A%84%E5%B0%8F%E6%BC%94%E5%91%98%E8%83%BD%E6%9C%89%E4%BB%80%E4%B9%88%E8%AF%9D%E8%AF%AD%E6%9D%83&Refer=top) `2.5M 🔥`
 1. [抉择](https://s.weibo.com/weibo?q=%E6%8A%89%E6%8B%A9&Refer=top) `2.2M 🔥`
+1. [容祖儿回应与陈小纭争执](https://s.weibo.com/weibo?q=%23%E5%AE%B9%E7%A5%96%E5%84%BF%E5%9B%9E%E5%BA%94%E4%B8%8E%E9%99%88%E5%B0%8F%E7%BA%AD%E4%BA%89%E6%89%A7%23&Refer=top) `2.2M 🔥`
 1. [许晴穿11年前的旧衣服拍写真](https://s.weibo.com/weibo?q=%23%E8%AE%B8%E6%99%B4%E7%A9%BF11%E5%B9%B4%E5%89%8D%E7%9A%84%E6%97%A7%E8%A1%A3%E6%9C%8D%E6%8B%8D%E5%86%99%E7%9C%9F%23&Refer=top) `2.1M 🔥`
 1. [国航一航班32人检出阳性被立即熔断](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E8%88%AA%E4%B8%80%E8%88%AA%E7%8F%AD32%E4%BA%BA%E6%A3%80%E5%87%BA%E9%98%B3%E6%80%A7%E8%A2%AB%E7%AB%8B%E5%8D%B3%E7%86%94%E6%96%AD%23&Refer=top) `2.0M 🔥`
 1. [90平米公寓内住39人](https://s.weibo.com/weibo?q=%2390%E5%B9%B3%E7%B1%B3%E5%85%AC%E5%AF%93%E5%86%85%E4%BD%8F39%E4%BA%BA%23&Refer=top) `2.0M 🔥`
@@ -40,13 +41,13 @@
 1. [猪坚强遗体已被冰冻](https://s.weibo.com/weibo?q=%23%E7%8C%AA%E5%9D%9A%E5%BC%BA%E9%81%97%E4%BD%93%E5%B7%B2%E8%A2%AB%E5%86%B0%E5%86%BB%23&Refer=top) `1.7M 🔥`
 1. [刘宇宁张碧晨合唱天问 不搭](https://s.weibo.com/weibo?q=%E5%88%98%E5%AE%87%E5%AE%81%E5%BC%A0%E7%A2%A7%E6%99%A8%E5%90%88%E5%94%B1%E5%A4%A9%E9%97%AE%20%E4%B8%8D%E6%90%AD&Refer=top) `1.7M 🔥`
 1. [玉骨遥剧组声明](https://s.weibo.com/weibo?q=%23%E7%8E%89%E9%AA%A8%E9%81%A5%E5%89%A7%E7%BB%84%E5%A3%B0%E6%98%8E%23&Refer=top) `1.7M 🔥`
+1. [周冬雨演的上古](https://s.weibo.com/weibo?q=%23%E5%91%A8%E5%86%AC%E9%9B%A8%E6%BC%94%E7%9A%84%E4%B8%8A%E5%8F%A4%23&Refer=top) `1.7M 🔥`
 1. [家人要写我名给弟弟买房](https://s.weibo.com/weibo?q=%23%E5%AE%B6%E4%BA%BA%E8%A6%81%E5%86%99%E6%88%91%E5%90%8D%E7%BB%99%E5%BC%9F%E5%BC%9F%E4%B9%B0%E6%88%BF%23&Refer=top) `1.7M 🔥`
 1. [蔡徐坤 真的要我写一首十分钟的歌吗](https://s.weibo.com/weibo?q=%E8%94%A1%E5%BE%90%E5%9D%A4%20%E7%9C%9F%E7%9A%84%E8%A6%81%E6%88%91%E5%86%99%E4%B8%80%E9%A6%96%E5%8D%81%E5%88%86%E9%92%9F%E7%9A%84%E6%AD%8C%E5%90%97&Refer=top) `1.6M 🔥`
 1. [3名航天员顺利进驻天和核心舱](https://s.weibo.com/weibo?q=%233%E5%90%8D%E8%88%AA%E5%A4%A9%E5%91%98%E9%A1%BA%E5%88%A9%E8%BF%9B%E9%A9%BB%E5%A4%A9%E5%92%8C%E6%A0%B8%E5%BF%83%E8%88%B1%23&Refer=top) `1.6M 🔥`
 1. [钟薛高创始人林盛回应争议言论](https://s.weibo.com/weibo?q=%23%E9%92%9F%E8%96%9B%E9%AB%98%E5%88%9B%E5%A7%8B%E4%BA%BA%E6%9E%97%E7%9B%9B%E5%9B%9E%E5%BA%94%E4%BA%89%E8%AE%AE%E8%A8%80%E8%AE%BA%23&Refer=top) `1.6M 🔥`
 1. [中国疫苗成为入境多国有效证明](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E7%96%AB%E8%8B%97%E6%88%90%E4%B8%BA%E5%85%A5%E5%A2%83%E5%A4%9A%E5%9B%BD%E6%9C%89%E6%95%88%E8%AF%81%E6%98%8E%23&Refer=top) `1.6M 🔥`
 1. [许渊冲](https://s.weibo.com/weibo?q=%E8%AE%B8%E6%B8%8A%E5%86%B2&Refer=top) `1.6M 🔥`
-1. [周冬雨演的上古](https://s.weibo.com/weibo?q=%23%E5%91%A8%E5%86%AC%E9%9B%A8%E6%BC%94%E7%9A%84%E4%B8%8A%E5%8F%A4%23&Refer=top) `1.5M 🔥`
 1. [两教师收家长5万元企图协助高考作弊](https://s.weibo.com/weibo?q=%23%E4%B8%A4%E6%95%99%E5%B8%88%E6%94%B6%E5%AE%B6%E9%95%BF5%E4%B8%87%E5%85%83%E4%BC%81%E5%9B%BE%E5%8D%8F%E5%8A%A9%E9%AB%98%E8%80%83%E4%BD%9C%E5%BC%8A%23&Refer=top) `1.4M 🔥`
 1. [陈小纭进不了北京相亲二群](https://s.weibo.com/weibo?q=%23%E9%99%88%E5%B0%8F%E7%BA%AD%E8%BF%9B%E4%B8%8D%E4%BA%86%E5%8C%97%E4%BA%AC%E7%9B%B8%E4%BA%B2%E4%BA%8C%E7%BE%A4%23&Refer=top) `1.4M 🔥`
 1. [3名航天员在天和核心舱向全国人民敬礼](https://s.weibo.com/weibo?q=%233%E5%90%8D%E8%88%AA%E5%A4%A9%E5%91%98%E5%9C%A8%E5%A4%A9%E5%92%8C%E6%A0%B8%E5%BF%83%E8%88%B1%E5%90%91%E5%85%A8%E5%9B%BD%E4%BA%BA%E6%B0%91%E6%95%AC%E7%A4%BC%23&Refer=top) `1.4M 🔥`
@@ -55,9 +56,8 @@
 1. [保罗注射疫苗后仍感染新冠](https://s.weibo.com/weibo?q=%23%E4%BF%9D%E7%BD%97%E6%B3%A8%E5%B0%84%E7%96%AB%E8%8B%97%E5%90%8E%E4%BB%8D%E6%84%9F%E6%9F%93%E6%96%B0%E5%86%A0%23&Refer=top) `1.3M 🔥`
 1. [90后香港女孩在贵州山区造了片花海](https://s.weibo.com/weibo?q=%2390%E5%90%8E%E9%A6%99%E6%B8%AF%E5%A5%B3%E5%AD%A9%E5%9C%A8%E8%B4%B5%E5%B7%9E%E5%B1%B1%E5%8C%BA%E9%80%A0%E4%BA%86%E7%89%87%E8%8A%B1%E6%B5%B7%23&Refer=top) `1.2M 🔥`
 1. [第一颗氢弹爆炸54周年神舟十二飞天](https://s.weibo.com/weibo?q=%E7%AC%AC%E4%B8%80%E9%A2%97%E6%B0%A2%E5%BC%B9%E7%88%86%E7%82%B854%E5%91%A8%E5%B9%B4%E7%A5%9E%E8%88%9F%E5%8D%81%E4%BA%8C%E9%A3%9E%E5%A4%A9&Refer=top) `1.2M 🔥`
-1. [Angelababy说十年前我就挺火的](https://s.weibo.com/weibo?q=%23Angelababy%E8%AF%B4%E5%8D%81%E5%B9%B4%E5%89%8D%E6%88%91%E5%B0%B1%E6%8C%BA%E7%81%AB%E7%9A%84%23&Refer=top) `1.2M 🔥`
 
-数据更新于 2021-06-17 22:18:58
+数据更新于 2021-06-17 22:32:25
 
 <!-- END -->
 
