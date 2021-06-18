@@ -57,7 +57,7 @@
 1. [动车司机手握7本驾照被科目二难倒](https://s.weibo.com/weibo?q=%23%E5%8A%A8%E8%BD%A6%E5%8F%B8%E6%9C%BA%E6%89%8B%E6%8F%A17%E6%9C%AC%E9%A9%BE%E7%85%A7%E8%A2%AB%E7%A7%91%E7%9B%AE%E4%BA%8C%E9%9A%BE%E5%80%92%23&Refer=top) `740.3K 🔥`
 1. [女子千万豪宅被离婚18年的前夫变卖](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E5%8D%83%E4%B8%87%E8%B1%AA%E5%AE%85%E8%A2%AB%E7%A6%BB%E5%A9%9A18%E5%B9%B4%E7%9A%84%E5%89%8D%E5%A4%AB%E5%8F%98%E5%8D%96%23&Refer=top) `729.9K 🔥`
 
-数据更新于 2021-06-18 16:02:51
+数据更新于 2021-06-18 16:14:51
 
 <!-- END -->
 
