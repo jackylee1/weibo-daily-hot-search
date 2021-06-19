@@ -9,6 +9,7 @@
 1. [大S婚礼 当年最精彩喜剧片](https://s.weibo.com/weibo?q=%E5%A4%A7S%E5%A9%9A%E7%A4%BC%20%E5%BD%93%E5%B9%B4%E6%9C%80%E7%B2%BE%E5%BD%A9%E5%96%9C%E5%89%A7%E7%89%87&Refer=top) `5.0M 🔥`
 1. [刘德华确定出演流浪地球2](https://s.weibo.com/weibo?q=%23%E5%88%98%E5%BE%B7%E5%8D%8E%E7%A1%AE%E5%AE%9A%E5%87%BA%E6%BC%94%E6%B5%81%E6%B5%AA%E5%9C%B0%E7%90%832%23&Refer=top) `3.8M 🔥`
 1. [宋妍霏六年后向佟大为道歉](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E5%A6%8D%E9%9C%8F%E5%85%AD%E5%B9%B4%E5%90%8E%E5%90%91%E4%BD%9F%E5%A4%A7%E4%B8%BA%E9%81%93%E6%AD%89%23&Refer=top) `3.4M 🔥`
+1. [佟大为 一直觉得宋妍霏很出色](https://s.weibo.com/weibo?q=%E4%BD%9F%E5%A4%A7%E4%B8%BA%20%E4%B8%80%E7%9B%B4%E8%A7%89%E5%BE%97%E5%AE%8B%E5%A6%8D%E9%9C%8F%E5%BE%88%E5%87%BA%E8%89%B2&Refer=top) `3.4M 🔥`
 1. [黄渤 晚点去蘑菇屋咱们好好聊聊](https://s.weibo.com/weibo?q=%E9%BB%84%E6%B8%A4%20%E6%99%9A%E7%82%B9%E5%8E%BB%E8%98%91%E8%8F%87%E5%B1%8B%E5%92%B1%E4%BB%AC%E5%A5%BD%E5%A5%BD%E8%81%8A%E8%81%8A&Refer=top) `3.3M 🔥`
 1. [动车D2956](https://s.weibo.com/weibo?q=%23%E5%8A%A8%E8%BD%A6D2956%23&Refer=top) `3.3M 🔥`
 1. [遵义会议会址里唯一活着的文物](https://s.weibo.com/weibo?q=%23%E9%81%B5%E4%B9%89%E4%BC%9A%E8%AE%AE%E4%BC%9A%E5%9D%80%E9%87%8C%E5%94%AF%E4%B8%80%E6%B4%BB%E7%9D%80%E7%9A%84%E6%96%87%E7%89%A9%23&Refer=top) `3.2M 🔥`
@@ -31,7 +32,6 @@
 1. [提离职后老板让请喝奶茶](https://s.weibo.com/weibo?q=%23%E6%8F%90%E7%A6%BB%E8%81%8C%E5%90%8E%E8%80%81%E6%9D%BF%E8%AE%A9%E8%AF%B7%E5%96%9D%E5%A5%B6%E8%8C%B6%23&Refer=top) `1.3M 🔥`
 1. [中国女排5连胜](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%A5%B3%E6%8E%925%E8%BF%9E%E8%83%9C%23&Refer=top) `1.3M 🔥`
 1. [广州荔湾3人燃放烟花爆竹被罚款](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E8%8D%94%E6%B9%BE3%E4%BA%BA%E7%87%83%E6%94%BE%E7%83%9F%E8%8A%B1%E7%88%86%E7%AB%B9%E8%A2%AB%E7%BD%9A%E6%AC%BE%23&Refer=top) `1.3M 🔥`
-1. [佟大为 一直觉得宋妍霏很出色](https://s.weibo.com/weibo?q=%E4%BD%9F%E5%A4%A7%E4%B8%BA%20%E4%B8%80%E7%9B%B4%E8%A7%89%E5%BE%97%E5%AE%8B%E5%A6%8D%E9%9C%8F%E5%BE%88%E5%87%BA%E8%89%B2&Refer=top) `1.2M 🔥`
 1. [夫妻卖假奢侈品2年获利1000万](https://s.weibo.com/weibo?q=%23%E5%A4%AB%E5%A6%BB%E5%8D%96%E5%81%87%E5%A5%A2%E4%BE%88%E5%93%812%E5%B9%B4%E8%8E%B7%E5%88%A91000%E4%B8%87%23&Refer=top) `1.1M 🔥`
 1. [美国街头94岁华裔老人被连捅数刀](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E8%A1%97%E5%A4%B494%E5%B2%81%E5%8D%8E%E8%A3%94%E8%80%81%E4%BA%BA%E8%A2%AB%E8%BF%9E%E6%8D%85%E6%95%B0%E5%88%80%23&Refer=top) `1.1M 🔥`
 1. [打疫苗时该死的仪式感](https://s.weibo.com/weibo?q=%23%E6%89%93%E7%96%AB%E8%8B%97%E6%97%B6%E8%AF%A5%E6%AD%BB%E7%9A%84%E4%BB%AA%E5%BC%8F%E6%84%9F%23&Refer=top) `1.1M 🔥`
@@ -54,10 +54,10 @@
 1. [想见你 古装版](https://s.weibo.com/weibo?q=%E6%83%B3%E8%A7%81%E4%BD%A0%20%E5%8F%A4%E8%A3%85%E7%89%88&Refer=top) `891.2K 🔥`
 1. [熊猫吃苹果前在脑袋上蹭干净](https://s.weibo.com/weibo?q=%23%E7%86%8A%E7%8C%AB%E5%90%83%E8%8B%B9%E6%9E%9C%E5%89%8D%E5%9C%A8%E8%84%91%E8%A2%8B%E4%B8%8A%E8%B9%AD%E5%B9%B2%E5%87%80%23&Refer=top) `879.3K 🔥`
 1. [周琦发球失误](https://s.weibo.com/weibo?q=%E5%91%A8%E7%90%A6%E5%8F%91%E7%90%83%E5%A4%B1%E8%AF%AF&Refer=top) `878.1K 🔥`
+1. [被张本天杰气死](https://s.weibo.com/weibo?q=%E8%A2%AB%E5%BC%A0%E6%9C%AC%E5%A4%A9%E6%9D%B0%E6%B0%94%E6%AD%BB&Refer=top) `876.6K 🔥`
 1. [东莞新增1例新冠肺炎确诊病例](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E8%8E%9E%E6%96%B0%E5%A2%9E1%E4%BE%8B%E6%96%B0%E5%86%A0%E8%82%BA%E7%82%8E%E7%A1%AE%E8%AF%8A%E7%97%85%E4%BE%8B%23&Refer=top) `867.8K 🔥`
-1. [欧洲杯球员纷纷模仿C罗挪开赞助商饮料](https://s.weibo.com/weibo?q=%23%E6%AC%A7%E6%B4%B2%E6%9D%AF%E7%90%83%E5%91%98%E7%BA%B7%E7%BA%B7%E6%A8%A1%E4%BB%BFC%E7%BD%97%E6%8C%AA%E5%BC%80%E8%B5%9E%E5%8A%A9%E5%95%86%E9%A5%AE%E6%96%99%23&Refer=top) `845.2K 🔥`
 
-数据更新于 2021-06-19 17:20:54
+数据更新于 2021-06-19 17:38:52
 
 <!-- END -->
 
