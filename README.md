@@ -12,7 +12,7 @@
 1. [清华博士接亲被要求现场写代码](https://s.weibo.com/weibo?q=%23%E6%B8%85%E5%8D%8E%E5%8D%9A%E5%A3%AB%E6%8E%A5%E4%BA%B2%E8%A2%AB%E8%A6%81%E6%B1%82%E7%8E%B0%E5%9C%BA%E5%86%99%E4%BB%A3%E7%A0%81%23&Refer=top) `3.5M 🔥`
 1. [84岁的钟南山有多拼](https://s.weibo.com/weibo?q=%2384%E5%B2%81%E7%9A%84%E9%92%9F%E5%8D%97%E5%B1%B1%E6%9C%89%E5%A4%9A%E6%8B%BC%23&Refer=top) `3.3M 🔥`
 1. [接种疫苗后台湾62人猝死](https://s.weibo.com/weibo?q=%23%E6%8E%A5%E7%A7%8D%E7%96%AB%E8%8B%97%E5%90%8E%E5%8F%B0%E6%B9%BE62%E4%BA%BA%E7%8C%9D%E6%AD%BB%23&Refer=top) `3.2M 🔥`
-1. [教授称生三胎或能缓解教育焦虑](https://s.weibo.com/weibo?q=%23%E6%95%99%E6%8E%88%E7%A7%B0%E7%94%9F%E4%B8%89%E8%83%8E%E6%88%96%E8%83%BD%E7%BC%93%E8%A7%A3%E6%95%99%E8%82%B2%E7%84%A6%E8%99%91%23&Refer=top) `3.0M 🔥`
+1. [教授称生三胎或能缓解教育焦虑](https://s.weibo.com/weibo?q=%23%E6%95%99%E6%8E%88%E7%A7%B0%E7%94%9F%E4%B8%89%E8%83%8E%E6%88%96%E8%83%BD%E7%BC%93%E8%A7%A3%E6%95%99%E8%82%B2%E7%84%A6%E8%99%91%23&Refer=top) `3.1M 🔥`
 1. [我国新冠疫苗接种剂次超10亿](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A7%8D%E5%89%82%E6%AC%A1%E8%B6%8510%E4%BA%BF%23&Refer=top) `2.8M 🔥`
 1. [等等小花给邓超的父亲节祝福](https://s.weibo.com/weibo?q=%23%E7%AD%89%E7%AD%89%E5%B0%8F%E8%8A%B1%E7%BB%99%E9%82%93%E8%B6%85%E7%9A%84%E7%88%B6%E4%BA%B2%E8%8A%82%E7%A5%9D%E7%A6%8F%23&Refer=top) `2.3M 🔥`
 1. [Giao哥演出被打](https://s.weibo.com/weibo?q=%23Giao%E5%93%A5%E6%BC%94%E5%87%BA%E8%A2%AB%E6%89%93%23&Refer=top) `2.1M 🔥`
@@ -20,14 +20,16 @@
 1. [李雪琴郭麒麟成年人社交潜规则](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E9%9B%AA%E7%90%B4%E9%83%AD%E9%BA%92%E9%BA%9F%E6%88%90%E5%B9%B4%E4%BA%BA%E7%A4%BE%E4%BA%A4%E6%BD%9C%E8%A7%84%E5%88%99%23&Refer=top) `2.1M 🔥`
 1. [向佐全家福](https://s.weibo.com/weibo?q=%23%E5%90%91%E4%BD%90%E5%85%A8%E5%AE%B6%E7%A6%8F%23&Refer=top) `2.0M 🔥`
 1. [父亲节反而被爸爸送礼物](https://s.weibo.com/weibo?q=%23%E7%88%B6%E4%BA%B2%E8%8A%82%E5%8F%8D%E8%80%8C%E8%A2%AB%E7%88%B8%E7%88%B8%E9%80%81%E7%A4%BC%E7%89%A9%23&Refer=top) `2.0M 🔥`
+1. [父亲已牺牲半年5岁女儿仍在盼他回家](https://s.weibo.com/weibo?q=%23%E7%88%B6%E4%BA%B2%E5%B7%B2%E7%89%BA%E7%89%B2%E5%8D%8A%E5%B9%B45%E5%B2%81%E5%A5%B3%E5%84%BF%E4%BB%8D%E5%9C%A8%E7%9B%BC%E4%BB%96%E5%9B%9E%E5%AE%B6%23&Refer=top) `1.9M 🔥`
 1. [应采儿 陈小春年轻时候我还是个孩子](https://s.weibo.com/weibo?q=%E5%BA%94%E9%87%87%E5%84%BF%20%E9%99%88%E5%B0%8F%E6%98%A5%E5%B9%B4%E8%BD%BB%E6%97%B6%E5%80%99%E6%88%91%E8%BF%98%E6%98%AF%E4%B8%AA%E5%AD%A9%E5%AD%90&Refer=top) `1.9M 🔥`
 1. [东莞麻涌](https://s.weibo.com/weibo?q=%E4%B8%9C%E8%8E%9E%E9%BA%BB%E6%B6%8C&Refer=top) `1.8M 🔥`
 1. [迪丽热巴佟丽娅小尼聊新疆](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E4%BD%9F%E4%B8%BD%E5%A8%85%E5%B0%8F%E5%B0%BC%E8%81%8A%E6%96%B0%E7%96%86%23&Refer=top) `1.7M 🔥`
 1. [能不能给张新成整个最佳女主奖](https://s.weibo.com/weibo?q=%23%E8%83%BD%E4%B8%8D%E8%83%BD%E7%BB%99%E5%BC%A0%E6%96%B0%E6%88%90%E6%95%B4%E4%B8%AA%E6%9C%80%E4%BD%B3%E5%A5%B3%E4%B8%BB%E5%A5%96%23&Refer=top) `1.7M 🔥`
 1. [男友领证前给爸爸发的短信](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%8F%8B%E9%A2%86%E8%AF%81%E5%89%8D%E7%BB%99%E7%88%B8%E7%88%B8%E5%8F%91%E7%9A%84%E7%9F%AD%E4%BF%A1%23&Refer=top) `1.7M 🔥`
+1. [蔡英文悼念拜登死去的狗](https://s.weibo.com/weibo?q=%23%E8%94%A1%E8%8B%B1%E6%96%87%E6%82%BC%E5%BF%B5%E6%8B%9C%E7%99%BB%E6%AD%BB%E5%8E%BB%E7%9A%84%E7%8B%97%23&Refer=top) `1.7M 🔥`
 1. [男子散步踩蛇吓出销魂舞步](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E6%95%A3%E6%AD%A5%E8%B8%A9%E8%9B%87%E5%90%93%E5%87%BA%E9%94%80%E9%AD%82%E8%88%9E%E6%AD%A5%23&Refer=top) `1.6M 🔥`
-1. [蔡英文悼念拜登死去的狗](https://s.weibo.com/weibo?q=%23%E8%94%A1%E8%8B%B1%E6%96%87%E6%82%BC%E5%BF%B5%E6%8B%9C%E7%99%BB%E6%AD%BB%E5%8E%BB%E7%9A%84%E7%8B%97%23&Refer=top) `1.6M 🔥`
 1. [央视曝高薪出境打工多是骗局](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E6%9B%9D%E9%AB%98%E8%96%AA%E5%87%BA%E5%A2%83%E6%89%93%E5%B7%A5%E5%A4%9A%E6%98%AF%E9%AA%97%E5%B1%80%23&Refer=top) `1.4M 🔥`
+1. [中国女排 美国女排](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E5%A5%B3%E6%8E%92%20%E7%BE%8E%E5%9B%BD%E5%A5%B3%E6%8E%92&Refer=top) `1.3M 🔥`
 1. [疑似被拐小女孩其实是小狗](https://s.weibo.com/weibo?q=%23%E7%96%91%E4%BC%BC%E8%A2%AB%E6%8B%90%E5%B0%8F%E5%A5%B3%E5%AD%A9%E5%85%B6%E5%AE%9E%E6%98%AF%E5%B0%8F%E7%8B%97%23&Refer=top) `1.3M 🔥`
 1. [蔡徐坤邀请郭麒麟当MV女主](https://s.weibo.com/weibo?q=%23%E8%94%A1%E5%BE%90%E5%9D%A4%E9%82%80%E8%AF%B7%E9%83%AD%E9%BA%92%E9%BA%9F%E5%BD%93MV%E5%A5%B3%E4%B8%BB%23&Refer=top) `1.3M 🔥`
 1. [美国黑人女袭击亚裔被打到连声求饶](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E9%BB%91%E4%BA%BA%E5%A5%B3%E8%A2%AD%E5%87%BB%E4%BA%9A%E8%A3%94%E8%A2%AB%E6%89%93%E5%88%B0%E8%BF%9E%E5%A3%B0%E6%B1%82%E9%A5%B6%23&Refer=top) `1.3M 🔥`
@@ -38,7 +40,6 @@
 1. [林莉一失误就被换下](https://s.weibo.com/weibo?q=%23%E6%9E%97%E8%8E%89%E4%B8%80%E5%A4%B1%E8%AF%AF%E5%B0%B1%E8%A2%AB%E6%8D%A2%E4%B8%8B%23&Refer=top) `1.1M 🔥`
 1. [中国女排提前无缘世界联赛四强](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%A5%B3%E6%8E%92%E6%8F%90%E5%89%8D%E6%97%A0%E7%BC%98%E4%B8%96%E7%95%8C%E8%81%94%E8%B5%9B%E5%9B%9B%E5%BC%BA%23&Refer=top) `1.1M 🔥`
 1. [外交部提醒在阿富汗中国公民尽早离境](https://s.weibo.com/weibo?q=%23%E5%A4%96%E4%BA%A4%E9%83%A8%E6%8F%90%E9%86%92%E5%9C%A8%E9%98%BF%E5%AF%8C%E6%B1%97%E4%B8%AD%E5%9B%BD%E5%85%AC%E6%B0%91%E5%B0%BD%E6%97%A9%E7%A6%BB%E5%A2%83%23&Refer=top) `1.1M 🔥`
-1. [中国女排 美国女排](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E5%A5%B3%E6%8E%92%20%E7%BE%8E%E5%9B%BD%E5%A5%B3%E6%8E%92&Refer=top) `1.1M 🔥`
 1. [外籍女子拒戴口罩冲乘客竖中指](https://s.weibo.com/weibo?q=%23%E5%A4%96%E7%B1%8D%E5%A5%B3%E5%AD%90%E6%8B%92%E6%88%B4%E5%8F%A3%E7%BD%A9%E5%86%B2%E4%B9%98%E5%AE%A2%E7%AB%96%E4%B8%AD%E6%8C%87%23&Refer=top) `1.1M 🔥`
 1. [吴宣仪和弟弟在社会上没有血缘关系](https://s.weibo.com/weibo?q=%23%E5%90%B4%E5%AE%A3%E4%BB%AA%E5%92%8C%E5%BC%9F%E5%BC%9F%E5%9C%A8%E7%A4%BE%E4%BC%9A%E4%B8%8A%E6%B2%A1%E6%9C%89%E8%A1%80%E7%BC%98%E5%85%B3%E7%B3%BB%23&Refer=top) `1.1M 🔥`
 1. [雄鹿淘汰篮网](https://s.weibo.com/weibo?q=%23%E9%9B%84%E9%B9%BF%E6%B7%98%E6%B1%B0%E7%AF%AE%E7%BD%91%23&Refer=top) `1.0M 🔥`
@@ -55,9 +56,8 @@
 1. [葡萄牙乌龙球](https://s.weibo.com/weibo?q=%E8%91%A1%E8%90%84%E7%89%99%E4%B9%8C%E9%BE%99%E7%90%83&Refer=top) `873.2K 🔥`
 1. [杨梅成国外高端水果](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E6%A2%85%E6%88%90%E5%9B%BD%E5%A4%96%E9%AB%98%E7%AB%AF%E6%B0%B4%E6%9E%9C%23&Refer=top) `870.9K 🔥`
 1. [华为供应链公司已收到Mate50设计方案](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E4%B8%BA%E4%BE%9B%E5%BA%94%E9%93%BE%E5%85%AC%E5%8F%B8%E5%B7%B2%E6%94%B6%E5%88%B0Mate50%E8%AE%BE%E8%AE%A1%E6%96%B9%E6%A1%88%23&Refer=top) `869.4K 🔥`
-1. [原来长相也会被爸妈嫌弃](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E9%95%BF%E7%9B%B8%E4%B9%9F%E4%BC%9A%E8%A2%AB%E7%88%B8%E5%A6%88%E5%AB%8C%E5%BC%83%23&Refer=top) `866.3K 🔥`
 
-数据更新于 2021-06-20 19:25:13
+数据更新于 2021-06-20 19:33:34
 
 <!-- END -->
 
