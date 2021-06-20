@@ -10,9 +10,9 @@
 1. [离婚后爸爸发来的微信消息](https://s.weibo.com/weibo?q=%23%E7%A6%BB%E5%A9%9A%E5%90%8E%E7%88%B8%E7%88%B8%E5%8F%91%E6%9D%A5%E7%9A%84%E5%BE%AE%E4%BF%A1%E6%B6%88%E6%81%AF%23&Refer=top) `4.7M 🔥`
 1. [张智霖袁咏仪儿子的腿](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%99%BA%E9%9C%96%E8%A2%81%E5%92%8F%E4%BB%AA%E5%84%BF%E5%AD%90%E7%9A%84%E8%85%BF%23&Refer=top) `3.9M 🔥`
 1. [清华博士接亲被要求现场写代码](https://s.weibo.com/weibo?q=%23%E6%B8%85%E5%8D%8E%E5%8D%9A%E5%A3%AB%E6%8E%A5%E4%BA%B2%E8%A2%AB%E8%A6%81%E6%B1%82%E7%8E%B0%E5%9C%BA%E5%86%99%E4%BB%A3%E7%A0%81%23&Refer=top) `3.5M 🔥`
+1. [教授称生三胎或能缓解教育焦虑](https://s.weibo.com/weibo?q=%23%E6%95%99%E6%8E%88%E7%A7%B0%E7%94%9F%E4%B8%89%E8%83%8E%E6%88%96%E8%83%BD%E7%BC%93%E8%A7%A3%E6%95%99%E8%82%B2%E7%84%A6%E8%99%91%23&Refer=top) `3.4M 🔥`
 1. [84岁的钟南山有多拼](https://s.weibo.com/weibo?q=%2384%E5%B2%81%E7%9A%84%E9%92%9F%E5%8D%97%E5%B1%B1%E6%9C%89%E5%A4%9A%E6%8B%BC%23&Refer=top) `3.3M 🔥`
 1. [接种疫苗后台湾62人猝死](https://s.weibo.com/weibo?q=%23%E6%8E%A5%E7%A7%8D%E7%96%AB%E8%8B%97%E5%90%8E%E5%8F%B0%E6%B9%BE62%E4%BA%BA%E7%8C%9D%E6%AD%BB%23&Refer=top) `3.2M 🔥`
-1. [教授称生三胎或能缓解教育焦虑](https://s.weibo.com/weibo?q=%23%E6%95%99%E6%8E%88%E7%A7%B0%E7%94%9F%E4%B8%89%E8%83%8E%E6%88%96%E8%83%BD%E7%BC%93%E8%A7%A3%E6%95%99%E8%82%B2%E7%84%A6%E8%99%91%23&Refer=top) `3.2M 🔥`
 1. [我国新冠疫苗接种剂次超10亿](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A7%8D%E5%89%82%E6%AC%A1%E8%B6%8510%E4%BA%BF%23&Refer=top) `2.8M 🔥`
 1. [等等小花给邓超的父亲节祝福](https://s.weibo.com/weibo?q=%23%E7%AD%89%E7%AD%89%E5%B0%8F%E8%8A%B1%E7%BB%99%E9%82%93%E8%B6%85%E7%9A%84%E7%88%B6%E4%BA%B2%E8%8A%82%E7%A5%9D%E7%A6%8F%23&Refer=top) `2.3M 🔥`
 1. [Giao哥演出被打](https://s.weibo.com/weibo?q=%23Giao%E5%93%A5%E6%BC%94%E5%87%BA%E8%A2%AB%E6%89%93%23&Refer=top) `2.1M 🔥`
@@ -20,7 +20,7 @@
 1. [李雪琴郭麒麟成年人社交潜规则](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E9%9B%AA%E7%90%B4%E9%83%AD%E9%BA%92%E9%BA%9F%E6%88%90%E5%B9%B4%E4%BA%BA%E7%A4%BE%E4%BA%A4%E6%BD%9C%E8%A7%84%E5%88%99%23&Refer=top) `2.1M 🔥`
 1. [向佐全家福](https://s.weibo.com/weibo?q=%23%E5%90%91%E4%BD%90%E5%85%A8%E5%AE%B6%E7%A6%8F%23&Refer=top) `2.0M 🔥`
 1. [父亲节反而被爸爸送礼物](https://s.weibo.com/weibo?q=%23%E7%88%B6%E4%BA%B2%E8%8A%82%E5%8F%8D%E8%80%8C%E8%A2%AB%E7%88%B8%E7%88%B8%E9%80%81%E7%A4%BC%E7%89%A9%23&Refer=top) `2.0M 🔥`
-1. [父亲已牺牲半年5岁女儿仍在盼他回家](https://s.weibo.com/weibo?q=%23%E7%88%B6%E4%BA%B2%E5%B7%B2%E7%89%BA%E7%89%B2%E5%8D%8A%E5%B9%B45%E5%B2%81%E5%A5%B3%E5%84%BF%E4%BB%8D%E5%9C%A8%E7%9B%BC%E4%BB%96%E5%9B%9E%E5%AE%B6%23&Refer=top) `1.9M 🔥`
+1. [父亲已牺牲半年5岁女儿仍在盼他回家](https://s.weibo.com/weibo?q=%23%E7%88%B6%E4%BA%B2%E5%B7%B2%E7%89%BA%E7%89%B2%E5%8D%8A%E5%B9%B45%E5%B2%81%E5%A5%B3%E5%84%BF%E4%BB%8D%E5%9C%A8%E7%9B%BC%E4%BB%96%E5%9B%9E%E5%AE%B6%23&Refer=top) `2.0M 🔥`
 1. [应采儿 陈小春年轻时候我还是个孩子](https://s.weibo.com/weibo?q=%E5%BA%94%E9%87%87%E5%84%BF%20%E9%99%88%E5%B0%8F%E6%98%A5%E5%B9%B4%E8%BD%BB%E6%97%B6%E5%80%99%E6%88%91%E8%BF%98%E6%98%AF%E4%B8%AA%E5%AD%A9%E5%AD%90&Refer=top) `1.9M 🔥`
 1. [东莞麻涌](https://s.weibo.com/weibo?q=%E4%B8%9C%E8%8E%9E%E9%BA%BB%E6%B6%8C&Refer=top) `1.8M 🔥`
 1. [迪丽热巴佟丽娅小尼聊新疆](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E4%BD%9F%E4%B8%BD%E5%A8%85%E5%B0%8F%E5%B0%BC%E8%81%8A%E6%96%B0%E7%96%86%23&Refer=top) `1.7M 🔥`
@@ -37,6 +37,7 @@
 1. [电话手表自燃4岁女童手背被烧伤](https://s.weibo.com/weibo?q=%23%E7%94%B5%E8%AF%9D%E6%89%8B%E8%A1%A8%E8%87%AA%E7%87%834%E5%B2%81%E5%A5%B3%E7%AB%A5%E6%89%8B%E8%83%8C%E8%A2%AB%E7%83%A7%E4%BC%A4%23&Refer=top) `1.2M 🔥`
 1. [怀孕时看到男友的聊天记录](https://s.weibo.com/weibo?q=%23%E6%80%80%E5%AD%95%E6%97%B6%E7%9C%8B%E5%88%B0%E7%94%B7%E5%8F%8B%E7%9A%84%E8%81%8A%E5%A4%A9%E8%AE%B0%E5%BD%95%23&Refer=top) `1.2M 🔥`
 1. [有内鬼终止交易](https://s.weibo.com/weibo?q=%23%E6%9C%89%E5%86%85%E9%AC%BC%E7%BB%88%E6%AD%A2%E4%BA%A4%E6%98%93%23&Refer=top) `1.2M 🔥`
+1. [杨紫晒和父亲比耶旧照](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E7%B4%AB%E6%99%92%E5%92%8C%E7%88%B6%E4%BA%B2%E6%AF%94%E8%80%B6%E6%97%A7%E7%85%A7%23&Refer=top) `1.2M 🔥`
 1. [林莉一失误就被换下](https://s.weibo.com/weibo?q=%23%E6%9E%97%E8%8E%89%E4%B8%80%E5%A4%B1%E8%AF%AF%E5%B0%B1%E8%A2%AB%E6%8D%A2%E4%B8%8B%23&Refer=top) `1.1M 🔥`
 1. [中国女排提前无缘世界联赛四强](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%A5%B3%E6%8E%92%E6%8F%90%E5%89%8D%E6%97%A0%E7%BC%98%E4%B8%96%E7%95%8C%E8%81%94%E8%B5%9B%E5%9B%9B%E5%BC%BA%23&Refer=top) `1.1M 🔥`
 1. [外交部提醒在阿富汗中国公民尽早离境](https://s.weibo.com/weibo?q=%23%E5%A4%96%E4%BA%A4%E9%83%A8%E6%8F%90%E9%86%92%E5%9C%A8%E9%98%BF%E5%AF%8C%E6%B1%97%E4%B8%AD%E5%9B%BD%E5%85%AC%E6%B0%91%E5%B0%BD%E6%97%A9%E7%A6%BB%E5%A2%83%23&Refer=top) `1.1M 🔥`
@@ -55,9 +56,8 @@
 1. [95后女孩生产神舟十二号必备零部件](https://s.weibo.com/weibo?q=%2395%E5%90%8E%E5%A5%B3%E5%AD%A9%E7%94%9F%E4%BA%A7%E7%A5%9E%E8%88%9F%E5%8D%81%E4%BA%8C%E5%8F%B7%E5%BF%85%E5%A4%87%E9%9B%B6%E9%83%A8%E4%BB%B6%23&Refer=top) `876.1K 🔥`
 1. [考生绝望老师痛苦的试卷](https://s.weibo.com/weibo?q=%23%E8%80%83%E7%94%9F%E7%BB%9D%E6%9C%9B%E8%80%81%E5%B8%88%E7%97%9B%E8%8B%A6%E7%9A%84%E8%AF%95%E5%8D%B7%23&Refer=top) `873.9K 🔥`
 1. [葡萄牙乌龙球](https://s.weibo.com/weibo?q=%E8%91%A1%E8%90%84%E7%89%99%E4%B9%8C%E9%BE%99%E7%90%83&Refer=top) `873.2K 🔥`
-1. [杨梅成国外高端水果](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E6%A2%85%E6%88%90%E5%9B%BD%E5%A4%96%E9%AB%98%E7%AB%AF%E6%B0%B4%E6%9E%9C%23&Refer=top) `870.9K 🔥`
 
-数据更新于 2021-06-20 19:46:06
+数据更新于 2021-06-20 19:51:47
 
 <!-- END -->
 
