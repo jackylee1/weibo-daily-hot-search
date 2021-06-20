@@ -32,6 +32,8 @@
 1. [考生绝望老师痛苦的试卷](https://s.weibo.com/weibo?q=%23%E8%80%83%E7%94%9F%E7%BB%9D%E6%9C%9B%E8%80%81%E5%B8%88%E7%97%9B%E8%8B%A6%E7%9A%84%E8%AF%95%E5%8D%B7%23&Refer=top) `873.9K 🔥`
 1. [葡萄牙乌龙球](https://s.weibo.com/weibo?q=%E8%91%A1%E8%90%84%E7%89%99%E4%B9%8C%E9%BE%99%E7%90%83&Refer=top) `873.2K 🔥`
 1. [小时候的玩笑爸爸却当真了](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E6%97%B6%E5%80%99%E7%9A%84%E7%8E%A9%E7%AC%91%E7%88%B8%E7%88%B8%E5%8D%B4%E5%BD%93%E7%9C%9F%E4%BA%86%23&Refer=top) `858.4K 🔥`
+1. [等等小花给邓超的父亲节祝福](https://s.weibo.com/weibo?q=%E7%AD%89%E7%AD%89%E5%B0%8F%E8%8A%B1%E7%BB%99%E9%82%93%E8%B6%85%E7%9A%84%E7%88%B6%E4%BA%B2%E8%8A%82%E7%A5%9D%E7%A6%8F&Refer=top) `846.3K 🔥`
+1. [张哲瀚红衣古装](https://s.weibo.com/weibo?q=%E5%BC%A0%E5%93%B2%E7%80%9A%E7%BA%A2%E8%A1%A3%E5%8F%A4%E8%A3%85&Refer=top) `837.6K 🔥`
 1. [C罗破门](https://s.weibo.com/weibo?q=%23C%E7%BD%97%E7%A0%B4%E9%97%A8%23&Refer=top) `835.4K 🔥`
 1. [民警劝解轻生女子东面不好看西面](https://s.weibo.com/weibo?q=%23%E6%B0%91%E8%AD%A6%E5%8A%9D%E8%A7%A3%E8%BD%BB%E7%94%9F%E5%A5%B3%E5%AD%90%E4%B8%9C%E9%9D%A2%E4%B8%8D%E5%A5%BD%E7%9C%8B%E8%A5%BF%E9%9D%A2%23&Refer=top) `807.8K 🔥`
 1. [睫毛被卧蚕卡住了](https://s.weibo.com/weibo?q=%23%E7%9D%AB%E6%AF%9B%E8%A2%AB%E5%8D%A7%E8%9A%95%E5%8D%A1%E4%BD%8F%E4%BA%86%23&Refer=top) `807.8K 🔥`
@@ -39,7 +41,6 @@
 1. [张嘉倪演的芜浣](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%98%89%E5%80%AA%E6%BC%94%E7%9A%84%E8%8A%9C%E6%B5%A3%23&Refer=top) `777.2K 🔥`
 1. [辞职后又想回到原公司](https://s.weibo.com/weibo?q=%23%E8%BE%9E%E8%81%8C%E5%90%8E%E5%8F%88%E6%83%B3%E5%9B%9E%E5%88%B0%E5%8E%9F%E5%85%AC%E5%8F%B8%23&Refer=top) `763.7K 🔥`
 1. [王梦洁躲球](https://s.weibo.com/weibo?q=%E7%8E%8B%E6%A2%A6%E6%B4%81%E8%BA%B2%E7%90%83&Refer=top) `749.1K 🔥`
-1. [张哲瀚红衣古装](https://s.weibo.com/weibo?q=%E5%BC%A0%E5%93%B2%E7%80%9A%E7%BA%A2%E8%A1%A3%E5%8F%A4%E8%A3%85&Refer=top) `728.2K 🔥`
 1. [c罗面对德国队能进球吗](https://s.weibo.com/weibo?q=%23c%E7%BD%97%E9%9D%A2%E5%AF%B9%E5%BE%B7%E5%9B%BD%E9%98%9F%E8%83%BD%E8%BF%9B%E7%90%83%E5%90%97%23&Refer=top) `707.1K 🔥`
 1. [央视曝光降糖神药为固体饮料](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E6%9B%9D%E5%85%89%E9%99%8D%E7%B3%96%E7%A5%9E%E8%8D%AF%E4%B8%BA%E5%9B%BA%E4%BD%93%E9%A5%AE%E6%96%99%23&Refer=top) `704.4K 🔥`
 1. [中国女排六连胜](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%A5%B3%E6%8E%92%E5%85%AD%E8%BF%9E%E8%83%9C%23&Refer=top) `696.2K 🔥`
@@ -51,13 +52,12 @@
 1. [深圳2病例感染Delta变异株](https://s.weibo.com/weibo?q=%23%E6%B7%B1%E5%9C%B32%E7%97%85%E4%BE%8B%E6%84%9F%E6%9F%93Delta%E5%8F%98%E5%BC%82%E6%A0%AA%23&Refer=top) `645.2K 🔥`
 1. [莱西当选新任伊朗总统](https://s.weibo.com/weibo?q=%23%E8%8E%B1%E8%A5%BF%E5%BD%93%E9%80%89%E6%96%B0%E4%BB%BB%E4%BC%8A%E6%9C%97%E6%80%BB%E7%BB%9F%23&Refer=top) `631.4K 🔥`
 1. [许凯的腰](https://s.weibo.com/weibo?q=%23%E8%AE%B8%E5%87%AF%E7%9A%84%E8%85%B0%23&Refer=top) `627.1K 🔥`
+1. [中国共产党历史展览馆特种邮票](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A%E5%8E%86%E5%8F%B2%E5%B1%95%E8%A7%88%E9%A6%86%E7%89%B9%E7%A7%8D%E9%82%AE%E7%A5%A8%23&Refer=top) `615.3K 🔥`
 1. [生蚝永远也想不到的事](https://s.weibo.com/weibo?q=%23%E7%94%9F%E8%9A%9D%E6%B0%B8%E8%BF%9C%E4%B9%9F%E6%83%B3%E4%B8%8D%E5%88%B0%E7%9A%84%E4%BA%8B%23&Refer=top) `613.2K 🔥`
 1. [梁洁 漂亮的人卿卿我我谁不喜欢看](https://s.weibo.com/weibo?q=%E6%A2%81%E6%B4%81%20%E6%BC%82%E4%BA%AE%E7%9A%84%E4%BA%BA%E5%8D%BF%E5%8D%BF%E6%88%91%E6%88%91%E8%B0%81%E4%B8%8D%E5%96%9C%E6%AC%A2%E7%9C%8B&Refer=top) `602.8K 🔥`
 1. [死神杜兰特](https://s.weibo.com/weibo?q=%23%E6%AD%BB%E7%A5%9E%E6%9D%9C%E5%85%B0%E7%89%B9%23&Refer=top) `602.4K 🔥`
-1. [四川比特币矿场集体断电](https://s.weibo.com/weibo?q=%23%E5%9B%9B%E5%B7%9D%E6%AF%94%E7%89%B9%E5%B8%81%E7%9F%BF%E5%9C%BA%E9%9B%86%E4%BD%93%E6%96%AD%E7%94%B5%23&Refer=top) `599.5K 🔥`
-1. [快乐大本营预告](https://s.weibo.com/weibo?q=%23%E5%BF%AB%E4%B9%90%E5%A4%A7%E6%9C%AC%E8%90%A5%E9%A2%84%E5%91%8A%23&Refer=top) `599.1K 🔥`
 
-数据更新于 2021-06-20 12:02:41
+数据更新于 2021-06-20 12:20:01
 
 <!-- END -->
 
