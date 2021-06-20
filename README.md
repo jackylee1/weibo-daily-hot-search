@@ -21,13 +21,14 @@
 1. [东莞麻涌](https://s.weibo.com/weibo?q=%E4%B8%9C%E8%8E%9E%E9%BA%BB%E6%B6%8C&Refer=top) `1.8M 🔥`
 1. [迪丽热巴佟丽娅小尼聊新疆](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E4%BD%9F%E4%B8%BD%E5%A8%85%E5%B0%8F%E5%B0%BC%E8%81%8A%E6%96%B0%E7%96%86%23&Refer=top) `1.7M 🔥`
 1. [能不能给张新成整个最佳女主奖](https://s.weibo.com/weibo?q=%23%E8%83%BD%E4%B8%8D%E8%83%BD%E7%BB%99%E5%BC%A0%E6%96%B0%E6%88%90%E6%95%B4%E4%B8%AA%E6%9C%80%E4%BD%B3%E5%A5%B3%E4%B8%BB%E5%A5%96%23&Refer=top) `1.7M 🔥`
+1. [男友领证前给爸爸发的短信](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%8F%8B%E9%A2%86%E8%AF%81%E5%89%8D%E7%BB%99%E7%88%B8%E7%88%B8%E5%8F%91%E7%9A%84%E7%9F%AD%E4%BF%A1%23&Refer=top) `1.7M 🔥`
 1. [男子散步踩蛇吓出销魂舞步](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E6%95%A3%E6%AD%A5%E8%B8%A9%E8%9B%87%E5%90%93%E5%87%BA%E9%94%80%E9%AD%82%E8%88%9E%E6%AD%A5%23&Refer=top) `1.6M 🔥`
 1. [央视曝高薪出境打工多是骗局](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E6%9B%9D%E9%AB%98%E8%96%AA%E5%87%BA%E5%A2%83%E6%89%93%E5%B7%A5%E5%A4%9A%E6%98%AF%E9%AA%97%E5%B1%80%23&Refer=top) `1.4M 🔥`
 1. [疑似被拐小女孩其实是小狗](https://s.weibo.com/weibo?q=%23%E7%96%91%E4%BC%BC%E8%A2%AB%E6%8B%90%E5%B0%8F%E5%A5%B3%E5%AD%A9%E5%85%B6%E5%AE%9E%E6%98%AF%E5%B0%8F%E7%8B%97%23&Refer=top) `1.3M 🔥`
 1. [收伞戳肚子是全国统一的吗](https://s.weibo.com/weibo?q=%23%E6%94%B6%E4%BC%9E%E6%88%B3%E8%82%9A%E5%AD%90%E6%98%AF%E5%85%A8%E5%9B%BD%E7%BB%9F%E4%B8%80%E7%9A%84%E5%90%97%23&Refer=top) `1.2M 🔥`
 1. [电话手表自燃4岁女童手背被烧伤](https://s.weibo.com/weibo?q=%23%E7%94%B5%E8%AF%9D%E6%89%8B%E8%A1%A8%E8%87%AA%E7%87%834%E5%B2%81%E5%A5%B3%E7%AB%A5%E6%89%8B%E8%83%8C%E8%A2%AB%E7%83%A7%E4%BC%A4%23&Refer=top) `1.2M 🔥`
-1. [男友领证前给爸爸发的短信](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%8F%8B%E9%A2%86%E8%AF%81%E5%89%8D%E7%BB%99%E7%88%B8%E7%88%B8%E5%8F%91%E7%9A%84%E7%9F%AD%E4%BF%A1%23&Refer=top) `1.2M 🔥`
 1. [怀孕时看到男友的聊天记录](https://s.weibo.com/weibo?q=%23%E6%80%80%E5%AD%95%E6%97%B6%E7%9C%8B%E5%88%B0%E7%94%B7%E5%8F%8B%E7%9A%84%E8%81%8A%E5%A4%A9%E8%AE%B0%E5%BD%95%23&Refer=top) `1.2M 🔥`
+1. [应采儿 陈小春年轻时候我还是个孩子](https://s.weibo.com/weibo?q=%E5%BA%94%E9%87%87%E5%84%BF%20%E9%99%88%E5%B0%8F%E6%98%A5%E5%B9%B4%E8%BD%BB%E6%97%B6%E5%80%99%E6%88%91%E8%BF%98%E6%98%AF%E4%B8%AA%E5%AD%A9%E5%AD%90&Refer=top) `1.2M 🔥`
 1. [有内鬼终止交易](https://s.weibo.com/weibo?q=%23%E6%9C%89%E5%86%85%E9%AC%BC%E7%BB%88%E6%AD%A2%E4%BA%A4%E6%98%93%23&Refer=top) `1.2M 🔥`
 1. [林莉一失误就被换下](https://s.weibo.com/weibo?q=%23%E6%9E%97%E8%8E%89%E4%B8%80%E5%A4%B1%E8%AF%AF%E5%B0%B1%E8%A2%AB%E6%8D%A2%E4%B8%8B%23&Refer=top) `1.1M 🔥`
 1. [中国女排提前无缘世界联赛四强](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%A5%B3%E6%8E%92%E6%8F%90%E5%89%8D%E6%97%A0%E7%BC%98%E4%B8%96%E7%95%8C%E8%81%94%E8%B5%9B%E5%9B%9B%E5%BC%BA%23&Refer=top) `1.1M 🔥`
@@ -45,6 +46,7 @@
 1. [95后女孩生产神舟十二号必备零部件](https://s.weibo.com/weibo?q=%2395%E5%90%8E%E5%A5%B3%E5%AD%A9%E7%94%9F%E4%BA%A7%E7%A5%9E%E8%88%9F%E5%8D%81%E4%BA%8C%E5%8F%B7%E5%BF%85%E5%A4%87%E9%9B%B6%E9%83%A8%E4%BB%B6%23&Refer=top) `876.1K 🔥`
 1. [考生绝望老师痛苦的试卷](https://s.weibo.com/weibo?q=%23%E8%80%83%E7%94%9F%E7%BB%9D%E6%9C%9B%E8%80%81%E5%B8%88%E7%97%9B%E8%8B%A6%E7%9A%84%E8%AF%95%E5%8D%B7%23&Refer=top) `873.9K 🔥`
 1. [葡萄牙乌龙球](https://s.weibo.com/weibo?q=%E8%91%A1%E8%90%84%E7%89%99%E4%B9%8C%E9%BE%99%E7%90%83&Refer=top) `873.2K 🔥`
+1. [华为供应链公司已收到Mate50设计方案](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E4%B8%BA%E4%BE%9B%E5%BA%94%E9%93%BE%E5%85%AC%E5%8F%B8%E5%B7%B2%E6%94%B6%E5%88%B0Mate50%E8%AE%BE%E8%AE%A1%E6%96%B9%E6%A1%88%23&Refer=top) `869.4K 🔥`
 1. [原来长相也会被爸妈嫌弃](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E9%95%BF%E7%9B%B8%E4%B9%9F%E4%BC%9A%E8%A2%AB%E7%88%B8%E5%A6%88%E5%AB%8C%E5%BC%83%23&Refer=top) `866.3K 🔥`
 1. [小时候的玩笑爸爸却当真了](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E6%97%B6%E5%80%99%E7%9A%84%E7%8E%A9%E7%AC%91%E7%88%B8%E7%88%B8%E5%8D%B4%E5%BD%93%E7%9C%9F%E4%BA%86%23&Refer=top) `858.4K 🔥`
 1. [张哲瀚红衣古装](https://s.weibo.com/weibo?q=%E5%BC%A0%E5%93%B2%E7%80%9A%E7%BA%A2%E8%A1%A3%E5%8F%A4%E8%A3%85&Refer=top) `837.6K 🔥`
@@ -54,10 +56,8 @@
 1. [睫毛被卧蚕卡住了](https://s.weibo.com/weibo?q=%23%E7%9D%AB%E6%AF%9B%E8%A2%AB%E5%8D%A7%E8%9A%95%E5%8D%A1%E4%BD%8F%E4%BA%86%23&Refer=top) `807.8K 🔥`
 1. [Mine](https://s.weibo.com/weibo?q=Mine&Refer=top) `807.3K 🔥`
 1. [张嘉倪演的芜浣](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%98%89%E5%80%AA%E6%BC%94%E7%9A%84%E8%8A%9C%E6%B5%A3%23&Refer=top) `777.2K 🔥`
-1. [华为供应链公司已收到Mate50设计方案](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E4%B8%BA%E4%BE%9B%E5%BA%94%E9%93%BE%E5%85%AC%E5%8F%B8%E5%B7%B2%E6%94%B6%E5%88%B0Mate50%E8%AE%BE%E8%AE%A1%E6%96%B9%E6%A1%88%23&Refer=top) `766.9K 🔥`
-1. [辞职后又想回到原公司](https://s.weibo.com/weibo?q=%23%E8%BE%9E%E8%81%8C%E5%90%8E%E5%8F%88%E6%83%B3%E5%9B%9E%E5%88%B0%E5%8E%9F%E5%85%AC%E5%8F%B8%23&Refer=top) `763.7K 🔥`
 
-数据更新于 2021-06-20 17:01:37
+数据更新于 2021-06-20 17:25:56
 
 <!-- END -->
 
