@@ -8,9 +8,12 @@
 
 1. [刘浩存微博是什么可爱小女孩日常](https://s.weibo.com/weibo?q=%23%E5%88%98%E6%B5%A9%E5%AD%98%E5%BE%AE%E5%8D%9A%E6%98%AF%E4%BB%80%E4%B9%88%E5%8F%AF%E7%88%B1%E5%B0%8F%E5%A5%B3%E5%AD%A9%E6%97%A5%E5%B8%B8%23&Refer=top) `5.3M 🔥`
 1. [接种疫苗后台湾62人猝死](https://s.weibo.com/weibo?q=%23%E6%8E%A5%E7%A7%8D%E7%96%AB%E8%8B%97%E5%90%8E%E5%8F%B0%E6%B9%BE62%E4%BA%BA%E7%8C%9D%E6%AD%BB%23&Refer=top) `3.2M 🔥`
+1. [84岁的钟南山有多拼](https://s.weibo.com/weibo?q=%2384%E5%B2%81%E7%9A%84%E9%92%9F%E5%8D%97%E5%B1%B1%E6%9C%89%E5%A4%9A%E6%8B%BC%23&Refer=top) `3.2M 🔥`
+1. [等等小花给邓超的父亲节祝福](https://s.weibo.com/weibo?q=%23%E7%AD%89%E7%AD%89%E5%B0%8F%E8%8A%B1%E7%BB%99%E9%82%93%E8%B6%85%E7%9A%84%E7%88%B6%E4%BA%B2%E8%8A%82%E7%A5%9D%E7%A6%8F%23&Refer=top) `2.2M 🔥`
 1. [李雪琴郭麒麟成年人社交潜规则](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E9%9B%AA%E7%90%B4%E9%83%AD%E9%BA%92%E9%BA%9F%E6%88%90%E5%B9%B4%E4%BA%BA%E7%A4%BE%E4%BA%A4%E6%BD%9C%E8%A7%84%E5%88%99%23&Refer=top) `2.1M 🔥`
 1. [向佐全家福](https://s.weibo.com/weibo?q=%23%E5%90%91%E4%BD%90%E5%85%A8%E5%AE%B6%E7%A6%8F%23&Refer=top) `2.0M 🔥`
 1. [父亲节反而被爸爸送礼物](https://s.weibo.com/weibo?q=%23%E7%88%B6%E4%BA%B2%E8%8A%82%E5%8F%8D%E8%80%8C%E8%A2%AB%E7%88%B8%E7%88%B8%E9%80%81%E7%A4%BC%E7%89%A9%23&Refer=top) `2.0M 🔥`
+1. [离婚后爸爸发来的微信消息](https://s.weibo.com/weibo?q=%23%E7%A6%BB%E5%A9%9A%E5%90%8E%E7%88%B8%E7%88%B8%E5%8F%91%E6%9D%A5%E7%9A%84%E5%BE%AE%E4%BF%A1%E6%B6%88%E6%81%AF%23&Refer=top) `2.0M 🔥`
 1. [能不能给张新成整个最佳女主奖](https://s.weibo.com/weibo?q=%23%E8%83%BD%E4%B8%8D%E8%83%BD%E7%BB%99%E5%BC%A0%E6%96%B0%E6%88%90%E6%95%B4%E4%B8%AA%E6%9C%80%E4%BD%B3%E5%A5%B3%E4%B8%BB%E5%A5%96%23&Refer=top) `1.7M 🔥`
 1. [男子散步踩蛇吓出销魂舞步](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E6%95%A3%E6%AD%A5%E8%B8%A9%E8%9B%87%E5%90%93%E5%87%BA%E9%94%80%E9%AD%82%E8%88%9E%E6%AD%A5%23&Refer=top) `1.6M 🔥`
 1. [疑似被拐小女孩其实是小狗](https://s.weibo.com/weibo?q=%23%E7%96%91%E4%BC%BC%E8%A2%AB%E6%8B%90%E5%B0%8F%E5%A5%B3%E5%AD%A9%E5%85%B6%E5%AE%9E%E6%98%AF%E5%B0%8F%E7%8B%97%23&Refer=top) `1.3M 🔥`
@@ -27,12 +30,10 @@
 1. [杜兰特绝平球](https://s.weibo.com/weibo?q=%23%E6%9D%9C%E5%85%B0%E7%89%B9%E7%BB%9D%E5%B9%B3%E7%90%83%23&Refer=top) `938.3K 🔥`
 1. [父亲节](https://s.weibo.com/weibo?q=%E7%88%B6%E4%BA%B2%E8%8A%82&Refer=top) `929.1K 🔥`
 1. [采访孟子义好像在悬崖走钢索](https://s.weibo.com/weibo?q=%23%E9%87%87%E8%AE%BF%E5%AD%9F%E5%AD%90%E4%B9%89%E5%A5%BD%E5%83%8F%E5%9C%A8%E6%82%AC%E5%B4%96%E8%B5%B0%E9%92%A2%E7%B4%A2%23&Refer=top) `911.9K 🔥`
-1. [84岁的钟南山有多拼](https://s.weibo.com/weibo?q=%2384%E5%B2%81%E7%9A%84%E9%92%9F%E5%8D%97%E5%B1%B1%E6%9C%89%E5%A4%9A%E6%8B%BC%23&Refer=top) `895.8K 🔥`
 1. [95后女孩生产神舟十二号必备零部件](https://s.weibo.com/weibo?q=%2395%E5%90%8E%E5%A5%B3%E5%AD%A9%E7%94%9F%E4%BA%A7%E7%A5%9E%E8%88%9F%E5%8D%81%E4%BA%8C%E5%8F%B7%E5%BF%85%E5%A4%87%E9%9B%B6%E9%83%A8%E4%BB%B6%23&Refer=top) `876.1K 🔥`
 1. [考生绝望老师痛苦的试卷](https://s.weibo.com/weibo?q=%23%E8%80%83%E7%94%9F%E7%BB%9D%E6%9C%9B%E8%80%81%E5%B8%88%E7%97%9B%E8%8B%A6%E7%9A%84%E8%AF%95%E5%8D%B7%23&Refer=top) `873.9K 🔥`
 1. [葡萄牙乌龙球](https://s.weibo.com/weibo?q=%E8%91%A1%E8%90%84%E7%89%99%E4%B9%8C%E9%BE%99%E7%90%83&Refer=top) `873.2K 🔥`
 1. [小时候的玩笑爸爸却当真了](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E6%97%B6%E5%80%99%E7%9A%84%E7%8E%A9%E7%AC%91%E7%88%B8%E7%88%B8%E5%8D%B4%E5%BD%93%E7%9C%9F%E4%BA%86%23&Refer=top) `858.4K 🔥`
-1. [等等小花给邓超的父亲节祝福](https://s.weibo.com/weibo?q=%E7%AD%89%E7%AD%89%E5%B0%8F%E8%8A%B1%E7%BB%99%E9%82%93%E8%B6%85%E7%9A%84%E7%88%B6%E4%BA%B2%E8%8A%82%E7%A5%9D%E7%A6%8F&Refer=top) `846.3K 🔥`
 1. [张哲瀚红衣古装](https://s.weibo.com/weibo?q=%E5%BC%A0%E5%93%B2%E7%80%9A%E7%BA%A2%E8%A1%A3%E5%8F%A4%E8%A3%85&Refer=top) `837.6K 🔥`
 1. [C罗破门](https://s.weibo.com/weibo?q=%23C%E7%BD%97%E7%A0%B4%E9%97%A8%23&Refer=top) `835.4K 🔥`
 1. [民警劝解轻生女子东面不好看西面](https://s.weibo.com/weibo?q=%23%E6%B0%91%E8%AD%A6%E5%8A%9D%E8%A7%A3%E8%BD%BB%E7%94%9F%E5%A5%B3%E5%AD%90%E4%B8%9C%E9%9D%A2%E4%B8%8D%E5%A5%BD%E7%9C%8B%E8%A5%BF%E9%9D%A2%23&Refer=top) `807.8K 🔥`
@@ -55,9 +56,8 @@
 1. [中国共产党历史展览馆特种邮票](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A%E5%8E%86%E5%8F%B2%E5%B1%95%E8%A7%88%E9%A6%86%E7%89%B9%E7%A7%8D%E9%82%AE%E7%A5%A8%23&Refer=top) `615.3K 🔥`
 1. [生蚝永远也想不到的事](https://s.weibo.com/weibo?q=%23%E7%94%9F%E8%9A%9D%E6%B0%B8%E8%BF%9C%E4%B9%9F%E6%83%B3%E4%B8%8D%E5%88%B0%E7%9A%84%E4%BA%8B%23&Refer=top) `613.2K 🔥`
 1. [梁洁 漂亮的人卿卿我我谁不喜欢看](https://s.weibo.com/weibo?q=%E6%A2%81%E6%B4%81%20%E6%BC%82%E4%BA%AE%E7%9A%84%E4%BA%BA%E5%8D%BF%E5%8D%BF%E6%88%91%E6%88%91%E8%B0%81%E4%B8%8D%E5%96%9C%E6%AC%A2%E7%9C%8B&Refer=top) `602.8K 🔥`
-1. [死神杜兰特](https://s.weibo.com/weibo?q=%23%E6%AD%BB%E7%A5%9E%E6%9D%9C%E5%85%B0%E7%89%B9%23&Refer=top) `602.4K 🔥`
 
-数据更新于 2021-06-20 12:20:01
+数据更新于 2021-06-20 12:47:34
 
 <!-- END -->
 
