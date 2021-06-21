@@ -30,6 +30,7 @@
 1. [朱婷被袁心玥声音震到](https://s.weibo.com/weibo?q=%23%E6%9C%B1%E5%A9%B7%E8%A2%AB%E8%A2%81%E5%BF%83%E7%8E%A5%E5%A3%B0%E9%9F%B3%E9%9C%87%E5%88%B0%23&Refer=top) `1.5M 🔥`
 1. [CA868国际航班已报告38例阳性](https://s.weibo.com/weibo?q=%23CA868%E5%9B%BD%E9%99%85%E8%88%AA%E7%8F%AD%E5%B7%B2%E6%8A%A5%E5%91%8A38%E4%BE%8B%E9%98%B3%E6%80%A7%23&Refer=top) `1.4M 🔥`
 1. [这些画都是汤唯爸爸画的](https://s.weibo.com/weibo?q=%23%E8%BF%99%E4%BA%9B%E7%94%BB%E9%83%BD%E6%98%AF%E6%B1%A4%E5%94%AF%E7%88%B8%E7%88%B8%E7%94%BB%E7%9A%84%23&Refer=top) `1.4M 🔥`
+1. [吴磊对张子枫撒娇](https://s.weibo.com/weibo?q=%23%E5%90%B4%E7%A3%8A%E5%AF%B9%E5%BC%A0%E5%AD%90%E6%9E%AB%E6%92%92%E5%A8%87%23&Refer=top) `1.4M 🔥`
 1. [第二针比第一针疼](https://s.weibo.com/weibo?q=%23%E7%AC%AC%E4%BA%8C%E9%92%88%E6%AF%94%E7%AC%AC%E4%B8%80%E9%92%88%E7%96%BC%23&Refer=top) `1.4M 🔥`
 1. [专家建议成人每日吃荔枝不宜超过十颗](https://s.weibo.com/weibo?q=%23%E4%B8%93%E5%AE%B6%E5%BB%BA%E8%AE%AE%E6%88%90%E4%BA%BA%E6%AF%8F%E6%97%A5%E5%90%83%E8%8D%94%E6%9E%9D%E4%B8%8D%E5%AE%9C%E8%B6%85%E8%BF%87%E5%8D%81%E9%A2%97%23&Refer=top) `1.4M 🔥`
 1. [男子割肝给儿子二次生命](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E5%89%B2%E8%82%9D%E7%BB%99%E5%84%BF%E5%AD%90%E4%BA%8C%E6%AC%A1%E7%94%9F%E5%91%BD%23&Refer=top) `1.4M 🔥`
@@ -37,7 +38,6 @@
 1. [杨紫辨认红孩儿和哪吒的区别](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E7%B4%AB%E8%BE%A8%E8%AE%A4%E7%BA%A2%E5%AD%A9%E5%84%BF%E5%92%8C%E5%93%AA%E5%90%92%E7%9A%84%E5%8C%BA%E5%88%AB%23&Refer=top) `1.3M 🔥`
 1. [邓伦一个观众都没猜对](https://s.weibo.com/weibo?q=%23%E9%82%93%E4%BC%A6%E4%B8%80%E4%B8%AA%E8%A7%82%E4%BC%97%E9%83%BD%E6%B2%A1%E7%8C%9C%E5%AF%B9%23&Refer=top) `1.3M 🔥`
 1. [乐高玩家耗时一年搭建微缩版故宫](https://s.weibo.com/weibo?q=%23%E4%B9%90%E9%AB%98%E7%8E%A9%E5%AE%B6%E8%80%97%E6%97%B6%E4%B8%80%E5%B9%B4%E6%90%AD%E5%BB%BA%E5%BE%AE%E7%BC%A9%E7%89%88%E6%95%85%E5%AE%AB%23&Refer=top) `1.3M 🔥`
-1. [吴磊对张子枫撒娇](https://s.weibo.com/weibo?q=%23%E5%90%B4%E7%A3%8A%E5%AF%B9%E5%BC%A0%E5%AD%90%E6%9E%AB%E6%92%92%E5%A8%87%23&Refer=top) `1.3M 🔥`
 1. [奶奶将患病孙女绑在身上看病](https://s.weibo.com/weibo?q=%23%E5%A5%B6%E5%A5%B6%E5%B0%86%E6%82%A3%E7%97%85%E5%AD%99%E5%A5%B3%E7%BB%91%E5%9C%A8%E8%BA%AB%E4%B8%8A%E7%9C%8B%E7%97%85%23&Refer=top) `1.2M 🔥`
 1. [父亲为儿子彩礼钱给亲家下跪](https://s.weibo.com/weibo?q=%23%E7%88%B6%E4%BA%B2%E4%B8%BA%E5%84%BF%E5%AD%90%E5%BD%A9%E7%A4%BC%E9%92%B1%E7%BB%99%E4%BA%B2%E5%AE%B6%E4%B8%8B%E8%B7%AA%23&Refer=top) `1.2M 🔥`
 1. [周扬青罗昊约会](https://s.weibo.com/weibo?q=%23%E5%91%A8%E6%89%AC%E9%9D%92%E7%BD%97%E6%98%8A%E7%BA%A6%E4%BC%9A%23&Refer=top) `1.2M 🔥`
@@ -57,7 +57,7 @@
 1. [蔡英文](https://s.weibo.com/weibo?q=%E8%94%A1%E8%8B%B1%E6%96%87&Refer=top) `940.6K 🔥`
 1. [杭州网约车跳车](https://s.weibo.com/weibo?q=%23%E6%9D%AD%E5%B7%9E%E7%BD%91%E7%BA%A6%E8%BD%A6%E8%B7%B3%E8%BD%A6%23&Refer=top) `926.6K 🔥`
 
-数据更新于 2021-06-21 18:57:47
+数据更新于 2021-06-21 19:01:50
 
 <!-- END -->
 
