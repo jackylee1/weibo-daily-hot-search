@@ -27,10 +27,12 @@
 1. [朴树yyds](https://s.weibo.com/weibo?q=%23%E6%9C%B4%E6%A0%91yyds%23&Refer=top) `1.3M 🔥`
 1. [邓伦一个观众都没猜对](https://s.weibo.com/weibo?q=%23%E9%82%93%E4%BC%A6%E4%B8%80%E4%B8%AA%E8%A7%82%E4%BC%97%E9%83%BD%E6%B2%A1%E7%8C%9C%E5%AF%B9%23&Refer=top) `1.3M 🔥`
 1. [乐高玩家耗时一年搭建微缩版故宫](https://s.weibo.com/weibo?q=%23%E4%B9%90%E9%AB%98%E7%8E%A9%E5%AE%B6%E8%80%97%E6%97%B6%E4%B8%80%E5%B9%B4%E6%90%AD%E5%BB%BA%E5%BE%AE%E7%BC%A9%E7%89%88%E6%95%85%E5%AE%AB%23&Refer=top) `1.3M 🔥`
+1. [这些画都是汤唯爸爸画的](https://s.weibo.com/weibo?q=%23%E8%BF%99%E4%BA%9B%E7%94%BB%E9%83%BD%E6%98%AF%E6%B1%A4%E5%94%AF%E7%88%B8%E7%88%B8%E7%94%BB%E7%9A%84%23&Refer=top) `1.3M 🔥`
 1. [奶奶将患病孙女绑在身上看病](https://s.weibo.com/weibo?q=%23%E5%A5%B6%E5%A5%B6%E5%B0%86%E6%82%A3%E7%97%85%E5%AD%99%E5%A5%B3%E7%BB%91%E5%9C%A8%E8%BA%AB%E4%B8%8A%E7%9C%8B%E7%97%85%23&Refer=top) `1.2M 🔥`
 1. [父亲为儿子彩礼钱给亲家下跪](https://s.weibo.com/weibo?q=%23%E7%88%B6%E4%BA%B2%E4%B8%BA%E5%84%BF%E5%AD%90%E5%BD%A9%E7%A4%BC%E9%92%B1%E7%BB%99%E4%BA%B2%E5%AE%B6%E4%B8%8B%E8%B7%AA%23&Refer=top) `1.2M 🔥`
 1. [周扬青罗昊约会](https://s.weibo.com/weibo?q=%23%E5%91%A8%E6%89%AC%E9%9D%92%E7%BD%97%E6%98%8A%E7%BA%A6%E4%BC%9A%23&Refer=top) `1.2M 🔥`
 1. [钱学森曾遭美方拘禁失去语言能力](https://s.weibo.com/weibo?q=%23%E9%92%B1%E5%AD%A6%E6%A3%AE%E6%9B%BE%E9%81%AD%E7%BE%8E%E6%96%B9%E6%8B%98%E7%A6%81%E5%A4%B1%E5%8E%BB%E8%AF%AD%E8%A8%80%E8%83%BD%E5%8A%9B%23&Refer=top) `1.2M 🔥`
+1. [阿曼 确保中国人必须先打到疫苗](https://s.weibo.com/weibo?q=%E9%98%BF%E6%9B%BC%20%E7%A1%AE%E4%BF%9D%E4%B8%AD%E5%9B%BD%E4%BA%BA%E5%BF%85%E9%A1%BB%E5%85%88%E6%89%93%E5%88%B0%E7%96%AB%E8%8B%97&Refer=top) `1.1M 🔥`
 1. [张若昀给自己过父亲节](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%8B%A5%E6%98%80%E7%BB%99%E8%87%AA%E5%B7%B1%E8%BF%87%E7%88%B6%E4%BA%B2%E8%8A%82%23&Refer=top) `1.1M 🔥`
 1. [Giao哥 不喜欢我的朋友高抬贵手](https://s.weibo.com/weibo?q=Giao%E5%93%A5%20%E4%B8%8D%E5%96%9C%E6%AC%A2%E6%88%91%E7%9A%84%E6%9C%8B%E5%8F%8B%E9%AB%98%E6%8A%AC%E8%B4%B5%E6%89%8B&Refer=top) `1.1M 🔥`
 1. [青藏高原可可西里地区再现巨大垃圾带](https://s.weibo.com/weibo?q=%23%E9%9D%92%E8%97%8F%E9%AB%98%E5%8E%9F%E5%8F%AF%E5%8F%AF%E8%A5%BF%E9%87%8C%E5%9C%B0%E5%8C%BA%E5%86%8D%E7%8E%B0%E5%B7%A8%E5%A4%A7%E5%9E%83%E5%9C%BE%E5%B8%A6%23&Refer=top) `992.4K 🔥`
@@ -38,10 +40,8 @@
 1. [建议延长带薪父亲陪产假](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E5%BB%B6%E9%95%BF%E5%B8%A6%E8%96%AA%E7%88%B6%E4%BA%B2%E9%99%AA%E4%BA%A7%E5%81%87%23&Refer=top) `901.6K 🔥`
 1. [蔡英文](https://s.weibo.com/weibo?q=%E8%94%A1%E8%8B%B1%E6%96%87&Refer=top) `901.2K 🔥`
 1. [原来备考三年有一万小时](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E5%A4%87%E8%80%83%E4%B8%89%E5%B9%B4%E6%9C%89%E4%B8%80%E4%B8%87%E5%B0%8F%E6%97%B6%23&Refer=top) `882.5K 🔥`
-1. [这些画都是汤唯爸爸画的](https://s.weibo.com/weibo?q=%23%E8%BF%99%E4%BA%9B%E7%94%BB%E9%83%BD%E6%98%AF%E6%B1%A4%E5%94%AF%E7%88%B8%E7%88%B8%E7%94%BB%E7%9A%84%23&Refer=top) `876.8K 🔥`
 1. [士兵突击 翻拍](https://s.weibo.com/weibo?q=%E5%A3%AB%E5%85%B5%E7%AA%81%E5%87%BB%20%E7%BF%BB%E6%8B%8D&Refer=top) `865.4K 🔥`
 1. [周震南生日微博评论](https://s.weibo.com/weibo?q=%23%E5%91%A8%E9%9C%87%E5%8D%97%E7%94%9F%E6%97%A5%E5%BE%AE%E5%8D%9A%E8%AF%84%E8%AE%BA%23&Refer=top) `855.9K 🔥`
-1. [阿曼 确保中国人必须先打到疫苗](https://s.weibo.com/weibo?q=%E9%98%BF%E6%9B%BC%20%E7%A1%AE%E4%BF%9D%E4%B8%AD%E5%9B%BD%E4%BA%BA%E5%BF%85%E9%A1%BB%E5%85%88%E6%89%93%E5%88%B0%E7%96%AB%E8%8B%97&Refer=top) `823.2K 🔥`
 1. [什么名能拯救梅这个姓](https://s.weibo.com/weibo?q=%23%E4%BB%80%E4%B9%88%E5%90%8D%E8%83%BD%E6%8B%AF%E6%95%91%E6%A2%85%E8%BF%99%E4%B8%AA%E5%A7%93%23&Refer=top) `794.7K 🔥`
 1. [C罗17年身材对比](https://s.weibo.com/weibo?q=%23C%E7%BD%9717%E5%B9%B4%E8%BA%AB%E6%9D%90%E5%AF%B9%E6%AF%94%23&Refer=top) `789.5K 🔥`
 1. [鄂尔多斯盆地探明10亿吨级油田](https://s.weibo.com/weibo?q=%23%E9%84%82%E5%B0%94%E5%A4%9A%E6%96%AF%E7%9B%86%E5%9C%B0%E6%8E%A2%E6%98%8E10%E4%BA%BF%E5%90%A8%E7%BA%A7%E6%B2%B9%E7%94%B0%23&Refer=top) `767.4K 🔥`
@@ -57,7 +57,7 @@
 1. [我国新冠疫苗接种剂次超10亿](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A7%8D%E5%89%82%E6%AC%A1%E8%B6%8510%E4%BA%BF%23&Refer=top) `707.4K 🔥`
 1. [朱婷被打到眼睛](https://s.weibo.com/weibo?q=%23%E6%9C%B1%E5%A9%B7%E8%A2%AB%E6%89%93%E5%88%B0%E7%9C%BC%E7%9D%9B%23&Refer=top) `706.1K 🔥`
 
-数据更新于 2021-06-21 13:02:01
+数据更新于 2021-06-21 13:07:14
 
 <!-- END -->
 
