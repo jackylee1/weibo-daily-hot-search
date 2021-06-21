@@ -53,11 +53,11 @@
 1. [张若昀给自己过父亲节](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%8B%A5%E6%98%80%E7%BB%99%E8%87%AA%E5%B7%B1%E8%BF%87%E7%88%B6%E4%BA%B2%E8%8A%82%23&Refer=top) `1.1M 🔥`
 1. [Giao哥 不喜欢我的朋友高抬贵手](https://s.weibo.com/weibo?q=Giao%E5%93%A5%20%E4%B8%8D%E5%96%9C%E6%AC%A2%E6%88%91%E7%9A%84%E6%9C%8B%E5%8F%8B%E9%AB%98%E6%8A%AC%E8%B4%B5%E6%89%8B&Refer=top) `1.1M 🔥`
 1. [青眼白龙拍卖](https://s.weibo.com/weibo?q=%23%E9%9D%92%E7%9C%BC%E7%99%BD%E9%BE%99%E6%8B%8D%E5%8D%96%23&Refer=top) `1.0M 🔥`
+1. [不接种新冠疫苗无法现场看世界杯](https://s.weibo.com/weibo?q=%23%E4%B8%8D%E6%8E%A5%E7%A7%8D%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E6%97%A0%E6%B3%95%E7%8E%B0%E5%9C%BA%E7%9C%8B%E4%B8%96%E7%95%8C%E6%9D%AF%23&Refer=top) `1.0M 🔥`
 1. [陈坤舒淇片子是一分钟内随机拍的](https://s.weibo.com/weibo?q=%23%E9%99%88%E5%9D%A4%E8%88%92%E6%B7%87%E7%89%87%E5%AD%90%E6%98%AF%E4%B8%80%E5%88%86%E9%92%9F%E5%86%85%E9%9A%8F%E6%9C%BA%E6%8B%8D%E7%9A%84%23&Refer=top) `1.0M 🔥`
 1. [张颜齐加入88rising](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E9%A2%9C%E9%BD%90%E5%8A%A0%E5%85%A588rising%23&Refer=top) `1.0M 🔥`
-1. [青藏高原可可西里地区再现巨大垃圾带](https://s.weibo.com/weibo?q=%23%E9%9D%92%E8%97%8F%E9%AB%98%E5%8E%9F%E5%8F%AF%E5%8F%AF%E8%A5%BF%E9%87%8C%E5%9C%B0%E5%8C%BA%E5%86%8D%E7%8E%B0%E5%B7%A8%E5%A4%A7%E5%9E%83%E5%9C%BE%E5%B8%A6%23&Refer=top) `992.4K 🔥`
 
-数据更新于 2021-06-21 20:51:41
+数据更新于 2021-06-21 21:15:16
 
 <!-- END -->
 
