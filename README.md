@@ -49,15 +49,15 @@
 1. [王者荣耀更新](https://s.weibo.com/weibo?q=%E7%8E%8B%E8%80%85%E8%8D%A3%E8%80%80%E6%9B%B4%E6%96%B0&Refer=top) `283.1K 🔥`
 1. [赵奕欢帮助理减了47斤](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E5%A5%95%E6%AC%A2%E5%B8%AE%E5%8A%A9%E7%90%86%E5%87%8F%E4%BA%8647%E6%96%A4%23&Refer=top) `280.3K 🔥`
 1. [日本天马航空公司推出皮卡丘客机](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E5%A4%A9%E9%A9%AC%E8%88%AA%E7%A9%BA%E5%85%AC%E5%8F%B8%E6%8E%A8%E5%87%BA%E7%9A%AE%E5%8D%A1%E4%B8%98%E5%AE%A2%E6%9C%BA%23&Refer=top) `272.2K 🔥`
+1. [艾薇儿重现爆红单曲Sk8er Boi](https://s.weibo.com/weibo?q=%E8%89%BE%E8%96%87%E5%84%BF%E9%87%8D%E7%8E%B0%E7%88%86%E7%BA%A2%E5%8D%95%E6%9B%B2Sk8er%20Boi&Refer=top) `245.9K 🔥`
 1. [海南省长称不让海南成为避税天堂](https://s.weibo.com/weibo?q=%23%E6%B5%B7%E5%8D%97%E7%9C%81%E9%95%BF%E7%A7%B0%E4%B8%8D%E8%AE%A9%E6%B5%B7%E5%8D%97%E6%88%90%E4%B8%BA%E9%81%BF%E7%A8%8E%E5%A4%A9%E5%A0%82%23&Refer=top) `245.8K 🔥`
 1. [吴磊的冰箱好像表情包](https://s.weibo.com/weibo?q=%23%E5%90%B4%E7%A3%8A%E7%9A%84%E5%86%B0%E7%AE%B1%E5%A5%BD%E5%83%8F%E8%A1%A8%E6%83%85%E5%8C%85%23&Refer=top) `242.4K 🔥`
 1. [口罩带子的质量有多好](https://s.weibo.com/weibo?q=%23%E5%8F%A3%E7%BD%A9%E5%B8%A6%E5%AD%90%E7%9A%84%E8%B4%A8%E9%87%8F%E6%9C%89%E5%A4%9A%E5%A5%BD%23&Refer=top) `228.0K 🔥`
-1. [艾薇儿重现爆红单曲Sk8er Boi](https://s.weibo.com/weibo?q=%E8%89%BE%E8%96%87%E5%84%BF%E9%87%8D%E7%8E%B0%E7%88%86%E7%BA%A2%E5%8D%95%E6%9B%B2Sk8er%20Boi&Refer=top) `212.2K 🔥`
+1. [莫德里奇世界波](https://s.weibo.com/weibo?q=%23%E8%8E%AB%E5%BE%B7%E9%87%8C%E5%A5%87%E4%B8%96%E7%95%8C%E6%B3%A2%23&Refer=top) `210.8K 🔥`
 1. [河北科技厅回应教授推翻相对论](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8C%97%E7%A7%91%E6%8A%80%E5%8E%85%E5%9B%9E%E5%BA%94%E6%95%99%E6%8E%88%E6%8E%A8%E7%BF%BB%E7%9B%B8%E5%AF%B9%E8%AE%BA%23&Refer=top) `207.5K 🔥`
-1. [比特币跌破3万美元](https://s.weibo.com/weibo?q=%23%E6%AF%94%E7%89%B9%E5%B8%81%E8%B7%8C%E7%A0%B43%E4%B8%87%E7%BE%8E%E5%85%83%23&Refer=top) `180.3K 🔥`
-1. [彩票中奖发朋友圈炫耀奖金被冒领](https://s.weibo.com/weibo?q=%23%E5%BD%A9%E7%A5%A8%E4%B8%AD%E5%A5%96%E5%8F%91%E6%9C%8B%E5%8F%8B%E5%9C%88%E7%82%AB%E8%80%80%E5%A5%96%E9%87%91%E8%A2%AB%E5%86%92%E9%A2%86%23&Refer=top) `179.0K 🔥`
+1. [8旬奶奶空箱子举重演技炸裂](https://s.weibo.com/weibo?q=%238%E6%97%AC%E5%A5%B6%E5%A5%B6%E7%A9%BA%E7%AE%B1%E5%AD%90%E4%B8%BE%E9%87%8D%E6%BC%94%E6%8A%80%E7%82%B8%E8%A3%82%23&Refer=top) `202.4K 🔥`
 
-数据更新于 2021-06-23 07:03:34
+数据更新于 2021-06-23 07:22:54
 
 <!-- END -->
 
