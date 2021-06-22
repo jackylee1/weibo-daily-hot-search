@@ -14,6 +14,7 @@
 1. [7岁乔治小王子身高](https://s.weibo.com/weibo?q=7%E5%B2%81%E4%B9%94%E6%B2%BB%E5%B0%8F%E7%8E%8B%E5%AD%90%E8%BA%AB%E9%AB%98&Refer=top) `2.1M 🔥`
 1. [杨迪 我连上海购房资格都没有](https://s.weibo.com/weibo?q=%E6%9D%A8%E8%BF%AA%20%E6%88%91%E8%BF%9E%E4%B8%8A%E6%B5%B7%E8%B4%AD%E6%88%BF%E8%B5%84%E6%A0%BC%E9%83%BD%E6%B2%A1%E6%9C%89&Refer=top) `1.9M 🔥`
 1. [陈乔恩叫Alan老公](https://s.weibo.com/weibo?q=%23%E9%99%88%E4%B9%94%E6%81%A9%E5%8F%ABAlan%E8%80%81%E5%85%AC%23&Refer=top) `1.8M 🔥`
+1. [自称生十胞胎女子被送入精神病院](https://s.weibo.com/weibo?q=%23%E8%87%AA%E7%A7%B0%E7%94%9F%E5%8D%81%E8%83%9E%E8%83%8E%E5%A5%B3%E5%AD%90%E8%A2%AB%E9%80%81%E5%85%A5%E7%B2%BE%E7%A5%9E%E7%97%85%E9%99%A2%23&Refer=top) `1.5M 🔥`
 1. [王源为时代少年团写歌](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E6%BA%90%E4%B8%BA%E6%97%B6%E4%BB%A3%E5%B0%91%E5%B9%B4%E5%9B%A2%E5%86%99%E6%AD%8C%23&Refer=top) `1.4M 🔥`
 1. [外交部回应美国向台湾捐赠250万剂疫苗](https://s.weibo.com/weibo?q=%23%E5%A4%96%E4%BA%A4%E9%83%A8%E5%9B%9E%E5%BA%94%E7%BE%8E%E5%9B%BD%E5%90%91%E5%8F%B0%E6%B9%BE%E6%8D%90%E8%B5%A0250%E4%B8%87%E5%89%82%E7%96%AB%E8%8B%97%23&Refer=top) `1.2M 🔥`
 1. [男子弃高薪接替父亲守长城](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E5%BC%83%E9%AB%98%E8%96%AA%E6%8E%A5%E6%9B%BF%E7%88%B6%E4%BA%B2%E5%AE%88%E9%95%BF%E5%9F%8E%23&Refer=top) `1.1M 🔥`
@@ -21,7 +22,6 @@
 1. [苏州站安检员上班时间玩游戏被开除](https://s.weibo.com/weibo?q=%23%E8%8B%8F%E5%B7%9E%E7%AB%99%E5%AE%89%E6%A3%80%E5%91%98%E4%B8%8A%E7%8F%AD%E6%97%B6%E9%97%B4%E7%8E%A9%E6%B8%B8%E6%88%8F%E8%A2%AB%E5%BC%80%E9%99%A4%23&Refer=top) `1.1M 🔥`
 1. [黄景瑜公园健身](https://s.weibo.com/weibo?q=%23%E9%BB%84%E6%99%AF%E7%91%9C%E5%85%AC%E5%9B%AD%E5%81%A5%E8%BA%AB%23&Refer=top) `1.1M 🔥`
 1. [燕山大学教授称已推翻爱因斯坦相对论](https://s.weibo.com/weibo?q=%23%E7%87%95%E5%B1%B1%E5%A4%A7%E5%AD%A6%E6%95%99%E6%8E%88%E7%A7%B0%E5%B7%B2%E6%8E%A8%E7%BF%BB%E7%88%B1%E5%9B%A0%E6%96%AF%E5%9D%A6%E7%9B%B8%E5%AF%B9%E8%AE%BA%23&Refer=top) `1.1M 🔥`
-1. [自称生十胞胎女子被送入精神病院](https://s.weibo.com/weibo?q=%23%E8%87%AA%E7%A7%B0%E7%94%9F%E5%8D%81%E8%83%9E%E8%83%8E%E5%A5%B3%E5%AD%90%E8%A2%AB%E9%80%81%E5%85%A5%E7%B2%BE%E7%A5%9E%E7%97%85%E9%99%A2%23&Refer=top) `1.1M 🔥`
 1. [广州超55万亩荔枝熟了](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E8%B6%8555%E4%B8%87%E4%BA%A9%E8%8D%94%E6%9E%9D%E7%86%9F%E4%BA%86%23&Refer=top) `1.0M 🔥`
 1. [中国驻美大使崔天凯发表辞别信](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E9%A9%BB%E7%BE%8E%E5%A4%A7%E4%BD%BF%E5%B4%94%E5%A4%A9%E5%87%AF%E5%8F%91%E8%A1%A8%E8%BE%9E%E5%88%AB%E4%BF%A1%23&Refer=top) `1.0M 🔥`
 1. [白色的才是骆驼 黑色的是影子](https://s.weibo.com/weibo?q=%E7%99%BD%E8%89%B2%E7%9A%84%E6%89%8D%E6%98%AF%E9%AA%86%E9%A9%BC%20%E9%BB%91%E8%89%B2%E7%9A%84%E6%98%AF%E5%BD%B1%E5%AD%90&Refer=top) `990.1K 🔥`
@@ -50,14 +50,14 @@
 1. [院士说不解决卡脖子问题死不瞑目](https://s.weibo.com/weibo?q=%23%E9%99%A2%E5%A3%AB%E8%AF%B4%E4%B8%8D%E8%A7%A3%E5%86%B3%E5%8D%A1%E8%84%96%E5%AD%90%E9%97%AE%E9%A2%98%E6%AD%BB%E4%B8%8D%E7%9E%91%E7%9B%AE%23&Refer=top) `672.4K 🔥`
 1. [欧洲杯已确定11队出线](https://s.weibo.com/weibo?q=%23%E6%AC%A7%E6%B4%B2%E6%9D%AF%E5%B7%B2%E7%A1%AE%E5%AE%9A11%E9%98%9F%E5%87%BA%E7%BA%BF%23&Refer=top) `632.1K 🔥`
 1. [柳真女儿的同学因为吴允熙不跟她玩](https://s.weibo.com/weibo?q=%23%E6%9F%B3%E7%9C%9F%E5%A5%B3%E5%84%BF%E7%9A%84%E5%90%8C%E5%AD%A6%E5%9B%A0%E4%B8%BA%E5%90%B4%E5%85%81%E7%86%99%E4%B8%8D%E8%B7%9F%E5%A5%B9%E7%8E%A9%23&Refer=top) `621.2K 🔥`
+1. [拥有两千支口红是什么体验](https://s.weibo.com/weibo?q=%23%E6%8B%A5%E6%9C%89%E4%B8%A4%E5%8D%83%E6%94%AF%E5%8F%A3%E7%BA%A2%E6%98%AF%E4%BB%80%E4%B9%88%E4%BD%93%E9%AA%8C%23&Refer=top) `589.7K 🔥`
 1. [许凯面具好像半张面膜](https://s.weibo.com/weibo?q=%23%E8%AE%B8%E5%87%AF%E9%9D%A2%E5%85%B7%E5%A5%BD%E5%83%8F%E5%8D%8A%E5%BC%A0%E9%9D%A2%E8%86%9C%23&Refer=top) `573.6K 🔥`
 1. [这是蜜雪冰城新歌吗](https://s.weibo.com/weibo?q=%23%E8%BF%99%E6%98%AF%E8%9C%9C%E9%9B%AA%E5%86%B0%E5%9F%8E%E6%96%B0%E6%AD%8C%E5%90%97%23&Refer=top) `553.2K 🔥`
 1. [黄景瑜方起诉造谣者](https://s.weibo.com/weibo?q=%23%E9%BB%84%E6%99%AF%E7%91%9C%E6%96%B9%E8%B5%B7%E8%AF%89%E9%80%A0%E8%B0%A3%E8%80%85%23&Refer=top) `551.7K 🔥`
 1. [手机内存不够的原因](https://s.weibo.com/weibo?q=%23%E6%89%8B%E6%9C%BA%E5%86%85%E5%AD%98%E4%B8%8D%E5%A4%9F%E7%9A%84%E5%8E%9F%E5%9B%A0%23&Refer=top) `547.9K 🔥`
-1. [李佳航演的冼星海](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E4%BD%B3%E8%88%AA%E6%BC%94%E7%9A%84%E5%86%BC%E6%98%9F%E6%B5%B7%23&Refer=top) `533.9K 🔥`
-1. [送货小哥打暗号学猫叫被邻居误会](https://s.weibo.com/weibo?q=%23%E9%80%81%E8%B4%A7%E5%B0%8F%E5%93%A5%E6%89%93%E6%9A%97%E5%8F%B7%E5%AD%A6%E7%8C%AB%E5%8F%AB%E8%A2%AB%E9%82%BB%E5%B1%85%E8%AF%AF%E4%BC%9A%23&Refer=top) `526.8K 🔥`
+1. [养成系最懂养成系](https://s.weibo.com/weibo?q=%23%E5%85%BB%E6%88%90%E7%B3%BB%E6%9C%80%E6%87%82%E5%85%BB%E6%88%90%E7%B3%BB%23&Refer=top) `544.0K 🔥`
 
-数据更新于 2021-06-22 13:31:42
+数据更新于 2021-06-22 13:43:44
 
 <!-- END -->
 
