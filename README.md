@@ -18,7 +18,7 @@
 1. [班主任把全班45位同学名字写成诗](https://s.weibo.com/weibo?q=%23%E7%8F%AD%E4%B8%BB%E4%BB%BB%E6%8A%8A%E5%85%A8%E7%8F%AD45%E4%BD%8D%E5%90%8C%E5%AD%A6%E5%90%8D%E5%AD%97%E5%86%99%E6%88%90%E8%AF%97%23&Refer=top) `2.3M 🔥`
 1. [云南小象跳水还玩花样游泳](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E5%B0%8F%E8%B1%A1%E8%B7%B3%E6%B0%B4%E8%BF%98%E7%8E%A9%E8%8A%B1%E6%A0%B7%E6%B8%B8%E6%B3%B3%23&Refer=top) `2.1M 🔥`
 1. [匪我思存 妈我有个剧要播了](https://s.weibo.com/weibo?q=%E5%8C%AA%E6%88%91%E6%80%9D%E5%AD%98%20%E5%A6%88%E6%88%91%E6%9C%89%E4%B8%AA%E5%89%A7%E8%A6%81%E6%92%AD%E4%BA%86&Refer=top) `2.1M 🔥`
-1. [男生高考查分全家跟着手抖](https://s.weibo.com/weibo?q=%23%E7%94%B7%E7%94%9F%E9%AB%98%E8%80%83%E6%9F%A5%E5%88%86%E5%85%A8%E5%AE%B6%E8%B7%9F%E7%9D%80%E6%89%8B%E6%8A%96%23&Refer=top) `1.9M 🔥`
+1. [男生高考查分全家跟着手抖](https://s.weibo.com/weibo?q=%23%E7%94%B7%E7%94%9F%E9%AB%98%E8%80%83%E6%9F%A5%E5%88%86%E5%85%A8%E5%AE%B6%E8%B7%9F%E7%9D%80%E6%89%8B%E6%8A%96%23&Refer=top) `2.0M 🔥`
 1. [薛之谦新歌被人](https://s.weibo.com/weibo?q=%23%E8%96%9B%E4%B9%8B%E8%B0%A6%E6%96%B0%E6%AD%8C%E8%A2%AB%E4%BA%BA%23&Refer=top) `1.8M 🔥`
 1. [ofo被强制执行1341万](https://s.weibo.com/weibo?q=%23ofo%E8%A2%AB%E5%BC%BA%E5%88%B6%E6%89%A7%E8%A1%8C1341%E4%B8%87%23&Refer=top) `1.6M 🔥`
 1. [安徽文科分数线好高](https://s.weibo.com/weibo?q=%23%E5%AE%89%E5%BE%BD%E6%96%87%E7%A7%91%E5%88%86%E6%95%B0%E7%BA%BF%E5%A5%BD%E9%AB%98%23&Refer=top) `1.6M 🔥`
@@ -50,14 +50,14 @@
 1. [妲己女仆咖啡](https://s.weibo.com/weibo?q=%23%E5%A6%B2%E5%B7%B1%E5%A5%B3%E4%BB%86%E5%92%96%E5%95%A1%23&Refer=top) `873.7K 🔥`
 1. [卡鲁索 被捕](https://s.weibo.com/weibo?q=%E5%8D%A1%E9%B2%81%E7%B4%A2%20%E8%A2%AB%E6%8D%95&Refer=top) `871.7K 🔥`
 1. [西安一高校全班29人有26人读研](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E5%AE%89%E4%B8%80%E9%AB%98%E6%A0%A1%E5%85%A8%E7%8F%AD29%E4%BA%BA%E6%9C%8926%E4%BA%BA%E8%AF%BB%E7%A0%94%23&Refer=top) `862.6K 🔥`
+1. [妹妹去学校接哥哥放学](https://s.weibo.com/weibo?q=%23%E5%A6%B9%E5%A6%B9%E5%8E%BB%E5%AD%A6%E6%A0%A1%E6%8E%A5%E5%93%A5%E5%93%A5%E6%94%BE%E5%AD%A6%23&Refer=top) `854.2K 🔥`
 1. [连淮伟签约留白](https://s.weibo.com/weibo?q=%23%E8%BF%9E%E6%B7%AE%E4%BC%9F%E7%AD%BE%E7%BA%A6%E7%95%99%E7%99%BD%23&Refer=top) `835.3K 🔥`
 1. [总书记与航天员通话现场视频](https://s.weibo.com/weibo?q=%23%E6%80%BB%E4%B9%A6%E8%AE%B0%E4%B8%8E%E8%88%AA%E5%A4%A9%E5%91%98%E9%80%9A%E8%AF%9D%E7%8E%B0%E5%9C%BA%E8%A7%86%E9%A2%91%23&Refer=top) `803.3K 🔥`
+1. [一箱1974年茅台拍出900万元](https://s.weibo.com/weibo?q=%23%E4%B8%80%E7%AE%B11974%E5%B9%B4%E8%8C%85%E5%8F%B0%E6%8B%8D%E5%87%BA900%E4%B8%87%E5%85%83%23&Refer=top) `799.7K 🔥`
 1. [这辈子买过最智商税的东西](https://s.weibo.com/weibo?q=%23%E8%BF%99%E8%BE%88%E5%AD%90%E4%B9%B0%E8%BF%87%E6%9C%80%E6%99%BA%E5%95%86%E7%A8%8E%E7%9A%84%E4%B8%9C%E8%A5%BF%23&Refer=top) `794.6K 🔥`
-1. [妹妹去学校接哥哥放学](https://s.weibo.com/weibo?q=%23%E5%A6%B9%E5%A6%B9%E5%8E%BB%E5%AD%A6%E6%A0%A1%E6%8E%A5%E5%93%A5%E5%93%A5%E6%94%BE%E5%AD%A6%23&Refer=top) `787.5K 🔥`
 1. [爸妈对摄像头喊女儿吃龙虾](https://s.weibo.com/weibo?q=%23%E7%88%B8%E5%A6%88%E5%AF%B9%E6%91%84%E5%83%8F%E5%A4%B4%E5%96%8A%E5%A5%B3%E5%84%BF%E5%90%83%E9%BE%99%E8%99%BE%23&Refer=top) `765.0K 🔥`
-1. [一箱1974年茅台拍出900万元](https://s.weibo.com/weibo?q=%23%E4%B8%80%E7%AE%B11974%E5%B9%B4%E8%8C%85%E5%8F%B0%E6%8B%8D%E5%87%BA900%E4%B8%87%E5%85%83%23&Refer=top) `759.0K 🔥`
 
-数据更新于 2021-06-23 16:00:00
+数据更新于 2021-06-23 16:02:28
 
 <!-- END -->
 
