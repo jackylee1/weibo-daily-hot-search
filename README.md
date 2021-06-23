@@ -43,6 +43,7 @@
 1. [北方不常见的一种水果](https://s.weibo.com/weibo?q=%23%E5%8C%97%E6%96%B9%E4%B8%8D%E5%B8%B8%E8%A7%81%E7%9A%84%E4%B8%80%E7%A7%8D%E6%B0%B4%E6%9E%9C%23&Refer=top) `1.2M 🔥`
 1. [酸奶为何越来越贵](https://s.weibo.com/weibo?q=%23%E9%85%B8%E5%A5%B6%E4%B8%BA%E4%BD%95%E8%B6%8A%E6%9D%A5%E8%B6%8A%E8%B4%B5%23&Refer=top) `1.1M 🔥`
 1. [4人在台确诊仍登机赴厦门](https://s.weibo.com/weibo?q=%234%E4%BA%BA%E5%9C%A8%E5%8F%B0%E7%A1%AE%E8%AF%8A%E4%BB%8D%E7%99%BB%E6%9C%BA%E8%B5%B4%E5%8E%A6%E9%97%A8%23&Refer=top) `1.1M 🔥`
+1. [蒋勇律师去世](https://s.weibo.com/weibo?q=%E8%92%8B%E5%8B%87%E5%BE%8B%E5%B8%88%E5%8E%BB%E4%B8%96&Refer=top) `1.1M 🔥`
 1. [孙杨回应被禁赛4年3个月](https://s.weibo.com/weibo?q=%23%E5%AD%99%E6%9D%A8%E5%9B%9E%E5%BA%94%E8%A2%AB%E7%A6%81%E8%B5%9B4%E5%B9%B43%E4%B8%AA%E6%9C%88%23&Refer=top) `1.1M 🔥`
 1. [女子防监控拍摄走光打伞上班被开除](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E9%98%B2%E7%9B%91%E6%8E%A7%E6%8B%8D%E6%91%84%E8%B5%B0%E5%85%89%E6%89%93%E4%BC%9E%E4%B8%8A%E7%8F%AD%E8%A2%AB%E5%BC%80%E9%99%A4%23&Refer=top) `1.1M 🔥`
 1. [套个圈把老板套走了](https://s.weibo.com/weibo?q=%23%E5%A5%97%E4%B8%AA%E5%9C%88%E6%8A%8A%E8%80%81%E6%9D%BF%E5%A5%97%E8%B5%B0%E4%BA%86%23&Refer=top) `1.0M 🔥`
@@ -55,9 +56,8 @@
 1. [鹿晗银发](https://s.weibo.com/weibo?q=%23%E9%B9%BF%E6%99%97%E9%93%B6%E5%8F%91%23&Refer=top) `914.1K 🔥`
 1. [男生晚自习玩手机被辅导员吓到](https://s.weibo.com/weibo?q=%23%E7%94%B7%E7%94%9F%E6%99%9A%E8%87%AA%E4%B9%A0%E7%8E%A9%E6%89%8B%E6%9C%BA%E8%A2%AB%E8%BE%85%E5%AF%BC%E5%91%98%E5%90%93%E5%88%B0%23&Refer=top) `907.5K 🔥`
 1. [陈延年陈乔年跨越百年的告白](https://s.weibo.com/weibo?q=%23%E9%99%88%E5%BB%B6%E5%B9%B4%E9%99%88%E4%B9%94%E5%B9%B4%E8%B7%A8%E8%B6%8A%E7%99%BE%E5%B9%B4%E7%9A%84%E5%91%8A%E7%99%BD%23&Refer=top) `898.0K 🔥`
-1. [赵丽颖隐藏的投篮高手](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E4%B8%BD%E9%A2%96%E9%9A%90%E8%97%8F%E7%9A%84%E6%8A%95%E7%AF%AE%E9%AB%98%E6%89%8B%23&Refer=top) `897.2K 🔥`
 
-数据更新于 2021-06-23 18:58:41
+数据更新于 2021-06-23 19:01:53
 
 <!-- END -->
 
