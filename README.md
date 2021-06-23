@@ -18,6 +18,7 @@
 1. [云南小象跳水还玩花样游泳](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E5%B0%8F%E8%B1%A1%E8%B7%B3%E6%B0%B4%E8%BF%98%E7%8E%A9%E8%8A%B1%E6%A0%B7%E6%B8%B8%E6%B3%B3%23&Refer=top) `2.1M 🔥`
 1. [匪我思存 妈我有个剧要播了](https://s.weibo.com/weibo?q=%E5%8C%AA%E6%88%91%E6%80%9D%E5%AD%98%20%E5%A6%88%E6%88%91%E6%9C%89%E4%B8%AA%E5%89%A7%E8%A6%81%E6%92%AD%E4%BA%86&Refer=top) `2.1M 🔥`
 1. [薛之谦新歌被人](https://s.weibo.com/weibo?q=%23%E8%96%9B%E4%B9%8B%E8%B0%A6%E6%96%B0%E6%AD%8C%E8%A2%AB%E4%BA%BA%23&Refer=top) `1.8M 🔥`
+1. [南开录取通知书送两粒嘉兴莲花种子](https://s.weibo.com/weibo?q=%23%E5%8D%97%E5%BC%80%E5%BD%95%E5%8F%96%E9%80%9A%E7%9F%A5%E4%B9%A6%E9%80%81%E4%B8%A4%E7%B2%92%E5%98%89%E5%85%B4%E8%8E%B2%E8%8A%B1%E7%A7%8D%E5%AD%90%23&Refer=top) `1.6M 🔥`
 1. [ofo被强制执行1341万](https://s.weibo.com/weibo?q=%23ofo%E8%A2%AB%E5%BC%BA%E5%88%B6%E6%89%A7%E8%A1%8C1341%E4%B8%87%23&Refer=top) `1.6M 🔥`
 1. [安徽文科分数线好高](https://s.weibo.com/weibo?q=%23%E5%AE%89%E5%BE%BD%E6%96%87%E7%A7%91%E5%88%86%E6%95%B0%E7%BA%BF%E5%A5%BD%E9%AB%98%23&Refer=top) `1.6M 🔥`
 1. [4岁女童走失最后被发现在悬崖上静坐](https://s.weibo.com/weibo?q=%234%E5%B2%81%E5%A5%B3%E7%AB%A5%E8%B5%B0%E5%A4%B1%E6%9C%80%E5%90%8E%E8%A2%AB%E5%8F%91%E7%8E%B0%E5%9C%A8%E6%82%AC%E5%B4%96%E4%B8%8A%E9%9D%99%E5%9D%90%23&Refer=top) `1.5M 🔥`
@@ -55,9 +56,8 @@
 1. [嘉人带错超话](https://s.weibo.com/weibo?q=%23%E5%98%89%E4%BA%BA%E5%B8%A6%E9%94%99%E8%B6%85%E8%AF%9D%23&Refer=top) `706.1K 🔥`
 1. [5厘米巨型萤火虫现身四川](https://s.weibo.com/weibo?q=%235%E5%8E%98%E7%B1%B3%E5%B7%A8%E5%9E%8B%E8%90%A4%E7%81%AB%E8%99%AB%E7%8E%B0%E8%BA%AB%E5%9B%9B%E5%B7%9D%23&Refer=top) `682.0K 🔥`
 1. [丁磊称专业比学校更重要](https://s.weibo.com/weibo?q=%23%E4%B8%81%E7%A3%8A%E7%A7%B0%E4%B8%93%E4%B8%9A%E6%AF%94%E5%AD%A6%E6%A0%A1%E6%9B%B4%E9%87%8D%E8%A6%81%23&Refer=top) `678.3K 🔥`
-1. [白宫承认独立日前无法完成疫苗接种目标](https://s.weibo.com/weibo?q=%23%E7%99%BD%E5%AE%AB%E6%89%BF%E8%AE%A4%E7%8B%AC%E7%AB%8B%E6%97%A5%E5%89%8D%E6%97%A0%E6%B3%95%E5%AE%8C%E6%88%90%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A7%8D%E7%9B%AE%E6%A0%87%23&Refer=top) `653.4K 🔥`
 
-数据更新于 2021-06-23 14:03:06
+数据更新于 2021-06-23 14:28:11
 
 <!-- END -->
 
