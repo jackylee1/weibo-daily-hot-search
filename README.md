@@ -9,7 +9,7 @@
 1. [高考分数线](https://s.weibo.com/weibo?q=%23%E9%AB%98%E8%80%83%E5%88%86%E6%95%B0%E7%BA%BF%23&Refer=top) `8.9M 🔥`
 1. [孙杨8年禁赛减为4年3个月](https://s.weibo.com/weibo?q=%23%E5%AD%99%E6%9D%A88%E5%B9%B4%E7%A6%81%E8%B5%9B%E5%87%8F%E4%B8%BA4%E5%B9%B43%E4%B8%AA%E6%9C%88%23&Refer=top) `4.3M 🔥`
 1. [高考成绩](https://s.weibo.com/weibo?q=%23%E9%AB%98%E8%80%83%E6%88%90%E7%BB%A9%23&Refer=top) `4.2M 🔥`
-1. [男生高考查分全家跟着手抖](https://s.weibo.com/weibo?q=%23%E7%94%B7%E7%94%9F%E9%AB%98%E8%80%83%E6%9F%A5%E5%88%86%E5%85%A8%E5%AE%B6%E8%B7%9F%E7%9D%80%E6%89%8B%E6%8A%96%23&Refer=top) `3.4M 🔥`
+1. [男生高考查分全家跟着手抖](https://s.weibo.com/weibo?q=%23%E7%94%B7%E7%94%9F%E9%AB%98%E8%80%83%E6%9F%A5%E5%88%86%E5%85%A8%E5%AE%B6%E8%B7%9F%E7%9D%80%E6%89%8B%E6%8A%96%23&Refer=top) `3.8M 🔥`
 1. [3名大学生凌晨5点在秦岭捡垃圾](https://s.weibo.com/weibo?q=%233%E5%90%8D%E5%A4%A7%E5%AD%A6%E7%94%9F%E5%87%8C%E6%99%A85%E7%82%B9%E5%9C%A8%E7%A7%A6%E5%B2%AD%E6%8D%A1%E5%9E%83%E5%9C%BE%23&Refer=top) `3.2M 🔥`
 1. [南开录取通知书送两粒嘉兴莲花种子](https://s.weibo.com/weibo?q=%23%E5%8D%97%E5%BC%80%E5%BD%95%E5%8F%96%E9%80%9A%E7%9F%A5%E4%B9%A6%E9%80%81%E4%B8%A4%E7%B2%92%E5%98%89%E5%85%B4%E8%8E%B2%E8%8A%B1%E7%A7%8D%E5%AD%90%23&Refer=top) `3.1M 🔥`
 1. [新iPhone有望加入指纹解锁](https://s.weibo.com/weibo?q=%23%E6%96%B0iPhone%E6%9C%89%E6%9C%9B%E5%8A%A0%E5%85%A5%E6%8C%87%E7%BA%B9%E8%A7%A3%E9%94%81%23&Refer=top) `2.9M 🔥`
@@ -24,6 +24,7 @@
 1. [薛之谦新歌被人](https://s.weibo.com/weibo?q=%23%E8%96%9B%E4%B9%8B%E8%B0%A6%E6%96%B0%E6%AD%8C%E8%A2%AB%E4%BA%BA%23&Refer=top) `1.8M 🔥`
 1. [ofo被强制执行1341万](https://s.weibo.com/weibo?q=%23ofo%E8%A2%AB%E5%BC%BA%E5%88%B6%E6%89%A7%E8%A1%8C1341%E4%B8%87%23&Refer=top) `1.6M 🔥`
 1. [安徽文科分数线好高](https://s.weibo.com/weibo?q=%23%E5%AE%89%E5%BE%BD%E6%96%87%E7%A7%91%E5%88%86%E6%95%B0%E7%BA%BF%E5%A5%BD%E9%AB%98%23&Refer=top) `1.6M 🔥`
+1. [警方确认April李玹珠被排挤](https://s.weibo.com/weibo?q=%23%E8%AD%A6%E6%96%B9%E7%A1%AE%E8%AE%A4April%E6%9D%8E%E7%8E%B9%E7%8F%A0%E8%A2%AB%E6%8E%92%E6%8C%A4%23&Refer=top) `1.5M 🔥`
 1. [4岁女童走失最后被发现在悬崖上静坐](https://s.weibo.com/weibo?q=%234%E5%B2%81%E5%A5%B3%E7%AB%A5%E8%B5%B0%E5%A4%B1%E6%9C%80%E5%90%8E%E8%A2%AB%E5%8F%91%E7%8E%B0%E5%9C%A8%E6%82%AC%E5%B4%96%E4%B8%8A%E9%9D%99%E5%9D%90%23&Refer=top) `1.5M 🔥`
 1. [航天员太空吃播](https://s.weibo.com/weibo?q=%23%E8%88%AA%E5%A4%A9%E5%91%98%E5%A4%AA%E7%A9%BA%E5%90%83%E6%92%AD%23&Refer=top) `1.5M 🔥`
 1. [孙杨被禁赛四年意味着什么](https://s.weibo.com/weibo?q=%23%E5%AD%99%E6%9D%A8%E8%A2%AB%E7%A6%81%E8%B5%9B%E5%9B%9B%E5%B9%B4%E6%84%8F%E5%91%B3%E7%9D%80%E4%BB%80%E4%B9%88%23&Refer=top) `1.5M 🔥`
@@ -48,7 +49,6 @@
 1. [用自动贩卖机冰西瓜被封号3月](https://s.weibo.com/weibo?q=%23%E7%94%A8%E8%87%AA%E5%8A%A8%E8%B4%A9%E5%8D%96%E6%9C%BA%E5%86%B0%E8%A5%BF%E7%93%9C%E8%A2%AB%E5%B0%81%E5%8F%B73%E6%9C%88%23&Refer=top) `893.0K 🔥`
 1. [一时竟分不清是猪还是狗](https://s.weibo.com/weibo?q=%23%E4%B8%80%E6%97%B6%E7%AB%9F%E5%88%86%E4%B8%8D%E6%B8%85%E6%98%AF%E7%8C%AA%E8%BF%98%E6%98%AF%E7%8B%97%23&Refer=top) `890.5K 🔥`
 1. [严浩翔少年说唱企划路透](https://s.weibo.com/weibo?q=%23%E4%B8%A5%E6%B5%A9%E7%BF%94%E5%B0%91%E5%B9%B4%E8%AF%B4%E5%94%B1%E4%BC%81%E5%88%92%E8%B7%AF%E9%80%8F%23&Refer=top) `887.3K 🔥`
-1. [警方确认April李玹珠被排挤](https://s.weibo.com/weibo?q=%23%E8%AD%A6%E6%96%B9%E7%A1%AE%E8%AE%A4April%E6%9D%8E%E7%8E%B9%E7%8F%A0%E8%A2%AB%E6%8E%92%E6%8C%A4%23&Refer=top) `883.4K 🔥`
 1. [2021安徽高考分数线公布](https://s.weibo.com/weibo?q=%232021%E5%AE%89%E5%BE%BD%E9%AB%98%E8%80%83%E5%88%86%E6%95%B0%E7%BA%BF%E5%85%AC%E5%B8%83%23&Refer=top) `880.1K 🔥`
 1. [杭州某楼盘应援式宣传](https://s.weibo.com/weibo?q=%23%E6%9D%AD%E5%B7%9E%E6%9F%90%E6%A5%BC%E7%9B%98%E5%BA%94%E6%8F%B4%E5%BC%8F%E5%AE%A3%E4%BC%A0%23&Refer=top) `877.4K 🔥`
 1. [妲己女仆咖啡](https://s.weibo.com/weibo?q=%23%E5%A6%B2%E5%B7%B1%E5%A5%B3%E4%BB%86%E5%92%96%E5%95%A1%23&Refer=top) `873.7K 🔥`
@@ -57,7 +57,7 @@
 1. [连淮伟签约留白](https://s.weibo.com/weibo?q=%23%E8%BF%9E%E6%B7%AE%E4%BC%9F%E7%AD%BE%E7%BA%A6%E7%95%99%E7%99%BD%23&Refer=top) `835.3K 🔥`
 1. [孙杨回应被禁赛4年3个月](https://s.weibo.com/weibo?q=%23%E5%AD%99%E6%9D%A8%E5%9B%9E%E5%BA%94%E8%A2%AB%E7%A6%81%E8%B5%9B4%E5%B9%B43%E4%B8%AA%E6%9C%88%23&Refer=top) `824.0K 🔥`
 
-数据更新于 2021-06-23 16:46:34
+数据更新于 2021-06-23 16:52:24
 
 <!-- END -->
 
