@@ -7,7 +7,7 @@
 <!-- BEGIN -->
 
 1. [高考分数线](https://s.weibo.com/weibo?q=%23%E9%AB%98%E8%80%83%E5%88%86%E6%95%B0%E7%BA%BF%23&Refer=top) `8.9M 🔥`
-1. [蒋勇律师去世](https://s.weibo.com/weibo?q=%23%E8%92%8B%E5%8B%87%E5%BE%8B%E5%B8%88%E5%8E%BB%E4%B8%96%23&Refer=top) `4.5M 🔥`
+1. [蒋勇律师去世](https://s.weibo.com/weibo?q=%23%E8%92%8B%E5%8B%87%E5%BE%8B%E5%B8%88%E5%8E%BB%E4%B8%96%23&Refer=top) `4.7M 🔥`
 1. [男生高考查分全家跟着手抖](https://s.weibo.com/weibo?q=%23%E7%94%B7%E7%94%9F%E9%AB%98%E8%80%83%E6%9F%A5%E5%88%86%E5%85%A8%E5%AE%B6%E8%B7%9F%E7%9D%80%E6%89%8B%E6%8A%96%23&Refer=top) `4.4M 🔥`
 1. [孙杨8年禁赛减为4年3个月](https://s.weibo.com/weibo?q=%23%E5%AD%99%E6%9D%A88%E5%B9%B4%E7%A6%81%E8%B5%9B%E5%87%8F%E4%B8%BA4%E5%B9%B43%E4%B8%AA%E6%9C%88%23&Refer=top) `4.3M 🔥`
 1. [高考成绩](https://s.weibo.com/weibo?q=%23%E9%AB%98%E8%80%83%E6%88%90%E7%BB%A9%23&Refer=top) `4.2M 🔥`
@@ -57,7 +57,7 @@
 1. [白敬亭 戴表了但没有完全戴](https://s.weibo.com/weibo?q=%E7%99%BD%E6%95%AC%E4%BA%AD%20%E6%88%B4%E8%A1%A8%E4%BA%86%E4%BD%86%E6%B2%A1%E6%9C%89%E5%AE%8C%E5%85%A8%E6%88%B4&Refer=top) `917.5K 🔥`
 1. [鹿晗银发](https://s.weibo.com/weibo?q=%23%E9%B9%BF%E6%99%97%E9%93%B6%E5%8F%91%23&Refer=top) `914.1K 🔥`
 
-数据更新于 2021-06-23 19:37:23
+数据更新于 2021-06-23 19:43:06
 
 <!-- END -->
 
