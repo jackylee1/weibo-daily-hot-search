@@ -42,6 +42,7 @@
 1. [林峯写给张馨月的信](https://s.weibo.com/weibo?q=%23%E6%9E%97%E5%B3%AF%E5%86%99%E7%BB%99%E5%BC%A0%E9%A6%A8%E6%9C%88%E7%9A%84%E4%BF%A1%23&Refer=top) `1.1M 🔥`
 1. [男生超一本线27分哭着报喜](https://s.weibo.com/weibo?q=%23%E7%94%B7%E7%94%9F%E8%B6%85%E4%B8%80%E6%9C%AC%E7%BA%BF27%E5%88%86%E5%93%AD%E7%9D%80%E6%8A%A5%E5%96%9C%23&Refer=top) `1.1M 🔥`
 1. [原来烤冷面真的是面](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E7%83%A4%E5%86%B7%E9%9D%A2%E7%9C%9F%E7%9A%84%E6%98%AF%E9%9D%A2%23&Refer=top) `1.0M 🔥`
+1. [医生建议发呆能防脑过劳](https://s.weibo.com/weibo?q=%23%E5%8C%BB%E7%94%9F%E5%BB%BA%E8%AE%AE%E5%8F%91%E5%91%86%E8%83%BD%E9%98%B2%E8%84%91%E8%BF%87%E5%8A%B3%23&Refer=top) `1.0M 🔥`
 1. [C罗爱穿长袖的原因](https://s.weibo.com/weibo?q=%23C%E7%BD%97%E7%88%B1%E7%A9%BF%E9%95%BF%E8%A2%96%E7%9A%84%E5%8E%9F%E5%9B%A0%23&Refer=top) `990.4K 🔥`
 1. [C罗本泽马交换球衣](https://s.weibo.com/weibo?q=%23C%E7%BD%97%E6%9C%AC%E6%B3%BD%E9%A9%AC%E4%BA%A4%E6%8D%A2%E7%90%83%E8%A1%A3%23&Refer=top) `983.2K 🔥`
 1. [妈妈做馒头雪糕糊弄萌娃](https://s.weibo.com/weibo?q=%23%E5%A6%88%E5%A6%88%E5%81%9A%E9%A6%92%E5%A4%B4%E9%9B%AA%E7%B3%95%E7%B3%8A%E5%BC%84%E8%90%8C%E5%A8%83%23&Refer=top) `968.6K 🔥`
@@ -55,9 +56,8 @@
 1. [吴京的责任感有多强](https://s.weibo.com/weibo?q=%23%E5%90%B4%E4%BA%AC%E7%9A%84%E8%B4%A3%E4%BB%BB%E6%84%9F%E6%9C%89%E5%A4%9A%E5%BC%BA%23&Refer=top) `832.3K 🔥`
 1. [张柏芝不当明星会当幼儿园老师](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%9F%8F%E8%8A%9D%E4%B8%8D%E5%BD%93%E6%98%8E%E6%98%9F%E4%BC%9A%E5%BD%93%E5%B9%BC%E5%84%BF%E5%9B%AD%E8%80%81%E5%B8%88%23&Refer=top) `831.5K 🔥`
 1. [美国疫情](https://s.weibo.com/weibo?q=%E7%BE%8E%E5%9B%BD%E7%96%AB%E6%83%85&Refer=top) `805.1K 🔥`
-1. [安徽官方回应文理科分数线分差大](https://s.weibo.com/weibo?q=%23%E5%AE%89%E5%BE%BD%E5%AE%98%E6%96%B9%E5%9B%9E%E5%BA%94%E6%96%87%E7%90%86%E7%A7%91%E5%88%86%E6%95%B0%E7%BA%BF%E5%88%86%E5%B7%AE%E5%A4%A7%23&Refer=top) `802.2K 🔥`
 
-数据更新于 2021-06-24 14:04:41
+数据更新于 2021-06-24 14:29:49
 
 <!-- END -->
 
