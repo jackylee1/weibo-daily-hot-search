@@ -27,6 +27,8 @@
 1. [杀毒软件之父死于巴塞罗那监狱](https://s.weibo.com/weibo?q=%E6%9D%80%E6%AF%92%E8%BD%AF%E4%BB%B6%E4%B9%8B%E7%88%B6%E6%AD%BB%E4%BA%8E%E5%B7%B4%E5%A1%9E%E7%BD%97%E9%82%A3%E7%9B%91%E7%8B%B1&Refer=top) `1.8M 🔥`
 1. [湖南高考分数](https://s.weibo.com/weibo?q=%23%E6%B9%96%E5%8D%97%E9%AB%98%E8%80%83%E5%88%86%E6%95%B0%23&Refer=top) `1.8M 🔥`
 1. [薯片炸西瓜](https://s.weibo.com/weibo?q=%23%E8%96%AF%E7%89%87%E7%82%B8%E8%A5%BF%E7%93%9C%23&Refer=top) `1.6M 🔥`
+1. [大四女生毕设为姥爷造智能水壶](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%9B%9B%E5%A5%B3%E7%94%9F%E6%AF%95%E8%AE%BE%E4%B8%BA%E5%A7%A5%E7%88%B7%E9%80%A0%E6%99%BA%E8%83%BD%E6%B0%B4%E5%A3%B6%23&Refer=top) `1.6M 🔥`
+1. [快手7月将取消大小周](https://s.weibo.com/weibo?q=%23%E5%BF%AB%E6%89%8B7%E6%9C%88%E5%B0%86%E5%8F%96%E6%B6%88%E5%A4%A7%E5%B0%8F%E5%91%A8%23&Refer=top) `1.5M 🔥`
 1. [薇娅说丁真不用担心吃藕丑](https://s.weibo.com/weibo?q=%23%E8%96%87%E5%A8%85%E8%AF%B4%E4%B8%81%E7%9C%9F%E4%B8%8D%E7%94%A8%E6%8B%85%E5%BF%83%E5%90%83%E8%97%95%E4%B8%91%23&Refer=top) `1.5M 🔥`
 1. [苹果打败橙子成为太空水果](https://s.weibo.com/weibo?q=%23%E8%8B%B9%E6%9E%9C%E6%89%93%E8%B4%A5%E6%A9%99%E5%AD%90%E6%88%90%E4%B8%BA%E5%A4%AA%E7%A9%BA%E6%B0%B4%E6%9E%9C%23&Refer=top) `1.4M 🔥`
 1. [萧敬腾与经纪人贴脸自拍](https://s.weibo.com/weibo?q=%23%E8%90%A7%E6%95%AC%E8%85%BE%E4%B8%8E%E7%BB%8F%E7%BA%AA%E4%BA%BA%E8%B4%B4%E8%84%B8%E8%87%AA%E6%8B%8D%23&Refer=top) `1.4M 🔥`
@@ -54,10 +56,8 @@
 1. [韩国渔民发现32条腿章鱼](https://s.weibo.com/weibo?q=%23%E9%9F%A9%E5%9B%BD%E6%B8%94%E6%B0%91%E5%8F%91%E7%8E%B032%E6%9D%A1%E8%85%BF%E7%AB%A0%E9%B1%BC%23&Refer=top) `1.1M 🔥`
 1. [广州高风险区居民揭秘隔离生活](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E9%AB%98%E9%A3%8E%E9%99%A9%E5%8C%BA%E5%B1%85%E6%B0%91%E6%8F%AD%E7%A7%98%E9%9A%94%E7%A6%BB%E7%94%9F%E6%B4%BB%23&Refer=top) `1.1M 🔥`
 1. [林峯写给张馨月的信](https://s.weibo.com/weibo?q=%23%E6%9E%97%E5%B3%AF%E5%86%99%E7%BB%99%E5%BC%A0%E9%A6%A8%E6%9C%88%E7%9A%84%E4%BF%A1%23&Refer=top) `1.1M 🔥`
-1. [男生超一本线27分哭着报喜](https://s.weibo.com/weibo?q=%23%E7%94%B7%E7%94%9F%E8%B6%85%E4%B8%80%E6%9C%AC%E7%BA%BF27%E5%88%86%E5%93%AD%E7%9D%80%E6%8A%A5%E5%96%9C%23&Refer=top) `1.1M 🔥`
-1. [兰州新增1例新冠肺炎确诊病例](https://s.weibo.com/weibo?q=%23%E5%85%B0%E5%B7%9E%E6%96%B0%E5%A2%9E1%E4%BE%8B%E6%96%B0%E5%86%A0%E8%82%BA%E7%82%8E%E7%A1%AE%E8%AF%8A%E7%97%85%E4%BE%8B%23&Refer=top) `1.0M 🔥`
 
-数据更新于 2021-06-24 19:12:18
+数据更新于 2021-06-24 19:24:41
 
 <!-- END -->
 
