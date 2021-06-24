@@ -20,6 +20,7 @@
 1. [男生高考689分和父亲激动相拥](https://s.weibo.com/weibo?q=%23%E7%94%B7%E7%94%9F%E9%AB%98%E8%80%83689%E5%88%86%E5%92%8C%E7%88%B6%E4%BA%B2%E6%BF%80%E5%8A%A8%E7%9B%B8%E6%8B%A5%23&Refer=top) `2.2M 🔥`
 1. [今年全是泡泡袖](https://s.weibo.com/weibo?q=%23%E4%BB%8A%E5%B9%B4%E5%85%A8%E6%98%AF%E6%B3%A1%E6%B3%A1%E8%A2%96%23&Refer=top) `2.2M 🔥`
 1. [张雨绮 你好像油油哦像我家炒菜用的油](https://s.weibo.com/weibo?q=%E5%BC%A0%E9%9B%A8%E7%BB%AE%20%E4%BD%A0%E5%A5%BD%E5%83%8F%E6%B2%B9%E6%B2%B9%E5%93%A6%E5%83%8F%E6%88%91%E5%AE%B6%E7%82%92%E8%8F%9C%E7%94%A8%E7%9A%84%E6%B2%B9&Refer=top) `2.1M 🔥`
+1. [提前泄露小米新机博主被判赔偿100万](https://s.weibo.com/weibo?q=%23%E6%8F%90%E5%89%8D%E6%B3%84%E9%9C%B2%E5%B0%8F%E7%B1%B3%E6%96%B0%E6%9C%BA%E5%8D%9A%E4%B8%BB%E8%A2%AB%E5%88%A4%E8%B5%94%E5%81%BF100%E4%B8%87%23&Refer=top) `2.0M 🔥`
 1. [Angelababy说小海绵眼里不只是她了](https://s.weibo.com/weibo?q=%23Angelababy%E8%AF%B4%E5%B0%8F%E6%B5%B7%E7%BB%B5%E7%9C%BC%E9%87%8C%E4%B8%8D%E5%8F%AA%E6%98%AF%E5%A5%B9%E4%BA%86%23&Refer=top) `2.0M 🔥`
 1. [C罗跟可乐瓶没完了](https://s.weibo.com/weibo?q=%23C%E7%BD%97%E8%B7%9F%E5%8F%AF%E4%B9%90%E7%93%B6%E6%B2%A1%E5%AE%8C%E4%BA%86%23&Refer=top) `2.0M 🔥`
 1. [医生建议发呆能防脑过劳](https://s.weibo.com/weibo?q=%23%E5%8C%BB%E7%94%9F%E5%BB%BA%E8%AE%AE%E5%8F%91%E5%91%86%E8%83%BD%E9%98%B2%E8%84%91%E8%BF%87%E5%8A%B3%23&Refer=top) `1.9M 🔥`
@@ -48,16 +49,15 @@
 1. [科比妻子与直升机公司达成和解](https://s.weibo.com/weibo?q=%23%E7%A7%91%E6%AF%94%E5%A6%BB%E5%AD%90%E4%B8%8E%E7%9B%B4%E5%8D%87%E6%9C%BA%E5%85%AC%E5%8F%B8%E8%BE%BE%E6%88%90%E5%92%8C%E8%A7%A3%23&Refer=top) `1.2M 🔥`
 1. [莱万哭了](https://s.weibo.com/weibo?q=%E8%8E%B1%E4%B8%87%E5%93%AD%E4%BA%86&Refer=top) `1.2M 🔥`
 1. [一粒片仔癀售卖近千元](https://s.weibo.com/weibo?q=%23%E4%B8%80%E7%B2%92%E7%89%87%E4%BB%94%E7%99%80%E5%94%AE%E5%8D%96%E8%BF%91%E5%8D%83%E5%85%83%23&Refer=top) `1.2M 🔥`
+1. [世界上第一位半机械臂纹身师](https://s.weibo.com/weibo?q=%E4%B8%96%E7%95%8C%E4%B8%8A%E7%AC%AC%E4%B8%80%E4%BD%8D%E5%8D%8A%E6%9C%BA%E6%A2%B0%E8%87%82%E7%BA%B9%E8%BA%AB%E5%B8%88&Refer=top) `1.1M 🔥`
 1. [梁实明年想换文科](https://s.weibo.com/weibo?q=%23%E6%A2%81%E5%AE%9E%E6%98%8E%E5%B9%B4%E6%83%B3%E6%8D%A2%E6%96%87%E7%A7%91%23&Refer=top) `1.1M 🔥`
 1. [赵立坚回应旅日大熊猫真真产仔](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E7%AB%8B%E5%9D%9A%E5%9B%9E%E5%BA%94%E6%97%85%E6%97%A5%E5%A4%A7%E7%86%8A%E7%8C%AB%E7%9C%9F%E7%9C%9F%E4%BA%A7%E4%BB%94%23&Refer=top) `1.1M 🔥`
 1. [斯洛伐克 西班牙](https://s.weibo.com/weibo?q=%E6%96%AF%E6%B4%9B%E4%BC%90%E5%85%8B%20%E8%A5%BF%E7%8F%AD%E7%89%99&Refer=top) `1.1M 🔥`
 1. [凤凰传奇真的这么缺预算吗](https://s.weibo.com/weibo?q=%23%E5%87%A4%E5%87%B0%E4%BC%A0%E5%A5%87%E7%9C%9F%E7%9A%84%E8%BF%99%E4%B9%88%E7%BC%BA%E9%A2%84%E7%AE%97%E5%90%97%23&Refer=top) `1.1M 🔥`
 1. [印度很可能遭遇第三波疫情](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E5%BE%88%E5%8F%AF%E8%83%BD%E9%81%AD%E9%81%87%E7%AC%AC%E4%B8%89%E6%B3%A2%E7%96%AB%E6%83%85%23&Refer=top) `1.1M 🔥`
 1. [程潇演的童谣](https://s.weibo.com/weibo?q=%23%E7%A8%8B%E6%BD%87%E6%BC%94%E7%9A%84%E7%AB%A5%E8%B0%A3%23&Refer=top) `1.1M 🔥`
-1. [四川健康码上新6款旅行熊猫](https://s.weibo.com/weibo?q=%23%E5%9B%9B%E5%B7%9D%E5%81%A5%E5%BA%B7%E7%A0%81%E4%B8%8A%E6%96%B06%E6%AC%BE%E6%97%85%E8%A1%8C%E7%86%8A%E7%8C%AB%23&Refer=top) `1.1M 🔥`
-1. [韩国渔民发现32条腿章鱼](https://s.weibo.com/weibo?q=%23%E9%9F%A9%E5%9B%BD%E6%B8%94%E6%B0%91%E5%8F%91%E7%8E%B032%E6%9D%A1%E8%85%BF%E7%AB%A0%E9%B1%BC%23&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-06-24 20:11:15
+数据更新于 2021-06-24 20:45:14
 
 <!-- END -->
 
