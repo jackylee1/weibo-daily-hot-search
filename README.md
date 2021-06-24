@@ -11,14 +11,14 @@
 1. [袁隆平上北京中考作文题](https://s.weibo.com/weibo?q=%23%E8%A2%81%E9%9A%86%E5%B9%B3%E4%B8%8A%E5%8C%97%E4%BA%AC%E4%B8%AD%E8%80%83%E4%BD%9C%E6%96%87%E9%A2%98%23&Refer=top) `3.2M 🔥`
 1. [宋祖儿 男生没有懂不懂只有想不想](https://s.weibo.com/weibo?q=%E5%AE%8B%E7%A5%96%E5%84%BF%20%E7%94%B7%E7%94%9F%E6%B2%A1%E6%9C%89%E6%87%82%E4%B8%8D%E6%87%82%E5%8F%AA%E6%9C%89%E6%83%B3%E4%B8%8D%E6%83%B3&Refer=top) `3.0M 🔥`
 1. [广州出现最短14秒传播病例](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E5%87%BA%E7%8E%B0%E6%9C%80%E7%9F%AD14%E7%A7%92%E4%BC%A0%E6%92%AD%E7%97%85%E4%BE%8B%23&Refer=top) `2.5M 🔥`
+1. [中国刑警学院竞售54只淘汰受训犬](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%88%91%E8%AD%A6%E5%AD%A6%E9%99%A2%E7%AB%9E%E5%94%AE54%E5%8F%AA%E6%B7%98%E6%B1%B0%E5%8F%97%E8%AE%AD%E7%8A%AC%23&Refer=top) `2.4M 🔥`
 1. [台湾144人打阿斯利康疫苗后死亡](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E6%B9%BE144%E4%BA%BA%E6%89%93%E9%98%BF%E6%96%AF%E5%88%A9%E5%BA%B7%E7%96%AB%E8%8B%97%E5%90%8E%E6%AD%BB%E4%BA%A1%23&Refer=top) `2.4M 🔥`
-1. [男生高考689分和父亲激动相拥](https://s.weibo.com/weibo?q=%23%E7%94%B7%E7%94%9F%E9%AB%98%E8%80%83689%E5%88%86%E5%92%8C%E7%88%B6%E4%BA%B2%E6%BF%80%E5%8A%A8%E7%9B%B8%E6%8B%A5%23&Refer=top) `2.1M 🔥`
+1. [男生高考689分和父亲激动相拥](https://s.weibo.com/weibo?q=%23%E7%94%B7%E7%94%9F%E9%AB%98%E8%80%83689%E5%88%86%E5%92%8C%E7%88%B6%E4%BA%B2%E6%BF%80%E5%8A%A8%E7%9B%B8%E6%8B%A5%23&Refer=top) `2.2M 🔥`
+1. [今年全是泡泡袖](https://s.weibo.com/weibo?q=%23%E4%BB%8A%E5%B9%B4%E5%85%A8%E6%98%AF%E6%B3%A1%E6%B3%A1%E8%A2%96%23&Refer=top) `2.2M 🔥`
 1. [C罗跟可乐瓶没完了](https://s.weibo.com/weibo?q=%23C%E7%BD%97%E8%B7%9F%E5%8F%AF%E4%B9%90%E7%93%B6%E6%B2%A1%E5%AE%8C%E4%BA%86%23&Refer=top) `2.0M 🔥`
-1. [中国刑警学院竞售54只淘汰受训犬](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%88%91%E8%AD%A6%E5%AD%A6%E9%99%A2%E7%AB%9E%E5%94%AE54%E5%8F%AA%E6%B7%98%E6%B1%B0%E5%8F%97%E8%AE%AD%E7%8A%AC%23&Refer=top) `1.9M 🔥`
 1. [医生建议发呆能防脑过劳](https://s.weibo.com/weibo?q=%23%E5%8C%BB%E7%94%9F%E5%BB%BA%E8%AE%AE%E5%8F%91%E5%91%86%E8%83%BD%E9%98%B2%E8%84%91%E8%BF%87%E5%8A%B3%23&Refer=top) `1.9M 🔥`
 1. [法国 葡萄牙](https://s.weibo.com/weibo?q=%E6%B3%95%E5%9B%BD%20%E8%91%A1%E8%90%84%E7%89%99&Refer=top) `1.9M 🔥`
 1. [雍正的作息](https://s.weibo.com/weibo?q=%23%E9%9B%8D%E6%AD%A3%E7%9A%84%E4%BD%9C%E6%81%AF%23&Refer=top) `1.9M 🔥`
-1. [今年全是泡泡袖](https://s.weibo.com/weibo?q=%23%E4%BB%8A%E5%B9%B4%E5%85%A8%E6%98%AF%E6%B3%A1%E6%B3%A1%E8%A2%96%23&Refer=top) `1.9M 🔥`
 1. [男孩高考后急于赚钱险遭电诈](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%A9%E9%AB%98%E8%80%83%E5%90%8E%E6%80%A5%E4%BA%8E%E8%B5%9A%E9%92%B1%E9%99%A9%E9%81%AD%E7%94%B5%E8%AF%88%23&Refer=top) `1.9M 🔥`
 1. [杀毒软件之父死于巴塞罗那监狱](https://s.weibo.com/weibo?q=%E6%9D%80%E6%AF%92%E8%BD%AF%E4%BB%B6%E4%B9%8B%E7%88%B6%E6%AD%BB%E4%BA%8E%E5%B7%B4%E5%A1%9E%E7%BD%97%E9%82%A3%E7%9B%91%E7%8B%B1&Refer=top) `1.8M 🔥`
 1. [薯片炸西瓜](https://s.weibo.com/weibo?q=%23%E8%96%AF%E7%89%87%E7%82%B8%E8%A5%BF%E7%93%9C%23&Refer=top) `1.6M 🔥`
@@ -57,7 +57,7 @@
 1. [妈妈做馒头雪糕糊弄萌娃](https://s.weibo.com/weibo?q=%23%E5%A6%88%E5%A6%88%E5%81%9A%E9%A6%92%E5%A4%B4%E9%9B%AA%E7%B3%95%E7%B3%8A%E5%BC%84%E8%90%8C%E5%A8%83%23&Refer=top) `968.6K 🔥`
 1. [分数线](https://s.weibo.com/weibo?q=%E5%88%86%E6%95%B0%E7%BA%BF&Refer=top) `964.0K 🔥`
 
-数据更新于 2021-06-24 17:02:00
+数据更新于 2021-06-24 17:07:14
 
 <!-- END -->
 
