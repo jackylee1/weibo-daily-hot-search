@@ -24,13 +24,14 @@
 1. [广东高考分数线](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E4%B8%9C%E9%AB%98%E8%80%83%E5%88%86%E6%95%B0%E7%BA%BF%23&Refer=top) `1.4M 🔥`
 1. [四川同校两个陈静怡高考高分](https://s.weibo.com/weibo?q=%23%E5%9B%9B%E5%B7%9D%E5%90%8C%E6%A0%A1%E4%B8%A4%E4%B8%AA%E9%99%88%E9%9D%99%E6%80%A1%E9%AB%98%E8%80%83%E9%AB%98%E5%88%86%23&Refer=top) `1.4M 🔥`
 1. [章泽天黑白芭蕾舞旧照](https://s.weibo.com/weibo?q=%23%E7%AB%A0%E6%B3%BD%E5%A4%A9%E9%BB%91%E7%99%BD%E8%8A%AD%E8%95%BE%E8%88%9E%E6%97%A7%E7%85%A7%23&Refer=top) `1.3M 🔥`
+1. [女生复读一年涨58分激动尖叫](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E7%94%9F%E5%A4%8D%E8%AF%BB%E4%B8%80%E5%B9%B4%E6%B6%A858%E5%88%86%E6%BF%80%E5%8A%A8%E5%B0%96%E5%8F%AB%23&Refer=top) `1.3M 🔥`
 1. [北京高考前20名考生成绩暂不公布](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E9%AB%98%E8%80%83%E5%89%8D20%E5%90%8D%E8%80%83%E7%94%9F%E6%88%90%E7%BB%A9%E6%9A%82%E4%B8%8D%E5%85%AC%E5%B8%83%23&Refer=top) `1.2M 🔥`
 1. [文在寅提名95后女大学生做秘书](https://s.weibo.com/weibo?q=%23%E6%96%87%E5%9C%A8%E5%AF%85%E6%8F%90%E5%90%8D95%E5%90%8E%E5%A5%B3%E5%A4%A7%E5%AD%A6%E7%94%9F%E5%81%9A%E7%A7%98%E4%B9%A6%23&Refer=top) `1.2M 🔥`
 1. [蒙古包版的肯德基](https://s.weibo.com/weibo?q=%23%E8%92%99%E5%8F%A4%E5%8C%85%E7%89%88%E7%9A%84%E8%82%AF%E5%BE%B7%E5%9F%BA%23&Refer=top) `1.2M 🔥`
 1. [李大钊之孙最想对爷爷说的话](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E5%A4%A7%E9%92%8A%E4%B9%8B%E5%AD%99%E6%9C%80%E6%83%B3%E5%AF%B9%E7%88%B7%E7%88%B7%E8%AF%B4%E7%9A%84%E8%AF%9D%23&Refer=top) `1.2M 🔥`
+1. [复读](https://s.weibo.com/weibo?q=%E5%A4%8D%E8%AF%BB&Refer=top) `1.1M 🔥`
 1. [河南一分一段](https://s.weibo.com/weibo?q=%E6%B2%B3%E5%8D%97%E4%B8%80%E5%88%86%E4%B8%80%E6%AE%B5&Refer=top) `1.1M 🔥`
 1. [范丞丞拍左肩有你时受伤](https://s.weibo.com/weibo?q=%23%E8%8C%83%E4%B8%9E%E4%B8%9E%E6%8B%8D%E5%B7%A6%E8%82%A9%E6%9C%89%E4%BD%A0%E6%97%B6%E5%8F%97%E4%BC%A4%23&Refer=top) `1.1M 🔥`
-1. [复读](https://s.weibo.com/weibo?q=%E5%A4%8D%E8%AF%BB&Refer=top) `1.1M 🔥`
 1. [78年王阳状态](https://s.weibo.com/weibo?q=%2378%E5%B9%B4%E7%8E%8B%E9%98%B3%E7%8A%B6%E6%80%81%23&Refer=top) `1.0M 🔥`
 1. [黄景瑜只有不超过三个关节是好的](https://s.weibo.com/weibo?q=%23%E9%BB%84%E6%99%AF%E7%91%9C%E5%8F%AA%E6%9C%89%E4%B8%8D%E8%B6%85%E8%BF%87%E4%B8%89%E4%B8%AA%E5%85%B3%E8%8A%82%E6%98%AF%E5%A5%BD%E7%9A%84%23&Refer=top) `1.0M 🔥`
 1. [黄景瑜李沁 今天给大家表演个混合双打](https://s.weibo.com/weibo?q=%E9%BB%84%E6%99%AF%E7%91%9C%E6%9D%8E%E6%B2%81%20%E4%BB%8A%E5%A4%A9%E7%BB%99%E5%A4%A7%E5%AE%B6%E8%A1%A8%E6%BC%94%E4%B8%AA%E6%B7%B7%E5%90%88%E5%8F%8C%E6%89%93&Refer=top) `1.0M 🔥`
@@ -55,9 +56,8 @@
 1. [iOS15](https://s.weibo.com/weibo?q=iOS15&Refer=top) `720.8K 🔥`
 1. [杨超越 我站泡泡袖真的别那么说它](https://s.weibo.com/weibo?q=%E6%9D%A8%E8%B6%85%E8%B6%8A%20%E6%88%91%E7%AB%99%E6%B3%A1%E6%B3%A1%E8%A2%96%E7%9C%9F%E7%9A%84%E5%88%AB%E9%82%A3%E4%B9%88%E8%AF%B4%E5%AE%83&Refer=top) `690.6K 🔥`
 1. [北京明白](https://s.weibo.com/weibo?q=%E5%8C%97%E4%BA%AC%E6%98%8E%E7%99%BD&Refer=top) `678.7K 🔥`
-1. [C罗背后浇水偷袭佩佩](https://s.weibo.com/weibo?q=%23C%E7%BD%97%E8%83%8C%E5%90%8E%E6%B5%87%E6%B0%B4%E5%81%B7%E8%A2%AD%E4%BD%A9%E4%BD%A9%23&Refer=top) `677.4K 🔥`
 
-数据更新于 2021-06-25 15:02:59
+数据更新于 2021-06-25 15:18:07
 
 <!-- END -->
 
