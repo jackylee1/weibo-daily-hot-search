@@ -42,6 +42,7 @@
 1. [天官赐福](https://s.weibo.com/weibo?q=%E5%A4%A9%E5%AE%98%E8%B5%90%E7%A6%8F&Refer=top) `822.6K 🔥`
 1. [李雪琴 我永远都是被剩下的那个](https://s.weibo.com/weibo?q=%E6%9D%8E%E9%9B%AA%E7%90%B4%20%E6%88%91%E6%B0%B8%E8%BF%9C%E9%83%BD%E6%98%AF%E8%A2%AB%E5%89%A9%E4%B8%8B%E7%9A%84%E9%82%A3%E4%B8%AA&Refer=top) `794.4K 🔥`
 1. [韩庚 我现在哪有什么偶像感](https://s.weibo.com/weibo?q=%E9%9F%A9%E5%BA%9A%20%E6%88%91%E7%8E%B0%E5%9C%A8%E5%93%AA%E6%9C%89%E4%BB%80%E4%B9%88%E5%81%B6%E5%83%8F%E6%84%9F&Refer=top) `773.9K 🔥`
+1. [中国共产党尊重和保障人权的伟大实践](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A%E5%B0%8A%E9%87%8D%E5%92%8C%E4%BF%9D%E9%9A%9C%E4%BA%BA%E6%9D%83%E7%9A%84%E4%BC%9F%E5%A4%A7%E5%AE%9E%E8%B7%B5&Refer=top) `767.6K 🔥`
 1. [科学家一度委屈到哭](https://s.weibo.com/weibo?q=%23%E7%A7%91%E5%AD%A6%E5%AE%B6%E4%B8%80%E5%BA%A6%E5%A7%94%E5%B1%88%E5%88%B0%E5%93%AD%23&Refer=top) `765.2K 🔥`
 1. [今年全是泡泡袖](https://s.weibo.com/weibo?q=%23%E4%BB%8A%E5%B9%B4%E5%85%A8%E6%98%AF%E6%B3%A1%E6%B3%A1%E8%A2%96%23&Refer=top) `756.3K 🔥`
 1. [高考分数线](https://s.weibo.com/weibo?q=%E9%AB%98%E8%80%83%E5%88%86%E6%95%B0%E7%BA%BF&Refer=top) `752.0K 🔥`
@@ -55,9 +56,8 @@
 1. [河南高考成绩](https://s.weibo.com/weibo?q=%E6%B2%B3%E5%8D%97%E9%AB%98%E8%80%83%E6%88%90%E7%BB%A9&Refer=top) `622.1K 🔥`
 1. [布兰妮父亲](https://s.weibo.com/weibo?q=%23%E5%B8%83%E5%85%B0%E5%A6%AE%E7%88%B6%E4%BA%B2%23&Refer=top) `622.1K 🔥`
 1. [中方支持阿根廷对马岛主权的正当要求](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E6%96%B9%E6%94%AF%E6%8C%81%E9%98%BF%E6%A0%B9%E5%BB%B7%E5%AF%B9%E9%A9%AC%E5%B2%9B%E4%B8%BB%E6%9D%83%E7%9A%84%E6%AD%A3%E5%BD%93%E8%A6%81%E6%B1%82%23&Refer=top) `620.4K 🔥`
-1. [印度出现多个假新冠疫苗接种点](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E5%87%BA%E7%8E%B0%E5%A4%9A%E4%B8%AA%E5%81%87%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A7%8D%E7%82%B9%23&Refer=top) `600.9K 🔥`
 
-数据更新于 2021-06-25 13:44:38
+数据更新于 2021-06-25 13:50:58
 
 <!-- END -->
 
