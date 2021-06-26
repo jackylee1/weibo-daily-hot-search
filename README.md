@@ -57,7 +57,7 @@
 1. [马嘉祺 我没有达到文化课分数线](https://s.weibo.com/weibo?q=%E9%A9%AC%E5%98%89%E7%A5%BA%20%E6%88%91%E6%B2%A1%E6%9C%89%E8%BE%BE%E5%88%B0%E6%96%87%E5%8C%96%E8%AF%BE%E5%88%86%E6%95%B0%E7%BA%BF&Refer=top) `703.3K 🔥`
 1. [广州全市均为低风险地区](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E5%85%A8%E5%B8%82%E5%9D%87%E4%B8%BA%E4%BD%8E%E9%A3%8E%E9%99%A9%E5%9C%B0%E5%8C%BA%23&Refer=top) `690.8K 🔥`
 
-数据更新于 2021-06-26 19:01:42
+数据更新于 2021-06-26 19:08:05
 
 <!-- END -->
 
