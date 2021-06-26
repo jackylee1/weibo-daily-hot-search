@@ -32,6 +32,7 @@
 1. [江熠余声声吻戏好欲](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E7%86%A0%E4%BD%99%E5%A3%B0%E5%A3%B0%E5%90%BB%E6%88%8F%E5%A5%BD%E6%AC%B2%23&Refer=top) `559.3K 🔥`
 1. [鹿晗紫发造型](https://s.weibo.com/weibo?q=%23%E9%B9%BF%E6%99%97%E7%B4%AB%E5%8F%91%E9%80%A0%E5%9E%8B%23&Refer=top) `534.5K 🔥`
 1. [德尔塔变异毒株致多国疫情反弹](https://s.weibo.com/weibo?q=%23%E5%BE%B7%E5%B0%94%E5%A1%94%E5%8F%98%E5%BC%82%E6%AF%92%E6%A0%AA%E8%87%B4%E5%A4%9A%E5%9B%BD%E7%96%AB%E6%83%85%E5%8F%8D%E5%BC%B9%23&Refer=top) `483.5K 🔥`
+1. [毛不易 我听见一些不太吉利的声音](https://s.weibo.com/weibo?q=%E6%AF%9B%E4%B8%8D%E6%98%93%20%E6%88%91%E5%90%AC%E8%A7%81%E4%B8%80%E4%BA%9B%E4%B8%8D%E5%A4%AA%E5%90%89%E5%88%A9%E7%9A%84%E5%A3%B0%E9%9F%B3&Refer=top) `445.8K 🔥`
 1. [吃个面搞得跟越狱似的](https://s.weibo.com/weibo?q=%23%E5%90%83%E4%B8%AA%E9%9D%A2%E6%90%9E%E5%BE%97%E8%B7%9F%E8%B6%8A%E7%8B%B1%E4%BC%BC%E7%9A%84%23&Refer=top) `438.9K 🔥`
 1. [陆思诚男友力](https://s.weibo.com/weibo?q=%23%E9%99%86%E6%80%9D%E8%AF%9A%E7%94%B7%E5%8F%8B%E5%8A%9B%23&Refer=top) `434.3K 🔥`
 1. [叛逆者结局](https://s.weibo.com/weibo?q=%23%E5%8F%9B%E9%80%86%E8%80%85%E7%BB%93%E5%B1%80%23&Refer=top) `425.8K 🔥`
@@ -55,9 +56,8 @@
 1. [TTG虽败犹荣](https://s.weibo.com/weibo?q=%23TTG%E8%99%BD%E8%B4%A5%E7%8A%B9%E8%8D%A3%23&Refer=top) `373.8K 🔥`
 1. [Hero金色的雨](https://s.weibo.com/weibo?q=%23Hero%E9%87%91%E8%89%B2%E7%9A%84%E9%9B%A8%23&Refer=top) `373.0K 🔥`
 1. [如何正确的止血](https://s.weibo.com/weibo?q=%23%E5%A6%82%E4%BD%95%E6%AD%A3%E7%A1%AE%E7%9A%84%E6%AD%A2%E8%A1%80%23&Refer=top) `372.4K 🔥`
-1. [杨紫 魔术克星](https://s.weibo.com/weibo?q=%E6%9D%A8%E7%B4%AB%20%E9%AD%94%E6%9C%AF%E5%85%8B%E6%98%9F&Refer=top) `371.6K 🔥`
 
-数据更新于 2021-06-27 01:15:28
+数据更新于 2021-06-27 01:35:38
 
 <!-- END -->
 
