@@ -31,8 +31,8 @@
 1. [在摩尔庄园开了一家驾校](https://s.weibo.com/weibo?q=%23%E5%9C%A8%E6%91%A9%E5%B0%94%E5%BA%84%E5%9B%AD%E5%BC%80%E4%BA%86%E4%B8%80%E5%AE%B6%E9%A9%BE%E6%A0%A1%23&Refer=top) `1.4M 🔥`
 1. [tony老师您昨晚睡得好吗](https://s.weibo.com/weibo?q=%23tony%E8%80%81%E5%B8%88%E6%82%A8%E6%98%A8%E6%99%9A%E7%9D%A1%E5%BE%97%E5%A5%BD%E5%90%97%23&Refer=top) `1.3M 🔥`
 1. [Hero夺冠](https://s.weibo.com/weibo?q=%23Hero%E5%A4%BA%E5%86%A0%23&Refer=top) `1.2M 🔥`
+1. [90后小伙心梗不听医生劝拒绝手术](https://s.weibo.com/weibo?q=%2390%E5%90%8E%E5%B0%8F%E4%BC%99%E5%BF%83%E6%A2%97%E4%B8%8D%E5%90%AC%E5%8C%BB%E7%94%9F%E5%8A%9D%E6%8B%92%E7%BB%9D%E6%89%8B%E6%9C%AF%23&Refer=top) `1.2M 🔥`
 1. [张翰宋丹丹回应尴尬名场面](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E7%BF%B0%E5%AE%8B%E4%B8%B9%E4%B8%B9%E5%9B%9E%E5%BA%94%E5%B0%B4%E5%B0%AC%E5%90%8D%E5%9C%BA%E9%9D%A2%23&Refer=top) `1.2M 🔥`
-1. [90后小伙心梗不听医生劝拒绝手术](https://s.weibo.com/weibo?q=%2390%E5%90%8E%E5%B0%8F%E4%BC%99%E5%BF%83%E6%A2%97%E4%B8%8D%E5%90%AC%E5%8C%BB%E7%94%9F%E5%8A%9D%E6%8B%92%E7%BB%9D%E6%89%8B%E6%9C%AF%23&Refer=top) `1.1M 🔥`
 1. [专家提醒慎用除甲醛小魔盒](https://s.weibo.com/weibo?q=%23%E4%B8%93%E5%AE%B6%E6%8F%90%E9%86%92%E6%85%8E%E7%94%A8%E9%99%A4%E7%94%B2%E9%86%9B%E5%B0%8F%E9%AD%94%E7%9B%92%23&Refer=top) `1.1M 🔥`
 1. [日本为何迟迟未研发出新冠疫苗](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E4%B8%BA%E4%BD%95%E8%BF%9F%E8%BF%9F%E6%9C%AA%E7%A0%94%E5%8F%91%E5%87%BA%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%23&Refer=top) `1.1M 🔥`
 1. [军人遇堵车1分钟疏通](https://s.weibo.com/weibo?q=%23%E5%86%9B%E4%BA%BA%E9%81%87%E5%A0%B5%E8%BD%A61%E5%88%86%E9%92%9F%E7%96%8F%E9%80%9A%23&Refer=top) `1.1M 🔥`
@@ -57,7 +57,7 @@
 1. [俄罗斯一住宅楼被闪电劈中](https://s.weibo.com/weibo?q=%23%E4%BF%84%E7%BD%97%E6%96%AF%E4%B8%80%E4%BD%8F%E5%AE%85%E6%A5%BC%E8%A2%AB%E9%97%AA%E7%94%B5%E5%8A%88%E4%B8%AD%23&Refer=top) `830.2K 🔥`
 1. [台湾首现德尔塔变异毒株](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E6%B9%BE%E9%A6%96%E7%8E%B0%E5%BE%B7%E5%B0%94%E5%A1%94%E5%8F%98%E5%BC%82%E6%AF%92%E6%A0%AA%23&Refer=top) `828.0K 🔥`
 
-数据更新于 2021-06-27 19:41:19
+数据更新于 2021-06-27 19:47:30
 
 <!-- END -->
 
