@@ -43,9 +43,11 @@
 1. [男生用空调外机烘干袜子](https://s.weibo.com/weibo?q=%23%E7%94%B7%E7%94%9F%E7%94%A8%E7%A9%BA%E8%B0%83%E5%A4%96%E6%9C%BA%E7%83%98%E5%B9%B2%E8%A2%9C%E5%AD%90%23&Refer=top) `972.9K 🔥`
 1. [买到不甜的西瓜怎么办](https://s.weibo.com/weibo?q=%23%E4%B9%B0%E5%88%B0%E4%B8%8D%E7%94%9C%E7%9A%84%E8%A5%BF%E7%93%9C%E6%80%8E%E4%B9%88%E5%8A%9E%23&Refer=top) `966.5K 🔥`
 1. [女孩毕业一家9口到场庆祝](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%A9%E6%AF%95%E4%B8%9A%E4%B8%80%E5%AE%B69%E5%8F%A3%E5%88%B0%E5%9C%BA%E5%BA%86%E7%A5%9D%23&Refer=top) `955.9K 🔥`
+1. [90后小伙心梗不听医生劝拒绝手术](https://s.weibo.com/weibo?q=%2390%E5%90%8E%E5%B0%8F%E4%BC%99%E5%BF%83%E6%A2%97%E4%B8%8D%E5%90%AC%E5%8C%BB%E7%94%9F%E5%8A%9D%E6%8B%92%E7%BB%9D%E6%89%8B%E6%9C%AF%23&Refer=top) `943.9K 🔥`
 1. [六百万与六百分](https://s.weibo.com/weibo?q=%23%E5%85%AD%E7%99%BE%E4%B8%87%E4%B8%8E%E5%85%AD%E7%99%BE%E5%88%86%23&Refer=top) `902.1K 🔥`
 1. [男子投资失败在网吧3个月被撵走](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E6%8A%95%E8%B5%84%E5%A4%B1%E8%B4%A5%E5%9C%A8%E7%BD%91%E5%90%A73%E4%B8%AA%E6%9C%88%E8%A2%AB%E6%92%B5%E8%B5%B0%23&Refer=top) `891.6K 🔥`
 1. [我国五大最高荣誉即将颁齐](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD%E4%BA%94%E5%A4%A7%E6%9C%80%E9%AB%98%E8%8D%A3%E8%AA%89%E5%8D%B3%E5%B0%86%E9%A2%81%E9%BD%90%23&Refer=top) `885.3K 🔥`
+1. [陈学冬买好看的扫帚的原因](https://s.weibo.com/weibo?q=%23%E9%99%88%E5%AD%A6%E5%86%AC%E4%B9%B0%E5%A5%BD%E7%9C%8B%E7%9A%84%E6%89%AB%E5%B8%9A%E7%9A%84%E5%8E%9F%E5%9B%A0%23&Refer=top) `869.4K 🔥`
 1. [被宿管阿姨阻挡的爱情](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E5%AE%BF%E7%AE%A1%E9%98%BF%E5%A7%A8%E9%98%BB%E6%8C%A1%E7%9A%84%E7%88%B1%E6%83%85%23&Refer=top) `865.0K 🔥`
 1. [武汉暴雨后一男孩积水中游泳](https://s.weibo.com/weibo?q=%23%E6%AD%A6%E6%B1%89%E6%9A%B4%E9%9B%A8%E5%90%8E%E4%B8%80%E7%94%B7%E5%AD%A9%E7%A7%AF%E6%B0%B4%E4%B8%AD%E6%B8%B8%E6%B3%B3%23&Refer=top) `848.7K 🔥`
 1. [国民床单的设计师画它时身处热恋中](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E6%B0%91%E5%BA%8A%E5%8D%95%E7%9A%84%E8%AE%BE%E8%AE%A1%E5%B8%88%E7%94%BB%E5%AE%83%E6%97%B6%E8%BA%AB%E5%A4%84%E7%83%AD%E6%81%8B%E4%B8%AD%23&Refer=top) `838.4K 🔥`
@@ -54,10 +56,8 @@
 1. [解码中国共产党为什么能](https://s.weibo.com/weibo?q=%23%E8%A7%A3%E7%A0%81%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A%E4%B8%BA%E4%BB%80%E4%B9%88%E8%83%BD%23&Refer=top) `831.7K 🔥`
 1. [俄罗斯一住宅楼被闪电劈中](https://s.weibo.com/weibo?q=%23%E4%BF%84%E7%BD%97%E6%96%AF%E4%B8%80%E4%BD%8F%E5%AE%85%E6%A5%BC%E8%A2%AB%E9%97%AA%E7%94%B5%E5%8A%88%E4%B8%AD%23&Refer=top) `830.2K 🔥`
 1. [台湾首现德尔塔变异毒株](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E6%B9%BE%E9%A6%96%E7%8E%B0%E5%BE%B7%E5%B0%94%E5%A1%94%E5%8F%98%E5%BC%82%E6%AF%92%E6%A0%AA%23&Refer=top) `828.0K 🔥`
-1. [周冬雨王一博年轻的朋友来相会](https://s.weibo.com/weibo?q=%23%E5%91%A8%E5%86%AC%E9%9B%A8%E7%8E%8B%E4%B8%80%E5%8D%9A%E5%B9%B4%E8%BD%BB%E7%9A%84%E6%9C%8B%E5%8F%8B%E6%9D%A5%E7%9B%B8%E4%BC%9A%23&Refer=top) `828.0K 🔥`
-1. [假性亲密在友情中的表现](https://s.weibo.com/weibo?q=%23%E5%81%87%E6%80%A7%E4%BA%B2%E5%AF%86%E5%9C%A8%E5%8F%8B%E6%83%85%E4%B8%AD%E7%9A%84%E8%A1%A8%E7%8E%B0%23&Refer=top) `826.0K 🔥`
 
-数据更新于 2021-06-27 19:28:41
+数据更新于 2021-06-27 19:35:05
 
 <!-- END -->
 
