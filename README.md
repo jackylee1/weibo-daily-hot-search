@@ -13,6 +13,7 @@
 1. [情侣考研考上同所大学后视频拆通知书](https://s.weibo.com/weibo?q=%23%E6%83%85%E4%BE%A3%E8%80%83%E7%A0%94%E8%80%83%E4%B8%8A%E5%90%8C%E6%89%80%E5%A4%A7%E5%AD%A6%E5%90%8E%E8%A7%86%E9%A2%91%E6%8B%86%E9%80%9A%E7%9F%A5%E4%B9%A6%23&Refer=top) `3.2M 🔥`
 1. [钟南山说过去的密接概念已不适用](https://s.weibo.com/weibo?q=%23%E9%92%9F%E5%8D%97%E5%B1%B1%E8%AF%B4%E8%BF%87%E5%8E%BB%E7%9A%84%E5%AF%86%E6%8E%A5%E6%A6%82%E5%BF%B5%E5%B7%B2%E4%B8%8D%E9%80%82%E7%94%A8%23&Refer=top) `2.8M 🔥`
 1. [周柯宇为了不曝光新发色有多努力](https://s.weibo.com/weibo?q=%23%E5%91%A8%E6%9F%AF%E5%AE%87%E4%B8%BA%E4%BA%86%E4%B8%8D%E6%9B%9D%E5%85%89%E6%96%B0%E5%8F%91%E8%89%B2%E6%9C%89%E5%A4%9A%E5%8A%AA%E5%8A%9B%23&Refer=top) `2.7M 🔥`
+1. [高尚全逝世](https://s.weibo.com/weibo?q=%E9%AB%98%E5%B0%9A%E5%85%A8%E9%80%9D%E4%B8%96&Refer=top) `2.7M 🔥`
 1. [王毅说中国这一票永远属于发展中国家](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E6%AF%85%E8%AF%B4%E4%B8%AD%E5%9B%BD%E8%BF%99%E4%B8%80%E7%A5%A8%E6%B0%B8%E8%BF%9C%E5%B1%9E%E4%BA%8E%E5%8F%91%E5%B1%95%E4%B8%AD%E5%9B%BD%E5%AE%B6%23&Refer=top) `2.5M 🔥`
 1. [孟子义和经纪人互怼](https://s.weibo.com/weibo?q=%23%E5%AD%9F%E5%AD%90%E4%B9%89%E5%92%8C%E7%BB%8F%E7%BA%AA%E4%BA%BA%E4%BA%92%E6%80%BC%23&Refer=top) `2.4M 🔥`
 1. [张凯丽母女争执](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%87%AF%E4%B8%BD%E6%AF%8D%E5%A5%B3%E4%BA%89%E6%89%A7%23&Refer=top) `2.3M 🔥`
@@ -24,7 +25,6 @@
 1. [女孩做迷你婚纱最小57厘米](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%A9%E5%81%9A%E8%BF%B7%E4%BD%A0%E5%A9%9A%E7%BA%B1%E6%9C%80%E5%B0%8F57%E5%8E%98%E7%B1%B3%23&Refer=top) `1.5M 🔥`
 1. [理发店纹眉一根88元被停业整顿](https://s.weibo.com/weibo?q=%23%E7%90%86%E5%8F%91%E5%BA%97%E7%BA%B9%E7%9C%89%E4%B8%80%E6%A0%B988%E5%85%83%E8%A2%AB%E5%81%9C%E4%B8%9A%E6%95%B4%E9%A1%BF%23&Refer=top) `1.5M 🔥`
 1. [张翰孟子义cp感](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E7%BF%B0%E5%AD%9F%E5%AD%90%E4%B9%89cp%E6%84%9F%23&Refer=top) `1.5M 🔥`
-1. [高尚全逝世](https://s.weibo.com/weibo?q=%E9%AB%98%E5%B0%9A%E5%85%A8%E9%80%9D%E4%B8%96&Refer=top) `1.4M 🔥`
 1. [深圳机场看不见的216个小时](https://s.weibo.com/weibo?q=%23%E6%B7%B1%E5%9C%B3%E6%9C%BA%E5%9C%BA%E7%9C%8B%E4%B8%8D%E8%A7%81%E7%9A%84216%E4%B8%AA%E5%B0%8F%E6%97%B6%23&Refer=top) `1.4M 🔥`
 1. [乌合麒麟收回道歉](https://s.weibo.com/weibo?q=%23%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F%E6%94%B6%E5%9B%9E%E9%81%93%E6%AD%89%23&Refer=top) `1.4M 🔥`
 1. [白敬亭 我这辈子都没这么无语过](https://s.weibo.com/weibo?q=%E7%99%BD%E6%95%AC%E4%BA%AD%20%E6%88%91%E8%BF%99%E8%BE%88%E5%AD%90%E9%83%BD%E6%B2%A1%E8%BF%99%E4%B9%88%E6%97%A0%E8%AF%AD%E8%BF%87&Refer=top) `1.4M 🔥`
@@ -43,6 +43,7 @@
 1. [日本为何迟迟未研发出新冠疫苗](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E4%B8%BA%E4%BD%95%E8%BF%9F%E8%BF%9F%E6%9C%AA%E7%A0%94%E5%8F%91%E5%87%BA%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%23&Refer=top) `1.1M 🔥`
 1. [军人遇堵车1分钟疏通](https://s.weibo.com/weibo?q=%23%E5%86%9B%E4%BA%BA%E9%81%87%E5%A0%B5%E8%BD%A61%E5%88%86%E9%92%9F%E7%96%8F%E9%80%9A%23&Refer=top) `1.1M 🔥`
 1. [72名女演员演绎了人的一生](https://s.weibo.com/weibo?q=%2372%E5%90%8D%E5%A5%B3%E6%BC%94%E5%91%98%E6%BC%94%E7%BB%8E%E4%BA%86%E4%BA%BA%E7%9A%84%E4%B8%80%E7%94%9F%23&Refer=top) `1.0M 🔥`
+1. [男子结婚怕扰邻电梯放喜糖供自取](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E7%BB%93%E5%A9%9A%E6%80%95%E6%89%B0%E9%82%BB%E7%94%B5%E6%A2%AF%E6%94%BE%E5%96%9C%E7%B3%96%E4%BE%9B%E8%87%AA%E5%8F%96%23&Refer=top) `1.0M 🔥`
 1. [杨利伟的太空一日](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E5%88%A9%E4%BC%9F%E7%9A%84%E5%A4%AA%E7%A9%BA%E4%B8%80%E6%97%A5%23&Refer=top) `1.0M 🔥`
 1. [农夫山泉否认涉日本福岛进口成分](https://s.weibo.com/weibo?q=%23%E5%86%9C%E5%A4%AB%E5%B1%B1%E6%B3%89%E5%90%A6%E8%AE%A4%E6%B6%89%E6%97%A5%E6%9C%AC%E7%A6%8F%E5%B2%9B%E8%BF%9B%E5%8F%A3%E6%88%90%E5%88%86%23&Refer=top) `1.0M 🔥`
 1. [周也对孟子义撒娇说抱我](https://s.weibo.com/weibo?q=%23%E5%91%A8%E4%B9%9F%E5%AF%B9%E5%AD%9F%E5%AD%90%E4%B9%89%E6%92%92%E5%A8%87%E8%AF%B4%E6%8A%B1%E6%88%91%23&Refer=top) `1.0M 🔥`
@@ -55,9 +56,8 @@
 1. [六百万与六百分](https://s.weibo.com/weibo?q=%23%E5%85%AD%E7%99%BE%E4%B8%87%E4%B8%8E%E5%85%AD%E7%99%BE%E5%88%86%23&Refer=top) `902.1K 🔥`
 1. [男子投资失败在网吧3个月被撵走](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E6%8A%95%E8%B5%84%E5%A4%B1%E8%B4%A5%E5%9C%A8%E7%BD%91%E5%90%A73%E4%B8%AA%E6%9C%88%E8%A2%AB%E6%92%B5%E8%B5%B0%23&Refer=top) `891.6K 🔥`
 1. [官方通报农夫山泉气泡水原料来源](https://s.weibo.com/weibo?q=%23%E5%AE%98%E6%96%B9%E9%80%9A%E6%8A%A5%E5%86%9C%E5%A4%AB%E5%B1%B1%E6%B3%89%E6%B0%94%E6%B3%A1%E6%B0%B4%E5%8E%9F%E6%96%99%E6%9D%A5%E6%BA%90%23&Refer=top) `886.2K 🔥`
-1. [我国五大最高荣誉即将颁齐](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD%E4%BA%94%E5%A4%A7%E6%9C%80%E9%AB%98%E8%8D%A3%E8%AA%89%E5%8D%B3%E5%B0%86%E9%A2%81%E9%BD%90%23&Refer=top) `885.3K 🔥`
 
-数据更新于 2021-06-27 20:55:14
+数据更新于 2021-06-27 21:10:40
 
 <!-- END -->
 
