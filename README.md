@@ -16,8 +16,8 @@
 1. [孟子义和经纪人互怼](https://s.weibo.com/weibo?q=%23%E5%AD%9F%E5%AD%90%E4%B9%89%E5%92%8C%E7%BB%8F%E7%BA%AA%E4%BA%BA%E4%BA%92%E6%80%BC%23&Refer=top) `2.4M 🔥`
 1. [张凯丽母女争执](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%87%AF%E4%B8%BD%E6%AF%8D%E5%A5%B3%E4%BA%89%E6%89%A7%23&Refer=top) `2.3M 🔥`
 1. [今年新增37个本科专业](https://s.weibo.com/weibo?q=%23%E4%BB%8A%E5%B9%B4%E6%96%B0%E5%A2%9E37%E4%B8%AA%E6%9C%AC%E7%A7%91%E4%B8%93%E4%B8%9A%23&Refer=top) `2.2M 🔥`
+1. [情侣考研考上同所大学后视频拆通知书](https://s.weibo.com/weibo?q=%23%E6%83%85%E4%BE%A3%E8%80%83%E7%A0%94%E8%80%83%E4%B8%8A%E5%90%8C%E6%89%80%E5%A4%A7%E5%AD%A6%E5%90%8E%E8%A7%86%E9%A2%91%E6%8B%86%E9%80%9A%E7%9F%A5%E4%B9%A6%23&Refer=top) `2.2M 🔥`
 1. [潘玮柏带老婆现身孟佳演唱会](https://s.weibo.com/weibo?q=%23%E6%BD%98%E7%8E%AE%E6%9F%8F%E5%B8%A6%E8%80%81%E5%A9%86%E7%8E%B0%E8%BA%AB%E5%AD%9F%E4%BD%B3%E6%BC%94%E5%94%B1%E4%BC%9A%23&Refer=top) `2.0M 🔥`
-1. [情侣考研考上同所大学后视频拆通知书](https://s.weibo.com/weibo?q=%23%E6%83%85%E4%BE%A3%E8%80%83%E7%A0%94%E8%80%83%E4%B8%8A%E5%90%8C%E6%89%80%E5%A4%A7%E5%AD%A6%E5%90%8E%E8%A7%86%E9%A2%91%E6%8B%86%E9%80%9A%E7%9F%A5%E4%B9%A6%23&Refer=top) `1.9M 🔥`
 1. [网红清凉神器有多危险](https://s.weibo.com/weibo?q=%23%E7%BD%91%E7%BA%A2%E6%B8%85%E5%87%89%E7%A5%9E%E5%99%A8%E6%9C%89%E5%A4%9A%E5%8D%B1%E9%99%A9%23&Refer=top) `1.9M 🔥`
 1. [外孙女出嫁外公不舍大哭送出门](https://s.weibo.com/weibo?q=%23%E5%A4%96%E5%AD%99%E5%A5%B3%E5%87%BA%E5%AB%81%E5%A4%96%E5%85%AC%E4%B8%8D%E8%88%8D%E5%A4%A7%E5%93%AD%E9%80%81%E5%87%BA%E9%97%A8%23&Refer=top) `1.7M 🔥`
 1. [Angelababy生图状态](https://s.weibo.com/weibo?q=%23Angelababy%E7%94%9F%E5%9B%BE%E7%8A%B6%E6%80%81%23&Refer=top) `1.6M 🔥`
@@ -57,7 +57,7 @@
 1. [假性亲密在友情中的表现](https://s.weibo.com/weibo?q=%23%E5%81%87%E6%80%A7%E4%BA%B2%E5%AF%86%E5%9C%A8%E5%8F%8B%E6%83%85%E4%B8%AD%E7%9A%84%E8%A1%A8%E7%8E%B0%23&Refer=top) `826.0K 🔥`
 1. [张杰分享打疫苗过程vlog](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%9D%B0%E5%88%86%E4%BA%AB%E6%89%93%E7%96%AB%E8%8B%97%E8%BF%87%E7%A8%8Bvlog%23&Refer=top) `825.4K 🔥`
 
-数据更新于 2021-06-27 18:57:52
+数据更新于 2021-06-27 19:01:35
 
 <!-- END -->
 
