@@ -11,7 +11,7 @@
 1. [中国共产党100年大事记](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A100%E5%B9%B4%E5%A4%A7%E4%BA%8B%E8%AE%B0%23&Refer=top) `3.4M 🔥`
 1. [中国共产党的朋友遍天下](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A%E7%9A%84%E6%9C%8B%E5%8F%8B%E9%81%8D%E5%A4%A9%E4%B8%8B%23&Refer=top) `3.1M 🔥`
 1. [2名毕业生毫不犹豫扶起摔倒老人](https://s.weibo.com/weibo?q=%232%E5%90%8D%E6%AF%95%E4%B8%9A%E7%94%9F%E6%AF%AB%E4%B8%8D%E7%8A%B9%E8%B1%AB%E6%89%B6%E8%B5%B7%E6%91%94%E5%80%92%E8%80%81%E4%BA%BA%23&Refer=top) `3.1M 🔥`
-1. [博士毕业7岁女儿现场献花](https://s.weibo.com/weibo?q=%23%E5%8D%9A%E5%A3%AB%E6%AF%95%E4%B8%9A7%E5%B2%81%E5%A5%B3%E5%84%BF%E7%8E%B0%E5%9C%BA%E7%8C%AE%E8%8A%B1%23&Refer=top) `2.7M 🔥`
+1. [博士毕业7岁女儿现场献花](https://s.weibo.com/weibo?q=%23%E5%8D%9A%E5%A3%AB%E6%AF%95%E4%B8%9A7%E5%B2%81%E5%A5%B3%E5%84%BF%E7%8E%B0%E5%9C%BA%E7%8C%AE%E8%8A%B1%23&Refer=top) `2.8M 🔥`
 1. [杨利伟曾在太空中产生180度颠倒错觉](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E5%88%A9%E4%BC%9F%E6%9B%BE%E5%9C%A8%E5%A4%AA%E7%A9%BA%E4%B8%AD%E4%BA%A7%E7%94%9F180%E5%BA%A6%E9%A2%A0%E5%80%92%E9%94%99%E8%A7%89%23&Refer=top) `2.5M 🔥`
 1. [厦大录取通知书含大师手记](https://s.weibo.com/weibo?q=%23%E5%8E%A6%E5%A4%A7%E5%BD%95%E5%8F%96%E9%80%9A%E7%9F%A5%E4%B9%A6%E5%90%AB%E5%A4%A7%E5%B8%88%E6%89%8B%E8%AE%B0%23&Refer=top) `2.5M 🔥`
 1. [1米9男生挨个举女同学拍毕业照](https://s.weibo.com/weibo?q=%231%E7%B1%B39%E7%94%B7%E7%94%9F%E6%8C%A8%E4%B8%AA%E4%B8%BE%E5%A5%B3%E5%90%8C%E5%AD%A6%E6%8B%8D%E6%AF%95%E4%B8%9A%E7%85%A7%23&Refer=top) `2.3M 🔥`
@@ -44,6 +44,7 @@
 1. [小孩与宠物猫接触后局部头秃](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E5%AD%A9%E4%B8%8E%E5%AE%A0%E7%89%A9%E7%8C%AB%E6%8E%A5%E8%A7%A6%E5%90%8E%E5%B1%80%E9%83%A8%E5%A4%B4%E7%A7%83%23&Refer=top) `1.1M 🔥`
 1. [陈独秀开会最多十五分钟](https://s.weibo.com/weibo?q=%23%E9%99%88%E7%8B%AC%E7%A7%80%E5%BC%80%E4%BC%9A%E6%9C%80%E5%A4%9A%E5%8D%81%E4%BA%94%E5%88%86%E9%92%9F%23&Refer=top) `1.1M 🔥`
 1. [新研究称喝咖啡有助保护肝脏](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%A0%94%E7%A9%B6%E7%A7%B0%E5%96%9D%E5%92%96%E5%95%A1%E6%9C%89%E5%8A%A9%E4%BF%9D%E6%8A%A4%E8%82%9D%E8%84%8F%23&Refer=top) `1.1M 🔥`
+1. [南京少女上课爱发呆被确诊癫痫](https://s.weibo.com/weibo?q=%23%E5%8D%97%E4%BA%AC%E5%B0%91%E5%A5%B3%E4%B8%8A%E8%AF%BE%E7%88%B1%E5%8F%91%E5%91%86%E8%A2%AB%E7%A1%AE%E8%AF%8A%E7%99%AB%E7%97%AB%23&Refer=top) `1.1M 🔥`
 1. [燕子一家八口在监控死角安家](https://s.weibo.com/weibo?q=%23%E7%87%95%E5%AD%90%E4%B8%80%E5%AE%B6%E5%85%AB%E5%8F%A3%E5%9C%A8%E7%9B%91%E6%8E%A7%E6%AD%BB%E8%A7%92%E5%AE%89%E5%AE%B6%23&Refer=top) `1.0M 🔥`
 1. [雅诗兰黛因虚假宣传被罚40万](https://s.weibo.com/weibo?q=%E9%9B%85%E8%AF%97%E5%85%B0%E9%BB%9B%E5%9B%A0%E8%99%9A%E5%81%87%E5%AE%A3%E4%BC%A0%E8%A2%AB%E7%BD%9A40%E4%B8%87&Refer=top) `1.0M 🔥`
 1. [C罗怒摔袖标](https://s.weibo.com/weibo?q=%23C%E7%BD%97%E6%80%92%E6%91%94%E8%A2%96%E6%A0%87%23&Refer=top) `977.1K 🔥`
@@ -55,9 +56,8 @@
 1. [广东疫情](https://s.weibo.com/weibo?q=%E5%B9%BF%E4%B8%9C%E7%96%AB%E6%83%85&Refer=top) `945.4K 🔥`
 1. [中国共产党的第一声广播从窑洞里发出](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A%E7%9A%84%E7%AC%AC%E4%B8%80%E5%A3%B0%E5%B9%BF%E6%92%AD%E4%BB%8E%E7%AA%91%E6%B4%9E%E9%87%8C%E5%8F%91%E5%87%BA%23&Refer=top) `931.6K 🔥`
 1. [现实版勇敢牛牛不怕困难](https://s.weibo.com/weibo?q=%E7%8E%B0%E5%AE%9E%E7%89%88%E5%8B%87%E6%95%A2%E7%89%9B%E7%89%9B%E4%B8%8D%E6%80%95%E5%9B%B0%E9%9A%BE&Refer=top) `904.8K 🔥`
-1. [本人讲价水平](https://s.weibo.com/weibo?q=%23%E6%9C%AC%E4%BA%BA%E8%AE%B2%E4%BB%B7%E6%B0%B4%E5%B9%B3%23&Refer=top) `894.9K 🔥`
 
-数据更新于 2021-06-28 23:02:23
+数据更新于 2021-06-28 23:08:58
 
 <!-- END -->
 
