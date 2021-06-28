@@ -15,7 +15,7 @@
 1. [厦大录取通知书含大师手记](https://s.weibo.com/weibo?q=%23%E5%8E%A6%E5%A4%A7%E5%BD%95%E5%8F%96%E9%80%9A%E7%9F%A5%E4%B9%A6%E5%90%AB%E5%A4%A7%E5%B8%88%E6%89%8B%E8%AE%B0%23&Refer=top) `2.5M 🔥`
 1. [1米9男生挨个举女同学拍毕业照](https://s.weibo.com/weibo?q=%231%E7%B1%B39%E7%94%B7%E7%94%9F%E6%8C%A8%E4%B8%AA%E4%B8%BE%E5%A5%B3%E5%90%8C%E5%AD%A6%E6%8B%8D%E6%AF%95%E4%B8%9A%E7%85%A7%23&Refer=top) `2.3M 🔥`
 1. [高尚全逝世](https://s.weibo.com/weibo?q=%23%E9%AB%98%E5%B0%9A%E5%85%A8%E9%80%9D%E4%B8%96%23&Refer=top) `2.2M 🔥`
-1. [杨利伟说当年为训练买了台挺贵的摄像机](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E5%88%A9%E4%BC%9F%E8%AF%B4%E5%BD%93%E5%B9%B4%E4%B8%BA%E8%AE%AD%E7%BB%83%E4%B9%B0%E4%BA%86%E5%8F%B0%E6%8C%BA%E8%B4%B5%E7%9A%84%E6%91%84%E5%83%8F%E6%9C%BA%23&Refer=top) `1.8M 🔥`
+1. [杨利伟说当年为训练买了台挺贵的摄像机](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E5%88%A9%E4%BC%9F%E8%AF%B4%E5%BD%93%E5%B9%B4%E4%B8%BA%E8%AE%AD%E7%BB%83%E4%B9%B0%E4%BA%86%E5%8F%B0%E6%8C%BA%E8%B4%B5%E7%9A%84%E6%91%84%E5%83%8F%E6%9C%BA%23&Refer=top) `1.9M 🔥`
 1. [万茜 空间站有宫保鸡](https://s.weibo.com/weibo?q=%E4%B8%87%E8%8C%9C%20%E7%A9%BA%E9%97%B4%E7%AB%99%E6%9C%89%E5%AE%AB%E4%BF%9D%E9%B8%A1&Refer=top) `1.8M 🔥`
 1. [食用冰镇西瓜或引发胃损伤](https://s.weibo.com/weibo?q=%23%E9%A3%9F%E7%94%A8%E5%86%B0%E9%95%87%E8%A5%BF%E7%93%9C%E6%88%96%E5%BC%95%E5%8F%91%E8%83%83%E6%8D%9F%E4%BC%A4%23&Refer=top) `1.8M 🔥`
 1. [董明珠称明年不会退休](https://s.weibo.com/weibo?q=%23%E8%91%A3%E6%98%8E%E7%8F%A0%E7%A7%B0%E6%98%8E%E5%B9%B4%E4%B8%8D%E4%BC%9A%E9%80%80%E4%BC%91%23&Refer=top) `1.7M 🔥`
@@ -48,16 +48,16 @@
 1. [这就是佛系穿搭吗](https://s.weibo.com/weibo?q=%23%E8%BF%99%E5%B0%B1%E6%98%AF%E4%BD%9B%E7%B3%BB%E7%A9%BF%E6%90%AD%E5%90%97%23&Refer=top) `867.7K 🔥`
 1. [74岁女婿跨越千里看望90岁丈母娘](https://s.weibo.com/weibo?q=%2374%E5%B2%81%E5%A5%B3%E5%A9%BF%E8%B7%A8%E8%B6%8A%E5%8D%83%E9%87%8C%E7%9C%8B%E6%9C%9B90%E5%B2%81%E4%B8%88%E6%AF%8D%E5%A8%98%23&Refer=top) `862.4K 🔥`
 1. [最后一个离开宿舍是啥体验](https://s.weibo.com/weibo?q=%23%E6%9C%80%E5%90%8E%E4%B8%80%E4%B8%AA%E7%A6%BB%E5%BC%80%E5%AE%BF%E8%88%8D%E6%98%AF%E5%95%A5%E4%BD%93%E9%AA%8C%23&Refer=top) `840.0K 🔥`
+1. [山东教师夫妻2分钟救2名落水群众](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E4%B8%9C%E6%95%99%E5%B8%88%E5%A4%AB%E5%A6%BB2%E5%88%86%E9%92%9F%E6%95%912%E5%90%8D%E8%90%BD%E6%B0%B4%E7%BE%A4%E4%BC%97%23&Refer=top) `808.5K 🔥`
 1. [架不住女友哭闹无证骑摩托出游](https://s.weibo.com/weibo?q=%23%E6%9E%B6%E4%B8%8D%E4%BD%8F%E5%A5%B3%E5%8F%8B%E5%93%AD%E9%97%B9%E6%97%A0%E8%AF%81%E9%AA%91%E6%91%A9%E6%89%98%E5%87%BA%E6%B8%B8%23&Refer=top) `796.0K 🔥`
 1. [钉钉崩了](https://s.weibo.com/weibo?q=%23%E9%92%89%E9%92%89%E5%B4%A9%E4%BA%86%23&Refer=top) `795.7K 🔥`
 1. [国家队下凡神仙表演](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E5%AE%B6%E9%98%9F%E4%B8%8B%E5%87%A1%E7%A5%9E%E4%BB%99%E8%A1%A8%E6%BC%94%23&Refer=top) `769.8K 🔥`
 1. [100年前我们的同龄人](https://s.weibo.com/weibo?q=%23100%E5%B9%B4%E5%89%8D%E6%88%91%E4%BB%AC%E7%9A%84%E5%90%8C%E9%BE%84%E4%BA%BA%23&Refer=top) `764.9K 🔥`
 1. [多地银行暂停新房二手房房贷](https://s.weibo.com/weibo?q=%23%E5%A4%9A%E5%9C%B0%E9%93%B6%E8%A1%8C%E6%9A%82%E5%81%9C%E6%96%B0%E6%88%BF%E4%BA%8C%E6%89%8B%E6%88%BF%E6%88%BF%E8%B4%B7%23&Refer=top) `728.6K 🔥`
 1. [昆明一团支书用胶带绑听筒打电话](https://s.weibo.com/weibo?q=%23%E6%98%86%E6%98%8E%E4%B8%80%E5%9B%A2%E6%94%AF%E4%B9%A6%E7%94%A8%E8%83%B6%E5%B8%A6%E7%BB%91%E5%90%AC%E7%AD%92%E6%89%93%E7%94%B5%E8%AF%9D%23&Refer=top) `711.4K 🔥`
-1. [山东教师夫妻2分钟救2名落水群众](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E4%B8%9C%E6%95%99%E5%B8%88%E5%A4%AB%E5%A6%BB2%E5%88%86%E9%92%9F%E6%95%912%E5%90%8D%E8%90%BD%E6%B0%B4%E7%BE%A4%E4%BC%97%23&Refer=top) `709.9K 🔥`
 1. [特朗普卸任后首场集会](https://s.weibo.com/weibo?q=%23%E7%89%B9%E6%9C%97%E6%99%AE%E5%8D%B8%E4%BB%BB%E5%90%8E%E9%A6%96%E5%9C%BA%E9%9B%86%E4%BC%9A%23&Refer=top) `708.7K 🔥`
 
-数据更新于 2021-06-28 19:34:58
+数据更新于 2021-06-28 19:41:17
 
 <!-- END -->
 
