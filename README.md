@@ -23,6 +23,7 @@
 1. [暴雨突袭女子请老人小孩进店避雨](https://s.weibo.com/weibo?q=%23%E6%9A%B4%E9%9B%A8%E7%AA%81%E8%A2%AD%E5%A5%B3%E5%AD%90%E8%AF%B7%E8%80%81%E4%BA%BA%E5%B0%8F%E5%AD%A9%E8%BF%9B%E5%BA%97%E9%81%BF%E9%9B%A8%23&Refer=top) `1.5M 🔥`
 1. [全班看忠犬八公哭到撕心裂肺](https://s.weibo.com/weibo?q=%23%E5%85%A8%E7%8F%AD%E7%9C%8B%E5%BF%A0%E7%8A%AC%E5%85%AB%E5%85%AC%E5%93%AD%E5%88%B0%E6%92%95%E5%BF%83%E8%A3%82%E8%82%BA%23&Refer=top) `1.5M 🔥`
 1. [农夫山泉市值暴跌2800亿](https://s.weibo.com/weibo?q=%23%E5%86%9C%E5%A4%AB%E5%B1%B1%E6%B3%89%E5%B8%82%E5%80%BC%E6%9A%B4%E8%B7%8C2800%E4%BA%BF%23&Refer=top) `1.5M 🔥`
+1. [苹果客服回应iPhone12Mini停产](https://s.weibo.com/weibo?q=%23%E8%8B%B9%E6%9E%9C%E5%AE%A2%E6%9C%8D%E5%9B%9E%E5%BA%94iPhone12Mini%E5%81%9C%E4%BA%A7%23&Refer=top) `1.5M 🔥`
 1. [比利时 葡萄牙](https://s.weibo.com/weibo?q=%E6%AF%94%E5%88%A9%E6%97%B6%20%E8%91%A1%E8%90%84%E7%89%99&Refer=top) `1.4M 🔥`
 1. [得了诺贝尔奖能保研吗](https://s.weibo.com/weibo?q=%23%E5%BE%97%E4%BA%86%E8%AF%BA%E8%B4%9D%E5%B0%94%E5%A5%96%E8%83%BD%E4%BF%9D%E7%A0%94%E5%90%97%23&Refer=top) `1.3M 🔥`
 1. [杨利伟回忆生死26秒惊险时刻](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E5%88%A9%E4%BC%9F%E5%9B%9E%E5%BF%86%E7%94%9F%E6%AD%BB26%E7%A7%92%E6%83%8A%E9%99%A9%E6%97%B6%E5%88%BB%23&Refer=top) `1.3M 🔥`
@@ -31,7 +32,6 @@
 1. [小孩与宠物猫接触后局部头秃](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E5%AD%A9%E4%B8%8E%E5%AE%A0%E7%89%A9%E7%8C%AB%E6%8E%A5%E8%A7%A6%E5%90%8E%E5%B1%80%E9%83%A8%E5%A4%B4%E7%A7%83%23&Refer=top) `1.1M 🔥`
 1. [新研究称喝咖啡有助保护肝脏](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%A0%94%E7%A9%B6%E7%A7%B0%E5%96%9D%E5%92%96%E5%95%A1%E6%9C%89%E5%8A%A9%E4%BF%9D%E6%8A%A4%E8%82%9D%E8%84%8F%23&Refer=top) `1.1M 🔥`
 1. [雅诗兰黛因虚假宣传被罚40万](https://s.weibo.com/weibo?q=%E9%9B%85%E8%AF%97%E5%85%B0%E9%BB%9B%E5%9B%A0%E8%99%9A%E5%81%87%E5%AE%A3%E4%BC%A0%E8%A2%AB%E7%BD%9A40%E4%B8%87&Refer=top) `1.0M 🔥`
-1. [苹果客服回应iPhone12Mini停产](https://s.weibo.com/weibo?q=%23%E8%8B%B9%E6%9E%9C%E5%AE%A2%E6%9C%8D%E5%9B%9E%E5%BA%94iPhone12Mini%E5%81%9C%E4%BA%A7%23&Refer=top) `1.0M 🔥`
 1. [C罗怒摔袖标](https://s.weibo.com/weibo?q=%23C%E7%BD%97%E6%80%92%E6%91%94%E8%A2%96%E6%A0%87%23&Refer=top) `977.1K 🔥`
 1. [高考623分外卖小哥获万元奖励](https://s.weibo.com/weibo?q=%23%E9%AB%98%E8%80%83623%E5%88%86%E5%A4%96%E5%8D%96%E5%B0%8F%E5%93%A5%E8%8E%B7%E4%B8%87%E5%85%83%E5%A5%96%E5%8A%B1%23&Refer=top) `969.1K 🔥`
 1. [张颂文听李大钊夫人遭遇现场落泪](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E9%A2%82%E6%96%87%E5%90%AC%E6%9D%8E%E5%A4%A7%E9%92%8A%E5%A4%AB%E4%BA%BA%E9%81%AD%E9%81%87%E7%8E%B0%E5%9C%BA%E8%90%BD%E6%B3%AA%23&Refer=top) `960.3K 🔥`
@@ -57,7 +57,7 @@
 1. [情侣考研考上同所大学后视频拆通知书](https://s.weibo.com/weibo?q=%23%E6%83%85%E4%BE%A3%E8%80%83%E7%A0%94%E8%80%83%E4%B8%8A%E5%90%8C%E6%89%80%E5%A4%A7%E5%AD%A6%E5%90%8E%E8%A7%86%E9%A2%91%E6%8B%86%E9%80%9A%E7%9F%A5%E4%B9%A6%23&Refer=top) `643.8K 🔥`
 1. [我国人均国民收入超1万美元](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD%E4%BA%BA%E5%9D%87%E5%9B%BD%E6%B0%91%E6%94%B6%E5%85%A5%E8%B6%851%E4%B8%87%E7%BE%8E%E5%85%83%23&Refer=top) `636.3K 🔥`
 
-数据更新于 2021-06-28 17:32:32
+数据更新于 2021-06-28 17:46:16
 
 <!-- END -->
 
