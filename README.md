@@ -19,6 +19,8 @@
 1. [宋茜读赵一曼遗书哽咽](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E8%8C%9C%E8%AF%BB%E8%B5%B5%E4%B8%80%E6%9B%BC%E9%81%97%E4%B9%A6%E5%93%BD%E5%92%BD%23&Refer=top) `1.7M 🔥`
 1. [王俊凯受刑戏份](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E4%BF%8A%E5%87%AF%E5%8F%97%E5%88%91%E6%88%8F%E4%BB%BD%23&Refer=top) `1.7M 🔥`
 1. [18岁喜欢的人28岁还在身边](https://s.weibo.com/weibo?q=%2318%E5%B2%81%E5%96%9C%E6%AC%A2%E7%9A%84%E4%BA%BA28%E5%B2%81%E8%BF%98%E5%9C%A8%E8%BA%AB%E8%BE%B9%23&Refer=top) `1.7M 🔥`
+1. [暴雨突袭女子请老人小孩进店避雨](https://s.weibo.com/weibo?q=%23%E6%9A%B4%E9%9B%A8%E7%AA%81%E8%A2%AD%E5%A5%B3%E5%AD%90%E8%AF%B7%E8%80%81%E4%BA%BA%E5%B0%8F%E5%AD%A9%E8%BF%9B%E5%BA%97%E9%81%BF%E9%9B%A8%23&Refer=top) `1.5M 🔥`
+1. [全班看忠犬八公哭到撕心裂肺](https://s.weibo.com/weibo?q=%23%E5%85%A8%E7%8F%AD%E7%9C%8B%E5%BF%A0%E7%8A%AC%E5%85%AB%E5%85%AC%E5%93%AD%E5%88%B0%E6%92%95%E5%BF%83%E8%A3%82%E8%82%BA%23&Refer=top) `1.5M 🔥`
 1. [农夫山泉市值暴跌2800亿](https://s.weibo.com/weibo?q=%23%E5%86%9C%E5%A4%AB%E5%B1%B1%E6%B3%89%E5%B8%82%E5%80%BC%E6%9A%B4%E8%B7%8C2800%E4%BA%BF%23&Refer=top) `1.5M 🔥`
 1. [比利时 葡萄牙](https://s.weibo.com/weibo?q=%E6%AF%94%E5%88%A9%E6%97%B6%20%E8%91%A1%E8%90%84%E7%89%99&Refer=top) `1.4M 🔥`
 1. [得了诺贝尔奖能保研吗](https://s.weibo.com/weibo?q=%23%E5%BE%97%E4%BA%86%E8%AF%BA%E8%B4%9D%E5%B0%94%E5%A5%96%E8%83%BD%E4%BF%9D%E7%A0%94%E5%90%97%23&Refer=top) `1.3M 🔥`
@@ -30,7 +32,6 @@
 1. [晕倒羊有多惨](https://s.weibo.com/weibo?q=%23%E6%99%95%E5%80%92%E7%BE%8A%E6%9C%89%E5%A4%9A%E6%83%A8%23&Refer=top) `953.5K 🔥`
 1. [女子和奶牛商量让路看呆网友](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E5%92%8C%E5%A5%B6%E7%89%9B%E5%95%86%E9%87%8F%E8%AE%A9%E8%B7%AF%E7%9C%8B%E5%91%86%E7%BD%91%E5%8F%8B%23&Refer=top) `951.1K 🔥`
 1. [广东疫情](https://s.weibo.com/weibo?q=%E5%B9%BF%E4%B8%9C%E7%96%AB%E6%83%85&Refer=top) `945.4K 🔥`
-1. [全班看忠犬八公哭到撕心裂肺](https://s.weibo.com/weibo?q=%23%E5%85%A8%E7%8F%AD%E7%9C%8B%E5%BF%A0%E7%8A%AC%E5%85%AB%E5%85%AC%E5%93%AD%E5%88%B0%E6%92%95%E5%BF%83%E8%A3%82%E8%82%BA%23&Refer=top) `937.3K 🔥`
 1. [冰岛酒店的极光叫醒服务](https://s.weibo.com/weibo?q=%23%E5%86%B0%E5%B2%9B%E9%85%92%E5%BA%97%E7%9A%84%E6%9E%81%E5%85%89%E5%8F%AB%E9%86%92%E6%9C%8D%E5%8A%A1%23&Refer=top) `882.7K 🔥`
 1. [这就是佛系穿搭吗](https://s.weibo.com/weibo?q=%23%E8%BF%99%E5%B0%B1%E6%98%AF%E4%BD%9B%E7%B3%BB%E7%A9%BF%E6%90%AD%E5%90%97%23&Refer=top) `867.7K 🔥`
 1. [74岁女婿跨越千里看望90岁丈母娘](https://s.weibo.com/weibo?q=%2374%E5%B2%81%E5%A5%B3%E5%A9%BF%E8%B7%A8%E8%B6%8A%E5%8D%83%E9%87%8C%E7%9C%8B%E6%9C%9B90%E5%B2%81%E4%B8%88%E6%AF%8D%E5%A8%98%23&Refer=top) `862.4K 🔥`
@@ -55,9 +56,8 @@
 1. [腾讯获推荐婚恋对象专利授权](https://s.weibo.com/weibo?q=%23%E8%85%BE%E8%AE%AF%E8%8E%B7%E6%8E%A8%E8%8D%90%E5%A9%9A%E6%81%8B%E5%AF%B9%E8%B1%A1%E4%B8%93%E5%88%A9%E6%8E%88%E6%9D%83%23&Refer=top) `579.9K 🔥`
 1. [欧洲杯凌晨奶茶外卖订单涨2倍](https://s.weibo.com/weibo?q=%23%E6%AC%A7%E6%B4%B2%E6%9D%AF%E5%87%8C%E6%99%A8%E5%A5%B6%E8%8C%B6%E5%A4%96%E5%8D%96%E8%AE%A2%E5%8D%95%E6%B6%A82%E5%80%8D%23&Refer=top) `579.2K 🔥`
 1. [宋昕冉 速报排名](https://s.weibo.com/weibo?q=%E5%AE%8B%E6%98%95%E5%86%89%20%E9%80%9F%E6%8A%A5%E6%8E%92%E5%90%8D&Refer=top) `569.9K 🔥`
-1. [遇到特殊姓氏时该如何称呼](https://s.weibo.com/weibo?q=%23%E9%81%87%E5%88%B0%E7%89%B9%E6%AE%8A%E5%A7%93%E6%B0%8F%E6%97%B6%E8%AF%A5%E5%A6%82%E4%BD%95%E7%A7%B0%E5%91%BC%23&Refer=top) `557.6K 🔥`
 
-数据更新于 2021-06-28 15:36:10
+数据更新于 2021-06-28 15:42:26
 
 <!-- END -->
 
