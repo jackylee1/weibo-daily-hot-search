@@ -33,23 +33,23 @@
 1. [张艺兴星火](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%89%BA%E5%85%B4%E6%98%9F%E7%81%AB%23&Refer=top) `938.5K 🔥`
 1. [原来爱因斯坦还给陈独秀求过情](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E7%88%B1%E5%9B%A0%E6%96%AF%E5%9D%A6%E8%BF%98%E7%BB%99%E9%99%88%E7%8B%AC%E7%A7%80%E6%B1%82%E8%BF%87%E6%83%85%23&Refer=top) `895.3K 🔥`
 1. [见过最扁的猫](https://s.weibo.com/weibo?q=%23%E8%A7%81%E8%BF%87%E6%9C%80%E6%89%81%E7%9A%84%E7%8C%AB%23&Refer=top) `871.3K 🔥`
+1. [总书记对全体党员提出的要求](https://s.weibo.com/weibo?q=%23%E6%80%BB%E4%B9%A6%E8%AE%B0%E5%AF%B9%E5%85%A8%E4%BD%93%E5%85%9A%E5%91%98%E6%8F%90%E5%87%BA%E7%9A%84%E8%A6%81%E6%B1%82%23&Refer=top) `864.9K 🔥`
 1. [没想到猫被老鼠给咬了](https://s.weibo.com/weibo?q=%23%E6%B2%A1%E6%83%B3%E5%88%B0%E7%8C%AB%E8%A2%AB%E8%80%81%E9%BC%A0%E7%BB%99%E5%92%AC%E4%BA%86%23&Refer=top) `864.3K 🔥`
-1. [总书记对全体党员提出的要求](https://s.weibo.com/weibo?q=%23%E6%80%BB%E4%B9%A6%E8%AE%B0%E5%AF%B9%E5%85%A8%E4%BD%93%E5%85%9A%E5%91%98%E6%8F%90%E5%87%BA%E7%9A%84%E8%A6%81%E6%B1%82%23&Refer=top) `861.5K 🔥`
 1. [凡尔赛式晒宿舍环境](https://s.weibo.com/weibo?q=%23%E5%87%A1%E5%B0%94%E8%B5%9B%E5%BC%8F%E6%99%92%E5%AE%BF%E8%88%8D%E7%8E%AF%E5%A2%83%23&Refer=top) `851.4K 🔥`
+1. [张桂梅含泪唱没有共产党就没有新中国](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%A1%82%E6%A2%85%E5%90%AB%E6%B3%AA%E5%94%B1%E6%B2%A1%E6%9C%89%E5%85%B1%E4%BA%A7%E5%85%9A%E5%B0%B1%E6%B2%A1%E6%9C%89%E6%96%B0%E4%B8%AD%E5%9B%BD%23&Refer=top) `848.6K 🔥`
 1. [我是人民警察我是共产党员](https://s.weibo.com/weibo?q=%23%E6%88%91%E6%98%AF%E4%BA%BA%E6%B0%91%E8%AD%A6%E5%AF%9F%E6%88%91%E6%98%AF%E5%85%B1%E4%BA%A7%E5%85%9A%E5%91%98%23&Refer=top) `822.2K 🔥`
 1. [日本游客聚众烧烤留大量垃圾](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E6%B8%B8%E5%AE%A2%E8%81%9A%E4%BC%97%E7%83%A7%E7%83%A4%E7%95%99%E5%A4%A7%E9%87%8F%E5%9E%83%E5%9C%BE%23&Refer=top) `811.8K 🔥`
 1. [猪都知道系安全带](https://s.weibo.com/weibo?q=%23%E7%8C%AA%E9%83%BD%E7%9F%A5%E9%81%93%E7%B3%BB%E5%AE%89%E5%85%A8%E5%B8%A6%23&Refer=top) `803.9K 🔥`
-1. [张桂梅含泪唱没有共产党就没有新中国](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%A1%82%E6%A2%85%E5%90%AB%E6%B3%AA%E5%94%B1%E6%B2%A1%E6%9C%89%E5%85%B1%E4%BA%A7%E5%85%9A%E5%B0%B1%E6%B2%A1%E6%9C%89%E6%96%B0%E4%B8%AD%E5%9B%BD%23&Refer=top) `781.2K 🔥`
 1. [该不该和朋友分享喜悦](https://s.weibo.com/weibo?q=%23%E8%AF%A5%E4%B8%8D%E8%AF%A5%E5%92%8C%E6%9C%8B%E5%8F%8B%E5%88%86%E4%BA%AB%E5%96%9C%E6%82%A6%23&Refer=top) `769.2K 🔥`
+1. [日本开卖首款血液检测阿尔茨海默症装置](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E5%BC%80%E5%8D%96%E9%A6%96%E6%AC%BE%E8%A1%80%E6%B6%B2%E6%A3%80%E6%B5%8B%E9%98%BF%E5%B0%94%E8%8C%A8%E6%B5%B7%E9%BB%98%E7%97%87%E8%A3%85%E7%BD%AE%23&Refer=top) `731.3K 🔥`
+1. [博士脱单有多难](https://s.weibo.com/weibo?q=%23%E5%8D%9A%E5%A3%AB%E8%84%B1%E5%8D%95%E6%9C%89%E5%A4%9A%E9%9A%BE%23&Refer=top) `716.2K 🔥`
 1. [儿童急性淋巴白血病80%以上可治愈](https://s.weibo.com/weibo?q=%23%E5%84%BF%E7%AB%A5%E6%80%A5%E6%80%A7%E6%B7%8B%E5%B7%B4%E7%99%BD%E8%A1%80%E7%97%8580%25%E4%BB%A5%E4%B8%8A%E5%8F%AF%E6%B2%BB%E6%84%88%23&Refer=top) `710.0K 🔥`
 1. [上海疫苗](https://s.weibo.com/weibo?q=%E4%B8%8A%E6%B5%B7%E7%96%AB%E8%8B%97&Refer=top) `707.4K 🔥`
 1. [班级群社死现场](https://s.weibo.com/weibo?q=%23%E7%8F%AD%E7%BA%A7%E7%BE%A4%E7%A4%BE%E6%AD%BB%E7%8E%B0%E5%9C%BA%23&Refer=top) `704.0K 🔥`
-1. [博士脱单有多难](https://s.weibo.com/weibo?q=%23%E5%8D%9A%E5%A3%AB%E8%84%B1%E5%8D%95%E6%9C%89%E5%A4%9A%E9%9A%BE%23&Refer=top) `695.1K 🔥`
 1. [150多位国家元首政府首脑向建党百年道贺](https://s.weibo.com/weibo?q=%23150%E5%A4%9A%E4%BD%8D%E5%9B%BD%E5%AE%B6%E5%85%83%E9%A6%96%E6%94%BF%E5%BA%9C%E9%A6%96%E8%84%91%E5%90%91%E5%BB%BA%E5%85%9A%E7%99%BE%E5%B9%B4%E9%81%93%E8%B4%BA%23&Refer=top) `677.4K 🔥`
 1. [16地平均工资](https://s.weibo.com/weibo?q=%2316%E5%9C%B0%E5%B9%B3%E5%9D%87%E5%B7%A5%E8%B5%84%23&Refer=top) `647.5K 🔥`
 1. [女子照顾孤寡大爷20年](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E7%85%A7%E9%A1%BE%E5%AD%A4%E5%AF%A1%E5%A4%A7%E7%88%B720%E5%B9%B4%23&Refer=top) `646.3K 🔥`
 1. [国宾护卫队为功勋党员护航](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E5%AE%BE%E6%8A%A4%E5%8D%AB%E9%98%9F%E4%B8%BA%E5%8A%9F%E5%8B%8B%E5%85%9A%E5%91%98%E6%8A%A4%E8%88%AA%23&Refer=top) `621.1K 🔥`
-1. [日本开卖首款血液检测阿尔茨海默症装置](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E5%BC%80%E5%8D%96%E9%A6%96%E6%AC%BE%E8%A1%80%E6%B6%B2%E6%A3%80%E6%B5%8B%E9%98%BF%E5%B0%94%E8%8C%A8%E6%B5%B7%E9%BB%98%E7%97%87%E8%A3%85%E7%BD%AE%23&Refer=top) `600.3K 🔥`
 1. [美国教授13岁前只会汉语](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E6%95%99%E6%8E%8813%E5%B2%81%E5%89%8D%E5%8F%AA%E4%BC%9A%E6%B1%89%E8%AF%AD%23&Refer=top) `594.7K 🔥`
 1. [原来这就是毕业的味道](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E8%BF%99%E5%B0%B1%E6%98%AF%E6%AF%95%E4%B8%9A%E7%9A%84%E5%91%B3%E9%81%93%23&Refer=top) `587.6K 🔥`
 1. [伴着自己写的bgm进入大会堂](https://s.weibo.com/weibo?q=%23%E4%BC%B4%E7%9D%80%E8%87%AA%E5%B7%B1%E5%86%99%E7%9A%84bgm%E8%BF%9B%E5%85%A5%E5%A4%A7%E4%BC%9A%E5%A0%82%23&Refer=top) `580.7K 🔥`
@@ -57,7 +57,7 @@
 1. [中国共产党党徽党旗条例](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A%E5%85%9A%E5%BE%BD%E5%85%9A%E6%97%97%E6%9D%A1%E4%BE%8B&Refer=top) `560.0K 🔥`
 1. [西班牙乌龙球](https://s.weibo.com/weibo?q=%E8%A5%BF%E7%8F%AD%E7%89%99%E4%B9%8C%E9%BE%99%E7%90%83&Refer=top) `545.7K 🔥`
 
-数据更新于 2021-06-29 13:30:15
+数据更新于 2021-06-29 13:36:41
 
 <!-- END -->
 
