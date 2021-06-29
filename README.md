@@ -16,7 +16,9 @@
 1. [雨后出现的大蜗牛千万别碰](https://s.weibo.com/weibo?q=%23%E9%9B%A8%E5%90%8E%E5%87%BA%E7%8E%B0%E7%9A%84%E5%A4%A7%E8%9C%97%E7%89%9B%E5%8D%83%E4%B8%87%E5%88%AB%E7%A2%B0%23&Refer=top) `1.9M 🔥`
 1. [张桂梅手上布满膏药](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%A1%82%E6%A2%85%E6%89%8B%E4%B8%8A%E5%B8%83%E6%BB%A1%E8%86%8F%E8%8D%AF%23&Refer=top) `1.9M 🔥`
 1. [博士毕业7岁女儿现场献花](https://s.weibo.com/weibo?q=%23%E5%8D%9A%E5%A3%AB%E6%AF%95%E4%B8%9A7%E5%B2%81%E5%A5%B3%E5%84%BF%E7%8E%B0%E5%9C%BA%E7%8C%AE%E8%8A%B1%23&Refer=top) `1.8M 🔥`
+1. [潘粤明晒父亲光荣在党50年奖章](https://s.weibo.com/weibo?q=%23%E6%BD%98%E7%B2%A4%E6%98%8E%E6%99%92%E7%88%B6%E4%BA%B2%E5%85%89%E8%8D%A3%E5%9C%A8%E5%85%9A50%E5%B9%B4%E5%A5%96%E7%AB%A0%23&Refer=top) `1.5M 🔥`
 1. [张桂梅被搀扶着进入人民大会堂](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%A1%82%E6%A2%85%E8%A2%AB%E6%90%80%E6%89%B6%E7%9D%80%E8%BF%9B%E5%85%A5%E4%BA%BA%E6%B0%91%E5%A4%A7%E4%BC%9A%E5%A0%82%23&Refer=top) `1.5M 🔥`
+1. [维吾尔族女孩被15所世界名校录取](https://s.weibo.com/weibo?q=%23%E7%BB%B4%E5%90%BE%E5%B0%94%E6%97%8F%E5%A5%B3%E5%AD%A9%E8%A2%AB15%E6%89%80%E4%B8%96%E7%95%8C%E5%90%8D%E6%A0%A1%E5%BD%95%E5%8F%96%23&Refer=top) `1.5M 🔥`
 1. [周恩来穿过的风衣及中山装首次亮相](https://s.weibo.com/weibo?q=%23%E5%91%A8%E6%81%A9%E6%9D%A5%E7%A9%BF%E8%BF%87%E7%9A%84%E9%A3%8E%E8%A1%A3%E5%8F%8A%E4%B8%AD%E5%B1%B1%E8%A3%85%E9%A6%96%E6%AC%A1%E4%BA%AE%E7%9B%B8%23&Refer=top) `1.4M 🔥`
 1. [张桂梅说九死亦无悔](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%A1%82%E6%A2%85%E8%AF%B4%E4%B9%9D%E6%AD%BB%E4%BA%A6%E6%97%A0%E6%82%94%23&Refer=top) `1.4M 🔥`
 1. [姆巴佩道歉](https://s.weibo.com/weibo?q=%23%E5%A7%86%E5%B7%B4%E4%BD%A9%E9%81%93%E6%AD%89%23&Refer=top) `1.3M 🔥`
@@ -38,7 +40,6 @@
 1. [张艺兴星火](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%89%BA%E5%85%B4%E6%98%9F%E7%81%AB%23&Refer=top) `938.5K 🔥`
 1. [原来爱因斯坦还给陈独秀求过情](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E7%88%B1%E5%9B%A0%E6%96%AF%E5%9D%A6%E8%BF%98%E7%BB%99%E9%99%88%E7%8B%AC%E7%A7%80%E6%B1%82%E8%BF%87%E6%83%85%23&Refer=top) `895.3K 🔥`
 1. [张桂梅含泪唱没有共产党就没有新中国](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%A1%82%E6%A2%85%E5%90%AB%E6%B3%AA%E5%94%B1%E6%B2%A1%E6%9C%89%E5%85%B1%E4%BA%A7%E5%85%9A%E5%B0%B1%E6%B2%A1%E6%9C%89%E6%96%B0%E4%B8%AD%E5%9B%BD%23&Refer=top) `881.2K 🔥`
-1. [潘粤明晒父亲光荣在党50年奖章](https://s.weibo.com/weibo?q=%23%E6%BD%98%E7%B2%A4%E6%98%8E%E6%99%92%E7%88%B6%E4%BA%B2%E5%85%89%E8%8D%A3%E5%9C%A8%E5%85%9A50%E5%B9%B4%E5%A5%96%E7%AB%A0%23&Refer=top) `875.6K 🔥`
 1. [日本青森樱桃一颗3万日元](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E9%9D%92%E6%A3%AE%E6%A8%B1%E6%A1%83%E4%B8%80%E9%A2%973%E4%B8%87%E6%97%A5%E5%85%83%23&Refer=top) `875.2K 🔥`
 1. [见过最扁的猫](https://s.weibo.com/weibo?q=%23%E8%A7%81%E8%BF%87%E6%9C%80%E6%89%81%E7%9A%84%E7%8C%AB%23&Refer=top) `871.3K 🔥`
 1. [电竞冠军曾被家人误认进传销](https://s.weibo.com/weibo?q=%23%E7%94%B5%E7%AB%9E%E5%86%A0%E5%86%9B%E6%9B%BE%E8%A2%AB%E5%AE%B6%E4%BA%BA%E8%AF%AF%E8%AE%A4%E8%BF%9B%E4%BC%A0%E9%94%80%23&Refer=top) `869.3K 🔥`
@@ -53,11 +54,10 @@
 1. [猪都知道系安全带](https://s.weibo.com/weibo?q=%23%E7%8C%AA%E9%83%BD%E7%9F%A5%E9%81%93%E7%B3%BB%E5%AE%89%E5%85%A8%E5%B8%A6%23&Refer=top) `803.9K 🔥`
 1. [博士脱单有多难](https://s.weibo.com/weibo?q=%23%E5%8D%9A%E5%A3%AB%E8%84%B1%E5%8D%95%E6%9C%89%E5%A4%9A%E9%9A%BE%23&Refer=top) `802.2K 🔥`
 1. [拍照把自己拍成了景点](https://s.weibo.com/weibo?q=%23%E6%8B%8D%E7%85%A7%E6%8A%8A%E8%87%AA%E5%B7%B1%E6%8B%8D%E6%88%90%E4%BA%86%E6%99%AF%E7%82%B9%23&Refer=top) `792.9K 🔥`
+1. [这个拍拍头好可爱](https://s.weibo.com/weibo?q=%23%E8%BF%99%E4%B8%AA%E6%8B%8D%E6%8B%8D%E5%A4%B4%E5%A5%BD%E5%8F%AF%E7%88%B1%23&Refer=top) `775.8K 🔥`
 1. [该不该和朋友分享喜悦](https://s.weibo.com/weibo?q=%23%E8%AF%A5%E4%B8%8D%E8%AF%A5%E5%92%8C%E6%9C%8B%E5%8F%8B%E5%88%86%E4%BA%AB%E5%96%9C%E6%82%A6%23&Refer=top) `769.2K 🔥`
-1. [儿童急性淋巴白血病80%以上可治愈](https://s.weibo.com/weibo?q=%23%E5%84%BF%E7%AB%A5%E6%80%A5%E6%80%A7%E6%B7%8B%E5%B7%B4%E7%99%BD%E8%A1%80%E7%97%8580%25%E4%BB%A5%E4%B8%8A%E5%8F%AF%E6%B2%BB%E6%84%88%23&Refer=top) `710.0K 🔥`
-1. [上海疫苗](https://s.weibo.com/weibo?q=%E4%B8%8A%E6%B5%B7%E7%96%AB%E8%8B%97&Refer=top) `707.4K 🔥`
 
-数据更新于 2021-06-29 17:29:09
+数据更新于 2021-06-29 17:42:58
 
 <!-- END -->
 
