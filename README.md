@@ -57,7 +57,7 @@
 1. [当广东人唱周杰伦的歌](https://s.weibo.com/weibo?q=%23%E5%BD%93%E5%B9%BF%E4%B8%9C%E4%BA%BA%E5%94%B1%E5%91%A8%E6%9D%B0%E4%BC%A6%E7%9A%84%E6%AD%8C%23&Refer=top) `455.0K 🔥`
 1. [澳大利亚副总理不戴口罩遭民众举报](https://s.weibo.com/weibo?q=%23%E6%BE%B3%E5%A4%A7%E5%88%A9%E4%BA%9A%E5%89%AF%E6%80%BB%E7%90%86%E4%B8%8D%E6%88%B4%E5%8F%A3%E7%BD%A9%E9%81%AD%E6%B0%91%E4%BC%97%E4%B8%BE%E6%8A%A5%23&Refer=top) `451.8K 🔥`
 
-数据更新于 2021-06-30 14:01:16
+数据更新于 2021-06-30 14:02:12
 
 <!-- END -->
 
