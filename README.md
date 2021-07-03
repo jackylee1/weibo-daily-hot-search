@@ -17,6 +17,7 @@
 1. [李易峰洗澡戏冻得直哆嗦](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E6%98%93%E5%B3%B0%E6%B4%97%E6%BE%A1%E6%88%8F%E5%86%BB%E5%BE%97%E7%9B%B4%E5%93%86%E5%97%A6%23&Refer=top) `2.4M 🔥`
 1. [正午到下午3点是吃冷饮最佳时机](https://s.weibo.com/weibo?q=%23%E6%AD%A3%E5%8D%88%E5%88%B0%E4%B8%8B%E5%8D%883%E7%82%B9%E6%98%AF%E5%90%83%E5%86%B7%E9%A5%AE%E6%9C%80%E4%BD%B3%E6%97%B6%E6%9C%BA%23&Refer=top) `2.4M 🔥`
 1. [刘亦菲演王语嫣时的颜值](https://s.weibo.com/weibo?q=%23%E5%88%98%E4%BA%A6%E8%8F%B2%E6%BC%94%E7%8E%8B%E8%AF%AD%E5%AB%A3%E6%97%B6%E7%9A%84%E9%A2%9C%E5%80%BC%23&Refer=top) `2.4M 🔥`
+1. [食用死亡2小时以上小龙虾容易中毒](https://s.weibo.com/weibo?q=%23%E9%A3%9F%E7%94%A8%E6%AD%BB%E4%BA%A12%E5%B0%8F%E6%97%B6%E4%BB%A5%E4%B8%8A%E5%B0%8F%E9%BE%99%E8%99%BE%E5%AE%B9%E6%98%93%E4%B8%AD%E6%AF%92%23&Refer=top) `2.3M 🔥`
 1. [武汉一小区现多只貉](https://s.weibo.com/weibo?q=%23%E6%AD%A6%E6%B1%89%E4%B8%80%E5%B0%8F%E5%8C%BA%E7%8E%B0%E5%A4%9A%E5%8F%AA%E8%B2%89%23&Refer=top) `2.1M 🔥`
 1. [丁真 时尚芭莎](https://s.weibo.com/weibo?q=%E4%B8%81%E7%9C%9F%20%E6%97%B6%E5%B0%9A%E8%8A%AD%E8%8E%8E&Refer=top) `2.0M 🔥`
 1. [虎妈妈不喂奶动物园找狗喂虎崽](https://s.weibo.com/weibo?q=%23%E8%99%8E%E5%A6%88%E5%A6%88%E4%B8%8D%E5%96%82%E5%A5%B6%E5%8A%A8%E7%89%A9%E5%9B%AD%E6%89%BE%E7%8B%97%E5%96%82%E8%99%8E%E5%B4%BD%23&Refer=top) `2.0M 🔥`
@@ -37,7 +38,6 @@
 1. [医生收到的私信有多好笑](https://s.weibo.com/weibo?q=%23%E5%8C%BB%E7%94%9F%E6%94%B6%E5%88%B0%E7%9A%84%E7%A7%81%E4%BF%A1%E6%9C%89%E5%A4%9A%E5%A5%BD%E7%AC%91%23&Refer=top) `1.3M 🔥`
 1. [北京环球影城真的可以](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E7%8E%AF%E7%90%83%E5%BD%B1%E5%9F%8E%E7%9C%9F%E7%9A%84%E5%8F%AF%E4%BB%A5%23&Refer=top) `1.2M 🔥`
 1. [红烧肉就是要炒糖色](https://s.weibo.com/weibo?q=%23%E7%BA%A2%E7%83%A7%E8%82%89%E5%B0%B1%E6%98%AF%E8%A6%81%E7%82%92%E7%B3%96%E8%89%B2%23&Refer=top) `1.2M 🔥`
-1. [食用死亡2小时以上小龙虾容易中毒](https://s.weibo.com/weibo?q=%23%E9%A3%9F%E7%94%A8%E6%AD%BB%E4%BA%A12%E5%B0%8F%E6%97%B6%E4%BB%A5%E4%B8%8A%E5%B0%8F%E9%BE%99%E8%99%BE%E5%AE%B9%E6%98%93%E4%B8%AD%E6%AF%92%23&Refer=top) `1.2M 🔥`
 1. [李易峰发了王一博拍的大合照](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E6%98%93%E5%B3%B0%E5%8F%91%E4%BA%86%E7%8E%8B%E4%B8%80%E5%8D%9A%E6%8B%8D%E7%9A%84%E5%A4%A7%E5%90%88%E7%85%A7%23&Refer=top) `1.1M 🔥`
 1. [老人执意转5.5万帮假维和警察退休](https://s.weibo.com/weibo?q=%23%E8%80%81%E4%BA%BA%E6%89%A7%E6%84%8F%E8%BD%AC5.5%E4%B8%87%E5%B8%AE%E5%81%87%E7%BB%B4%E5%92%8C%E8%AD%A6%E5%AF%9F%E9%80%80%E4%BC%91%23&Refer=top) `1.1M 🔥`
 1. [女子讲述吃菌中毒离奇幻觉](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E8%AE%B2%E8%BF%B0%E5%90%83%E8%8F%8C%E4%B8%AD%E6%AF%92%E7%A6%BB%E5%A5%87%E5%B9%BB%E8%A7%89%23&Refer=top) `1.1M 🔥`
@@ -57,7 +57,7 @@
 1. [荷兰弟赞达亚恋情](https://s.weibo.com/weibo?q=%23%E8%8D%B7%E5%85%B0%E5%BC%9F%E8%B5%9E%E8%BE%BE%E4%BA%9A%E6%81%8B%E6%83%85%23&Refer=top) `864.3K 🔥`
 1. [加拿大一周内超700人猝死](https://s.weibo.com/weibo?q=%23%E5%8A%A0%E6%8B%BF%E5%A4%A7%E4%B8%80%E5%91%A8%E5%86%85%E8%B6%85700%E4%BA%BA%E7%8C%9D%E6%AD%BB%23&Refer=top) `857.2K 🔥`
 
-数据更新于 2021-07-03 18:30:24
+数据更新于 2021-07-03 18:41:09
 
 <!-- END -->
 
