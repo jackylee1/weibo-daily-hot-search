@@ -19,6 +19,8 @@
 1. [阿米尔汗离婚](https://s.weibo.com/weibo?q=%23%E9%98%BF%E7%B1%B3%E5%B0%94%E6%B1%97%E7%A6%BB%E5%A9%9A%23&Refer=top) `3.3M 🔥`
 1. [张新成最佳女主获奖发言](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%96%B0%E6%88%90%E6%9C%80%E4%BD%B3%E5%A5%B3%E4%B8%BB%E8%8E%B7%E5%A5%96%E5%8F%91%E8%A8%80%23&Refer=top) `3.3M 🔥`
 1. [租户儿子高考608分房东免租4年](https://s.weibo.com/weibo?q=%23%E7%A7%9F%E6%88%B7%E5%84%BF%E5%AD%90%E9%AB%98%E8%80%83608%E5%88%86%E6%88%BF%E4%B8%9C%E5%85%8D%E7%A7%9F4%E5%B9%B4%23&Refer=top) `3.2M 🔥`
+1. [出生仅4天婴儿被蜱虫咬伤](https://s.weibo.com/weibo?q=%23%E5%87%BA%E7%94%9F%E4%BB%854%E5%A4%A9%E5%A9%B4%E5%84%BF%E8%A2%AB%E8%9C%B1%E8%99%AB%E5%92%AC%E4%BC%A4%23&Refer=top) `3.1M 🔥`
+1. [这张漫画又破防了](https://s.weibo.com/weibo?q=%23%E8%BF%99%E5%BC%A0%E6%BC%AB%E7%94%BB%E5%8F%88%E7%A0%B4%E9%98%B2%E4%BA%86%23&Refer=top) `3.0M 🔥`
 1. [美国两名不满十岁男孩被控枪杀一男子](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E4%B8%A4%E5%90%8D%E4%B8%8D%E6%BB%A1%E5%8D%81%E5%B2%81%E7%94%B7%E5%AD%A9%E8%A2%AB%E6%8E%A7%E6%9E%AA%E6%9D%80%E4%B8%80%E7%94%B7%E5%AD%90%23&Refer=top) `2.8M 🔥`
 1. [患病老兵误把山竹当炸弹飞扑压住](https://s.weibo.com/weibo?q=%23%E6%82%A3%E7%97%85%E8%80%81%E5%85%B5%E8%AF%AF%E6%8A%8A%E5%B1%B1%E7%AB%B9%E5%BD%93%E7%82%B8%E5%BC%B9%E9%A3%9E%E6%89%91%E5%8E%8B%E4%BD%8F%23&Refer=top) `2.7M 🔥`
 1. [张子枫的少年感绝了](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%AD%90%E6%9E%AB%E7%9A%84%E5%B0%91%E5%B9%B4%E6%84%9F%E7%BB%9D%E4%BA%86%23&Refer=top) `2.7M 🔥`
@@ -42,7 +44,6 @@
 1. [被幸福催打的台湾女孩](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E5%B9%B8%E7%A6%8F%E5%82%AC%E6%89%93%E7%9A%84%E5%8F%B0%E6%B9%BE%E5%A5%B3%E5%AD%A9%23&Refer=top) `1.6M 🔥`
 1. [神七出舱时哪怕牺牲也要展示国旗](https://s.weibo.com/weibo?q=%23%E7%A5%9E%E4%B8%83%E5%87%BA%E8%88%B1%E6%97%B6%E5%93%AA%E6%80%95%E7%89%BA%E7%89%B2%E4%B9%9F%E8%A6%81%E5%B1%95%E7%A4%BA%E5%9B%BD%E6%97%97%23&Refer=top) `1.6M 🔥`
 1. [航天员在中国空间站内的日常](https://s.weibo.com/weibo?q=%23%E8%88%AA%E5%A4%A9%E5%91%98%E5%9C%A8%E4%B8%AD%E5%9B%BD%E7%A9%BA%E9%97%B4%E7%AB%99%E5%86%85%E7%9A%84%E6%97%A5%E5%B8%B8%23&Refer=top) `1.6M 🔥`
-1. [这张漫画又破防了](https://s.weibo.com/weibo?q=%23%E8%BF%99%E5%BC%A0%E6%BC%AB%E7%94%BB%E5%8F%88%E7%A0%B4%E9%98%B2%E4%BA%86%23&Refer=top) `1.6M 🔥`
 1. [延乔墓前的来信破防了](https://s.weibo.com/weibo?q=%23%E5%BB%B6%E4%B9%94%E5%A2%93%E5%89%8D%E7%9A%84%E6%9D%A5%E4%BF%A1%E7%A0%B4%E9%98%B2%E4%BA%86%23&Refer=top) `1.6M 🔥`
 1. [医生醉酒后给自己配药扎针](https://s.weibo.com/weibo?q=%23%E5%8C%BB%E7%94%9F%E9%86%89%E9%85%92%E5%90%8E%E7%BB%99%E8%87%AA%E5%B7%B1%E9%85%8D%E8%8D%AF%E6%89%8E%E9%92%88%23&Refer=top) `1.5M 🔥`
 1. [胡兵请毛戈平给妈妈们做造型](https://s.weibo.com/weibo?q=%23%E8%83%A1%E5%85%B5%E8%AF%B7%E6%AF%9B%E6%88%88%E5%B9%B3%E7%BB%99%E5%A6%88%E5%A6%88%E4%BB%AC%E5%81%9A%E9%80%A0%E5%9E%8B%23&Refer=top) `1.5M 🔥`
@@ -55,9 +56,8 @@
 1. [郭晶晶为霍启刚庆生](https://s.weibo.com/weibo?q=%23%E9%83%AD%E6%99%B6%E6%99%B6%E4%B8%BA%E9%9C%8D%E5%90%AF%E5%88%9A%E5%BA%86%E7%94%9F%23&Refer=top) `1.3M 🔥`
 1. [男生自认为很帅的动作](https://s.weibo.com/weibo?q=%23%E7%94%B7%E7%94%9F%E8%87%AA%E8%AE%A4%E4%B8%BA%E5%BE%88%E5%B8%85%E7%9A%84%E5%8A%A8%E4%BD%9C%23&Refer=top) `1.3M 🔥`
 1. [食用死亡2小时以上小龙虾容易中毒](https://s.weibo.com/weibo?q=%23%E9%A3%9F%E7%94%A8%E6%AD%BB%E4%BA%A12%E5%B0%8F%E6%97%B6%E4%BB%A5%E4%B8%8A%E5%B0%8F%E9%BE%99%E8%99%BE%E5%AE%B9%E6%98%93%E4%B8%AD%E6%AF%92%23&Refer=top) `1.3M 🔥`
-1. [印度爆发大规模停电抗议](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E7%88%86%E5%8F%91%E5%A4%A7%E8%A7%84%E6%A8%A1%E5%81%9C%E7%94%B5%E6%8A%97%E8%AE%AE%23&Refer=top) `1.2M 🔥`
 
-数据更新于 2021-07-04 23:04:12
+数据更新于 2021-07-04 23:27:10
 
 <!-- END -->
 
