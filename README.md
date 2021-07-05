@@ -57,7 +57,7 @@
 1. [邓丽欣 他是一个非常好的传统男生](https://s.weibo.com/weibo?q=%E9%82%93%E4%B8%BD%E6%AC%A3%20%E4%BB%96%E6%98%AF%E4%B8%80%E4%B8%AA%E9%9D%9E%E5%B8%B8%E5%A5%BD%E7%9A%84%E4%BC%A0%E7%BB%9F%E7%94%B7%E7%94%9F&Refer=top) `708.1K 🔥`
 1. [30%美国人拒绝接种新冠疫苗](https://s.weibo.com/weibo?q=%2330%25%E7%BE%8E%E5%9B%BD%E4%BA%BA%E6%8B%92%E7%BB%9D%E6%8E%A5%E7%A7%8D%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%23&Refer=top) `706.6K 🔥`
 
-数据更新于 2021-07-05 14:43:22
+数据更新于 2021-07-05 14:57:10
 
 <!-- END -->
 
