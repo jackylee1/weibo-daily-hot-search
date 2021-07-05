@@ -28,6 +28,7 @@
 1. [新闻主播辞职回家卖保险照顾病母](https://s.weibo.com/weibo?q=%23%E6%96%B0%E9%97%BB%E4%B8%BB%E6%92%AD%E8%BE%9E%E8%81%8C%E5%9B%9E%E5%AE%B6%E5%8D%96%E4%BF%9D%E9%99%A9%E7%85%A7%E9%A1%BE%E7%97%85%E6%AF%8D%23&Refer=top) `2.2M 🔥`
 1. [你微笑时很美评分](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E5%BE%AE%E7%AC%91%E6%97%B6%E5%BE%88%E7%BE%8E%E8%AF%84%E5%88%86%23&Refer=top) `2.1M 🔥`
 1. [周也金发](https://s.weibo.com/weibo?q=%E5%91%A8%E4%B9%9F%E9%87%91%E5%8F%91&Refer=top) `2.1M 🔥`
+1. [生8孩被征收社会抚养费266万](https://s.weibo.com/weibo?q=%23%E7%94%9F8%E5%AD%A9%E8%A2%AB%E5%BE%81%E6%94%B6%E7%A4%BE%E4%BC%9A%E6%8A%9A%E5%85%BB%E8%B4%B9266%E4%B8%87%23&Refer=top) `2.0M 🔥`
 1. [江苏女生中考757分8门满分](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%8B%8F%E5%A5%B3%E7%94%9F%E4%B8%AD%E8%80%83757%E5%88%868%E9%97%A8%E6%BB%A1%E5%88%86%23&Refer=top) `2.0M 🔥`
 1. [张月 林有有成为标签挺好](https://s.weibo.com/weibo?q=%E5%BC%A0%E6%9C%88%20%E6%9E%97%E6%9C%89%E6%9C%89%E6%88%90%E4%B8%BA%E6%A0%87%E7%AD%BE%E6%8C%BA%E5%A5%BD&Refer=top) `1.8M 🔥`
 1. [研究生录取通知能有多敷衍](https://s.weibo.com/weibo?q=%23%E7%A0%94%E7%A9%B6%E7%94%9F%E5%BD%95%E5%8F%96%E9%80%9A%E7%9F%A5%E8%83%BD%E6%9C%89%E5%A4%9A%E6%95%B7%E8%A1%8D%23&Refer=top) `1.8M 🔥`
@@ -41,7 +42,6 @@
 1. [女子网恋被骗八百多万](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E7%BD%91%E6%81%8B%E8%A2%AB%E9%AA%97%E5%85%AB%E7%99%BE%E5%A4%9A%E4%B8%87%23&Refer=top) `1.6M 🔥`
 1. [杨幂 我也在等待着我的彩虹](https://s.weibo.com/weibo?q=%E6%9D%A8%E5%B9%82%20%E6%88%91%E4%B9%9F%E5%9C%A8%E7%AD%89%E5%BE%85%E7%9D%80%E6%88%91%E7%9A%84%E5%BD%A9%E8%99%B9&Refer=top) `1.5M 🔥`
 1. [航天员尿液提纯后可变饮用水](https://s.weibo.com/weibo?q=%23%E8%88%AA%E5%A4%A9%E5%91%98%E5%B0%BF%E6%B6%B2%E6%8F%90%E7%BA%AF%E5%90%8E%E5%8F%AF%E5%8F%98%E9%A5%AE%E7%94%A8%E6%B0%B4%23&Refer=top) `1.5M 🔥`
-1. [生8孩被征收社会抚养费266万](https://s.weibo.com/weibo?q=%23%E7%94%9F8%E5%AD%A9%E8%A2%AB%E5%BE%81%E6%94%B6%E7%A4%BE%E4%BC%9A%E6%8A%9A%E5%85%BB%E8%B4%B9266%E4%B8%87%23&Refer=top) `1.4M 🔥`
 1. [什么是咯噔文学](https://s.weibo.com/weibo?q=%23%E4%BB%80%E4%B9%88%E6%98%AF%E5%92%AF%E5%99%94%E6%96%87%E5%AD%A6%23&Refer=top) `1.4M 🔥`
 1. [云南瑞丽关闭离瑞通道](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E7%91%9E%E4%B8%BD%E5%85%B3%E9%97%AD%E7%A6%BB%E7%91%9E%E9%80%9A%E9%81%93%23&Refer=top) `1.4M 🔥`
 1. [维他奶一日蒸发约10亿港元](https://s.weibo.com/weibo?q=%23%E7%BB%B4%E4%BB%96%E5%A5%B6%E4%B8%80%E6%97%A5%E8%92%B8%E5%8F%91%E7%BA%A610%E4%BA%BF%E6%B8%AF%E5%85%83%23&Refer=top) `1.3M 🔥`
@@ -57,7 +57,7 @@
 1. [台湾现多起接种莫德纳疫苗后猝死事件](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E6%B9%BE%E7%8E%B0%E5%A4%9A%E8%B5%B7%E6%8E%A5%E7%A7%8D%E8%8E%AB%E5%BE%B7%E7%BA%B3%E7%96%AB%E8%8B%97%E5%90%8E%E7%8C%9D%E6%AD%BB%E4%BA%8B%E4%BB%B6%23&Refer=top) `1.0M 🔥`
 1. [追光者开机](https://s.weibo.com/weibo?q=%23%E8%BF%BD%E5%85%89%E8%80%85%E5%BC%80%E6%9C%BA%23&Refer=top) `1.0M 🔥`
 
-数据更新于 2021-07-05 22:29:07
+数据更新于 2021-07-05 22:35:46
 
 <!-- END -->
 
