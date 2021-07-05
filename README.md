@@ -53,11 +53,11 @@
 1. [阶段性减肥](https://s.weibo.com/weibo?q=%23%E9%98%B6%E6%AE%B5%E6%80%A7%E5%87%8F%E8%82%A5%23&Refer=top) `673.4K 🔥`
 1. [贺先生的恋恋不忘定档](https://s.weibo.com/weibo?q=%23%E8%B4%BA%E5%85%88%E7%94%9F%E7%9A%84%E6%81%8B%E6%81%8B%E4%B8%8D%E5%BF%98%E5%AE%9A%E6%A1%A3%23&Refer=top) `667.6K 🔥`
 1. [77岁爷爷将瘫痪老伴绑在身上锻炼](https://s.weibo.com/weibo?q=%2377%E5%B2%81%E7%88%B7%E7%88%B7%E5%B0%86%E7%98%AB%E7%97%AA%E8%80%81%E4%BC%B4%E7%BB%91%E5%9C%A8%E8%BA%AB%E4%B8%8A%E9%94%BB%E7%82%BC%23&Refer=top) `659.3K 🔥`
+1. [毛主席给她题词好好学习天天向上](https://s.weibo.com/weibo?q=%23%E6%AF%9B%E4%B8%BB%E5%B8%AD%E7%BB%99%E5%A5%B9%E9%A2%98%E8%AF%8D%E5%A5%BD%E5%A5%BD%E5%AD%A6%E4%B9%A0%E5%A4%A9%E5%A4%A9%E5%90%91%E4%B8%8A%23&Refer=top) `658.4K 🔥`
 1. [闯红灯458次被记2748分](https://s.weibo.com/weibo?q=%23%E9%97%AF%E7%BA%A2%E7%81%AF458%E6%AC%A1%E8%A2%AB%E8%AE%B02748%E5%88%86%23&Refer=top) `655.8K 🔥`
 1. [王子 谣言止于智者](https://s.weibo.com/weibo?q=%E7%8E%8B%E5%AD%90%20%E8%B0%A3%E8%A8%80%E6%AD%A2%E4%BA%8E%E6%99%BA%E8%80%85&Refer=top) `640.3K 🔥`
-1. [杨迪 有时认不出我是艺人真不怪别人](https://s.weibo.com/weibo?q=%E6%9D%A8%E8%BF%AA%20%E6%9C%89%E6%97%B6%E8%AE%A4%E4%B8%8D%E5%87%BA%E6%88%91%E6%98%AF%E8%89%BA%E4%BA%BA%E7%9C%9F%E4%B8%8D%E6%80%AA%E5%88%AB%E4%BA%BA&Refer=top) `637.8K 🔥`
 
-数据更新于 2021-07-05 12:55:39
+数据更新于 2021-07-05 13:01:51
 
 <!-- END -->
 
