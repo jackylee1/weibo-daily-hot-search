@@ -52,12 +52,12 @@
 1. [滴滴发票](https://s.weibo.com/weibo?q=%E6%BB%B4%E6%BB%B4%E5%8F%91%E7%A5%A8&Refer=top) `1.2M 🔥`
 1. [妈妈安慰女儿不要身材焦虑](https://s.weibo.com/weibo?q=%23%E5%A6%88%E5%A6%88%E5%AE%89%E6%85%B0%E5%A5%B3%E5%84%BF%E4%B8%8D%E8%A6%81%E8%BA%AB%E6%9D%90%E7%84%A6%E8%99%91%23&Refer=top) `1.1M 🔥`
 1. [云南景东现2.8公斤巨型野生牛肝菌](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E6%99%AF%E4%B8%9C%E7%8E%B02.8%E5%85%AC%E6%96%A4%E5%B7%A8%E5%9E%8B%E9%87%8E%E7%94%9F%E7%89%9B%E8%82%9D%E8%8F%8C%23&Refer=top) `1.1M 🔥`
+1. [生8孩被征收社会抚养费266万](https://s.weibo.com/weibo?q=%23%E7%94%9F8%E5%AD%A9%E8%A2%AB%E5%BE%81%E6%94%B6%E7%A4%BE%E4%BC%9A%E6%8A%9A%E5%85%BB%E8%B4%B9266%E4%B8%87%23&Refer=top) `1.1M 🔥`
 1. [腾讯平均7天投资一家游戏公司](https://s.weibo.com/weibo?q=%23%E8%85%BE%E8%AE%AF%E5%B9%B3%E5%9D%877%E5%A4%A9%E6%8A%95%E8%B5%84%E4%B8%80%E5%AE%B6%E6%B8%B8%E6%88%8F%E5%85%AC%E5%8F%B8%23&Refer=top) `1.1M 🔥`
 1. [台湾现多起接种莫德纳疫苗后猝死事件](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E6%B9%BE%E7%8E%B0%E5%A4%9A%E8%B5%B7%E6%8E%A5%E7%A7%8D%E8%8E%AB%E5%BE%B7%E7%BA%B3%E7%96%AB%E8%8B%97%E5%90%8E%E7%8C%9D%E6%AD%BB%E4%BA%8B%E4%BB%B6%23&Refer=top) `1.0M 🔥`
 1. [追光者开机](https://s.weibo.com/weibo?q=%23%E8%BF%BD%E5%85%89%E8%80%85%E5%BC%80%E6%9C%BA%23&Refer=top) `1.0M 🔥`
-1. [重庆发现吃虫植物](https://s.weibo.com/weibo?q=%23%E9%87%8D%E5%BA%86%E5%8F%91%E7%8E%B0%E5%90%83%E8%99%AB%E6%A4%8D%E7%89%A9%23&Refer=top) `1.0M 🔥`
 
-数据更新于 2021-07-05 22:05:45
+数据更新于 2021-07-05 22:20:47
 
 <!-- END -->
 
