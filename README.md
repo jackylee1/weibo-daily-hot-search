@@ -45,19 +45,19 @@
 1. [王一博干杯舞台](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E4%B8%80%E5%8D%9A%E5%B9%B2%E6%9D%AF%E8%88%9E%E5%8F%B0%23&Refer=top) `728.0K 🔥`
 1. [衡水高一生在手上写满知识点](https://s.weibo.com/weibo?q=%23%E8%A1%A1%E6%B0%B4%E9%AB%98%E4%B8%80%E7%94%9F%E5%9C%A8%E6%89%8B%E4%B8%8A%E5%86%99%E6%BB%A1%E7%9F%A5%E8%AF%86%E7%82%B9%23&Refer=top) `721.6K 🔥`
 1. [王俊凯 我不让奥特曼拯救你们了](https://s.weibo.com/weibo?q=%E7%8E%8B%E4%BF%8A%E5%87%AF%20%E6%88%91%E4%B8%8D%E8%AE%A9%E5%A5%A5%E7%89%B9%E6%9B%BC%E6%8B%AF%E6%95%91%E4%BD%A0%E4%BB%AC%E4%BA%86&Refer=top) `718.5K 🔥`
+1. [毛主席给她题词好好学习天天向上](https://s.weibo.com/weibo?q=%23%E6%AF%9B%E4%B8%BB%E5%B8%AD%E7%BB%99%E5%A5%B9%E9%A2%98%E8%AF%8D%E5%A5%BD%E5%A5%BD%E5%AD%A6%E4%B9%A0%E5%A4%A9%E5%A4%A9%E5%90%91%E4%B8%8A%23&Refer=top) `710.1K 🔥`
 1. [30%美国人拒绝接种新冠疫苗](https://s.weibo.com/weibo?q=%2330%25%E7%BE%8E%E5%9B%BD%E4%BA%BA%E6%8B%92%E7%BB%9D%E6%8E%A5%E7%A7%8D%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%23&Refer=top) `706.6K 🔥`
 1. [电竞解说把许嵩认成faker](https://s.weibo.com/weibo?q=%23%E7%94%B5%E7%AB%9E%E8%A7%A3%E8%AF%B4%E6%8A%8A%E8%AE%B8%E5%B5%A9%E8%AE%A4%E6%88%90faker%23&Refer=top) `694.9K 🔥`
 1. [中餐厅5官宣](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E9%A4%90%E5%8E%855%E5%AE%98%E5%AE%A3%23&Refer=top) `685.9K 🔥`
 1. [陈妍希祝陈晓天天都有懒觉睡](https://s.weibo.com/weibo?q=%23%E9%99%88%E5%A6%8D%E5%B8%8C%E7%A5%9D%E9%99%88%E6%99%93%E5%A4%A9%E5%A4%A9%E9%83%BD%E6%9C%89%E6%87%92%E8%A7%89%E7%9D%A1%23&Refer=top) `685.6K 🔥`
+1. [拜登称打疫苗是最爱国的行为](https://s.weibo.com/weibo?q=%23%E6%8B%9C%E7%99%BB%E7%A7%B0%E6%89%93%E7%96%AB%E8%8B%97%E6%98%AF%E6%9C%80%E7%88%B1%E5%9B%BD%E7%9A%84%E8%A1%8C%E4%B8%BA%23&Refer=top) `684.6K 🔥`
 1. [梦华录杀青](https://s.weibo.com/weibo?q=%23%E6%A2%A6%E5%8D%8E%E5%BD%95%E6%9D%80%E9%9D%92%23&Refer=top) `684.4K 🔥`
 1. [阶段性减肥](https://s.weibo.com/weibo?q=%23%E9%98%B6%E6%AE%B5%E6%80%A7%E5%87%8F%E8%82%A5%23&Refer=top) `673.4K 🔥`
 1. [贺先生的恋恋不忘定档](https://s.weibo.com/weibo?q=%23%E8%B4%BA%E5%85%88%E7%94%9F%E7%9A%84%E6%81%8B%E6%81%8B%E4%B8%8D%E5%BF%98%E5%AE%9A%E6%A1%A3%23&Refer=top) `667.6K 🔥`
 1. [77岁爷爷将瘫痪老伴绑在身上锻炼](https://s.weibo.com/weibo?q=%2377%E5%B2%81%E7%88%B7%E7%88%B7%E5%B0%86%E7%98%AB%E7%97%AA%E8%80%81%E4%BC%B4%E7%BB%91%E5%9C%A8%E8%BA%AB%E4%B8%8A%E9%94%BB%E7%82%BC%23&Refer=top) `659.3K 🔥`
-1. [毛主席给她题词好好学习天天向上](https://s.weibo.com/weibo?q=%23%E6%AF%9B%E4%B8%BB%E5%B8%AD%E7%BB%99%E5%A5%B9%E9%A2%98%E8%AF%8D%E5%A5%BD%E5%A5%BD%E5%AD%A6%E4%B9%A0%E5%A4%A9%E5%A4%A9%E5%90%91%E4%B8%8A%23&Refer=top) `658.4K 🔥`
 1. [闯红灯458次被记2748分](https://s.weibo.com/weibo?q=%23%E9%97%AF%E7%BA%A2%E7%81%AF458%E6%AC%A1%E8%A2%AB%E8%AE%B02748%E5%88%86%23&Refer=top) `655.8K 🔥`
-1. [王子 谣言止于智者](https://s.weibo.com/weibo?q=%E7%8E%8B%E5%AD%90%20%E8%B0%A3%E8%A8%80%E6%AD%A2%E4%BA%8E%E6%99%BA%E8%80%85&Refer=top) `640.3K 🔥`
 
-数据更新于 2021-07-05 13:01:51
+数据更新于 2021-07-05 13:05:24
 
 <!-- END -->
 
