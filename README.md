@@ -21,6 +21,7 @@
 1. [逃了但没完全逃](https://s.weibo.com/weibo?q=%23%E9%80%83%E4%BA%86%E4%BD%86%E6%B2%A1%E5%AE%8C%E5%85%A8%E9%80%83%23&Refer=top) `845.4K 🔥`
 1. [印度农村地区女方嫁妆约为男方彩礼7倍](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E5%86%9C%E6%9D%91%E5%9C%B0%E5%8C%BA%E5%A5%B3%E6%96%B9%E5%AB%81%E5%A6%86%E7%BA%A6%E4%B8%BA%E7%94%B7%E6%96%B9%E5%BD%A9%E7%A4%BC7%E5%80%8D%23&Refer=top) `775.7K 🔥`
 1. [维他奶一日蒸发约10亿港元](https://s.weibo.com/weibo?q=%23%E7%BB%B4%E4%BB%96%E5%A5%B6%E4%B8%80%E6%97%A5%E8%92%B8%E5%8F%91%E7%BA%A610%E4%BA%BF%E6%B8%AF%E5%85%83%23&Refer=top) `738.6K 🔥`
+1. [消防员训练失误水枪360度扫射队友](https://s.weibo.com/weibo?q=%23%E6%B6%88%E9%98%B2%E5%91%98%E8%AE%AD%E7%BB%83%E5%A4%B1%E8%AF%AF%E6%B0%B4%E6%9E%AA360%E5%BA%A6%E6%89%AB%E5%B0%84%E9%98%9F%E5%8F%8B%23&Refer=top) `654.8K 🔥`
 1. [中国人对一道菜的最高评价](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E4%BA%BA%E5%AF%B9%E4%B8%80%E9%81%93%E8%8F%9C%E7%9A%84%E6%9C%80%E9%AB%98%E8%AF%84%E4%BB%B7%23&Refer=top) `651.8K 🔥`
 1. [航天员尿液提纯后可变饮用水](https://s.weibo.com/weibo?q=%23%E8%88%AA%E5%A4%A9%E5%91%98%E5%B0%BF%E6%B6%B2%E6%8F%90%E7%BA%AF%E5%90%8E%E5%8F%AF%E5%8F%98%E9%A5%AE%E7%94%A8%E6%B0%B4%23&Refer=top) `633.2K 🔥`
 1. [这盘子是清代的](https://s.weibo.com/weibo?q=%23%E8%BF%99%E7%9B%98%E5%AD%90%E6%98%AF%E6%B8%85%E4%BB%A3%E7%9A%84%23&Refer=top) `631.8K 🔥`
@@ -35,6 +36,7 @@
 1. [你微笑时很美评分合理吗](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E5%BE%AE%E7%AC%91%E6%97%B6%E5%BE%88%E7%BE%8E%E8%AF%84%E5%88%86%E5%90%88%E7%90%86%E5%90%97%23&Refer=top) `610.5K 🔥`
 1. [超市导购冒雨给顾客电瓶车盖薄膜](https://s.weibo.com/weibo?q=%23%E8%B6%85%E5%B8%82%E5%AF%BC%E8%B4%AD%E5%86%92%E9%9B%A8%E7%BB%99%E9%A1%BE%E5%AE%A2%E7%94%B5%E7%93%B6%E8%BD%A6%E7%9B%96%E8%96%84%E8%86%9C%23&Refer=top) `608.9K 🔥`
 1. [云南大象会不会吃到毒蘑菇](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E5%A4%A7%E8%B1%A1%E4%BC%9A%E4%B8%8D%E4%BC%9A%E5%90%83%E5%88%B0%E6%AF%92%E8%98%91%E8%8F%87%23&Refer=top) `606.6K 🔥`
+1. [四川南部县通报4人自家化粪池死亡](https://s.weibo.com/weibo?q=%23%E5%9B%9B%E5%B7%9D%E5%8D%97%E9%83%A8%E5%8E%BF%E9%80%9A%E6%8A%A54%E4%BA%BA%E8%87%AA%E5%AE%B6%E5%8C%96%E7%B2%AA%E6%B1%A0%E6%AD%BB%E4%BA%A1%23&Refer=top) `600.0K 🔥`
 1. [第一次租房能有多难](https://s.weibo.com/weibo?q=%23%E7%AC%AC%E4%B8%80%E6%AC%A1%E7%A7%9F%E6%88%BF%E8%83%BD%E6%9C%89%E5%A4%9A%E9%9A%BE%23&Refer=top) `587.3K 🔥`
 1. [居民隔空吼退5楼爬窗男童](https://s.weibo.com/weibo?q=%23%E5%B1%85%E6%B0%91%E9%9A%94%E7%A9%BA%E5%90%BC%E9%80%805%E6%A5%BC%E7%88%AC%E7%AA%97%E7%94%B7%E7%AB%A5%23&Refer=top) `583.5K 🔥`
 1. [杨幂 魏大勋](https://s.weibo.com/weibo?q=%E6%9D%A8%E5%B9%82%20%E9%AD%8F%E5%A4%A7%E5%8B%8B&Refer=top) `569.9K 🔥`
@@ -43,21 +45,19 @@
 1. [乃万道歉](https://s.weibo.com/weibo?q=%23%E4%B9%83%E4%B8%87%E9%81%93%E6%AD%89%23&Refer=top) `535.7K 🔥`
 1. [横店群演注册人数超10万](https://s.weibo.com/weibo?q=%23%E6%A8%AA%E5%BA%97%E7%BE%A4%E6%BC%94%E6%B3%A8%E5%86%8C%E4%BA%BA%E6%95%B0%E8%B6%8510%E4%B8%87%23&Refer=top) `532.4K 🔥`
 1. [薛之谦 下半年我把我卖给工作了](https://s.weibo.com/weibo?q=%E8%96%9B%E4%B9%8B%E8%B0%A6%20%E4%B8%8B%E5%8D%8A%E5%B9%B4%E6%88%91%E6%8A%8A%E6%88%91%E5%8D%96%E7%BB%99%E5%B7%A5%E4%BD%9C%E4%BA%86&Refer=top) `526.4K 🔥`
-1. [四川南部县通报4人自家化粪池死亡](https://s.weibo.com/weibo?q=%23%E5%9B%9B%E5%B7%9D%E5%8D%97%E9%83%A8%E5%8E%BF%E9%80%9A%E6%8A%A54%E4%BA%BA%E8%87%AA%E5%AE%B6%E5%8C%96%E7%B2%AA%E6%B1%A0%E6%AD%BB%E4%BA%A1%23&Refer=top) `497.1K 🔥`
-1. [消防员训练失误水枪360度扫射队友](https://s.weibo.com/weibo?q=%23%E6%B6%88%E9%98%B2%E5%91%98%E8%AE%AD%E7%BB%83%E5%A4%B1%E8%AF%AF%E6%B0%B4%E6%9E%AA360%E5%BA%A6%E6%89%AB%E5%B0%84%E9%98%9F%E5%8F%8B%23&Refer=top) `495.9K 🔥`
 1. [现代人想早睡有多难](https://s.weibo.com/weibo?q=%23%E7%8E%B0%E4%BB%A3%E4%BA%BA%E6%83%B3%E6%97%A9%E7%9D%A1%E6%9C%89%E5%A4%9A%E9%9A%BE%23&Refer=top) `482.1K 🔥`
 1. [毛晓彤重庆旅游plog](https://s.weibo.com/weibo?q=%23%E6%AF%9B%E6%99%93%E5%BD%A4%E9%87%8D%E5%BA%86%E6%97%85%E6%B8%B8plog%23&Refer=top) `451.5K 🔥`
 1. [天津诡异的云](https://s.weibo.com/weibo?q=%23%E5%A4%A9%E6%B4%A5%E8%AF%A1%E5%BC%82%E7%9A%84%E4%BA%91%23&Refer=top) `447.2K 🔥`
+1. [小米再发1.2亿股重奖技术人才](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E7%B1%B3%E5%86%8D%E5%8F%911.2%E4%BA%BF%E8%82%A1%E9%87%8D%E5%A5%96%E6%8A%80%E6%9C%AF%E4%BA%BA%E6%89%8D%23&Refer=top) `436.2K 🔥`
 1. [中国移动成立芯片公司](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E7%A7%BB%E5%8A%A8%E6%88%90%E7%AB%8B%E8%8A%AF%E7%89%87%E5%85%AC%E5%8F%B8%23&Refer=top) `422.9K 🔥`
 1. [客车司机身体绑256枚英特尔CPU走私](https://s.weibo.com/weibo?q=%23%E5%AE%A2%E8%BD%A6%E5%8F%B8%E6%9C%BA%E8%BA%AB%E4%BD%93%E7%BB%91256%E6%9E%9A%E8%8B%B1%E7%89%B9%E5%B0%94CPU%E8%B5%B0%E7%A7%81%23&Refer=top) `422.7K 🔥`
+1. [刚出生的小羊驼长啥样](https://s.weibo.com/weibo?q=%23%E5%88%9A%E5%87%BA%E7%94%9F%E7%9A%84%E5%B0%8F%E7%BE%8A%E9%A9%BC%E9%95%BF%E5%95%A5%E6%A0%B7%23&Refer=top) `407.3K 🔥`
 1. [千古玦尘](https://s.weibo.com/weibo?q=%E5%8D%83%E5%8F%A4%E7%8E%A6%E5%B0%98&Refer=top) `382.4K 🔥`
 1. [云南新增3例本土确诊](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E6%96%B0%E5%A2%9E3%E4%BE%8B%E6%9C%AC%E5%9C%9F%E7%A1%AE%E8%AF%8A%23&Refer=top) `375.2K 🔥`
 1. [如何评价中国女排奥运名单](https://s.weibo.com/weibo?q=%23%E5%A6%82%E4%BD%95%E8%AF%84%E4%BB%B7%E4%B8%AD%E5%9B%BD%E5%A5%B3%E6%8E%92%E5%A5%A5%E8%BF%90%E5%90%8D%E5%8D%95%23&Refer=top) `371.9K 🔥`
 1. [警方通报张陶打人事件](https://s.weibo.com/weibo?q=%23%E8%AD%A6%E6%96%B9%E9%80%9A%E6%8A%A5%E5%BC%A0%E9%99%B6%E6%89%93%E4%BA%BA%E4%BA%8B%E4%BB%B6%23&Refer=top) `370.8K 🔥`
-1. [外交部回应美方获取大量微软用户数据](https://s.weibo.com/weibo?q=%23%E5%A4%96%E4%BA%A4%E9%83%A8%E5%9B%9E%E5%BA%94%E7%BE%8E%E6%96%B9%E8%8E%B7%E5%8F%96%E5%A4%A7%E9%87%8F%E5%BE%AE%E8%BD%AF%E7%94%A8%E6%88%B7%E6%95%B0%E6%8D%AE%23&Refer=top) `368.7K 🔥`
-1. [意识到人脉很重要的瞬间](https://s.weibo.com/weibo?q=%23%E6%84%8F%E8%AF%86%E5%88%B0%E4%BA%BA%E8%84%89%E5%BE%88%E9%87%8D%E8%A6%81%E7%9A%84%E7%9E%AC%E9%97%B4%23&Refer=top) `367.3K 🔥`
 
-数据更新于 2021-07-06 10:38:00
+数据更新于 2021-07-06 10:48:50
 
 <!-- END -->
 
