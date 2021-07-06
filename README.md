@@ -38,10 +38,12 @@
 1. [印度火葬场拿新冠死者骨灰建公园](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A6%E7%81%AB%E8%91%AC%E5%9C%BA%E6%8B%BF%E6%96%B0%E5%86%A0%E6%AD%BB%E8%80%85%E9%AA%A8%E7%81%B0%E5%BB%BA%E5%85%AC%E5%9B%AD%23&Refer=top) `1.1M 🔥`
 1. [270斤小伙连喝8瓶饮料后进ICU](https://s.weibo.com/weibo?q=%23270%E6%96%A4%E5%B0%8F%E4%BC%99%E8%BF%9E%E5%96%9D8%E7%93%B6%E9%A5%AE%E6%96%99%E5%90%8E%E8%BF%9BICU%23&Refer=top) `1.1M 🔥`
 1. [周迅上班图氛围感](https://s.weibo.com/weibo?q=%23%E5%91%A8%E8%BF%85%E4%B8%8A%E7%8F%AD%E5%9B%BE%E6%B0%9B%E5%9B%B4%E6%84%9F%23&Refer=top) `1.1M 🔥`
+1. [银行存100万5年后剩1块钱](https://s.weibo.com/weibo?q=%23%E9%93%B6%E8%A1%8C%E5%AD%98100%E4%B8%875%E5%B9%B4%E5%90%8E%E5%89%A91%E5%9D%97%E9%92%B1%23&Refer=top) `1.1M 🔥`
 1. [美团外卖崩了](https://s.weibo.com/weibo?q=%E7%BE%8E%E5%9B%A2%E5%A4%96%E5%8D%96%E5%B4%A9%E4%BA%86&Refer=top) `1.1M 🔥`
 1. [孙悟空对女孩子有多温柔](https://s.weibo.com/weibo?q=%23%E5%AD%99%E6%82%9F%E7%A9%BA%E5%AF%B9%E5%A5%B3%E5%AD%A9%E5%AD%90%E6%9C%89%E5%A4%9A%E6%B8%A9%E6%9F%94%23&Refer=top) `1.1M 🔥`
 1. [毕业生用干净宿舍和鲜花感谢宿管阿姨](https://s.weibo.com/weibo?q=%23%E6%AF%95%E4%B8%9A%E7%94%9F%E7%94%A8%E5%B9%B2%E5%87%80%E5%AE%BF%E8%88%8D%E5%92%8C%E9%B2%9C%E8%8A%B1%E6%84%9F%E8%B0%A2%E5%AE%BF%E7%AE%A1%E9%98%BF%E5%A7%A8%23&Refer=top) `1.1M 🔥`
 1. [张哲瀚工作室告造谣者](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%93%B2%E7%80%9A%E5%B7%A5%E4%BD%9C%E5%AE%A4%E5%91%8A%E9%80%A0%E8%B0%A3%E8%80%85%23&Refer=top) `1.0M 🔥`
+1. [Switch新机型](https://s.weibo.com/weibo?q=%23Switch%E6%96%B0%E6%9C%BA%E5%9E%8B%23&Refer=top) `1.0M 🔥`
 1. [幼儿园的作息能有多安逸](https://s.weibo.com/weibo?q=%23%E5%B9%BC%E5%84%BF%E5%9B%AD%E7%9A%84%E4%BD%9C%E6%81%AF%E8%83%BD%E6%9C%89%E5%A4%9A%E5%AE%89%E9%80%B8%23&Refer=top) `1.0M 🔥`
 1. [云南大象会不会吃到毒蘑菇](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E5%A4%A7%E8%B1%A1%E4%BC%9A%E4%B8%8D%E4%BC%9A%E5%90%83%E5%88%B0%E6%AF%92%E8%98%91%E8%8F%87%23&Refer=top) `991.4K 🔥`
 1. [刘诗诗电梯氛围感](https://s.weibo.com/weibo?q=%23%E5%88%98%E8%AF%97%E8%AF%97%E7%94%B5%E6%A2%AF%E6%B0%9B%E5%9B%B4%E6%84%9F%23&Refer=top) `981.5K 🔥`
@@ -54,10 +56,8 @@
 1. [英国宣布7月19日基本取消新冠管控措施](https://s.weibo.com/weibo?q=%23%E8%8B%B1%E5%9B%BD%E5%AE%A3%E5%B8%837%E6%9C%8819%E6%97%A5%E5%9F%BA%E6%9C%AC%E5%8F%96%E6%B6%88%E6%96%B0%E5%86%A0%E7%AE%A1%E6%8E%A7%E6%8E%AA%E6%96%BD%23&Refer=top) `937.4K 🔥`
 1. [张艺兴说好想金钟仁](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%89%BA%E5%85%B4%E8%AF%B4%E5%A5%BD%E6%83%B3%E9%87%91%E9%92%9F%E4%BB%81%23&Refer=top) `856.5K 🔥`
 1. [台湾民众高楼外挂我要活命给我疫苗](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E6%B9%BE%E6%B0%91%E4%BC%97%E9%AB%98%E6%A5%BC%E5%A4%96%E6%8C%82%E6%88%91%E8%A6%81%E6%B4%BB%E5%91%BD%E7%BB%99%E6%88%91%E7%96%AB%E8%8B%97%23&Refer=top) `851.1K 🔥`
-1. [逃了但没完全逃](https://s.weibo.com/weibo?q=%23%E9%80%83%E4%BA%86%E4%BD%86%E6%B2%A1%E5%AE%8C%E5%85%A8%E9%80%83%23&Refer=top) `845.4K 🔥`
-1. [龚俊工作室起诉造谣者](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E5%B7%A5%E4%BD%9C%E5%AE%A4%E8%B5%B7%E8%AF%89%E9%80%A0%E8%B0%A3%E8%80%85%23&Refer=top) `830.8K 🔥`
 
-数据更新于 2021-07-06 21:43:46
+数据更新于 2021-07-06 21:50:05
 
 <!-- END -->
 
