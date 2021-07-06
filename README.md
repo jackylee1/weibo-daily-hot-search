@@ -17,8 +17,8 @@
 1. [中国游泳队公布奥运名单](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E6%B8%B8%E6%B3%B3%E9%98%9F%E5%85%AC%E5%B8%83%E5%A5%A5%E8%BF%90%E5%90%8D%E5%8D%95%23&Refer=top) `1.5M 🔥`
 1. [消防员训练失误水枪360度扫射队友](https://s.weibo.com/weibo?q=%23%E6%B6%88%E9%98%B2%E5%91%98%E8%AE%AD%E7%BB%83%E5%A4%B1%E8%AF%AF%E6%B0%B4%E6%9E%AA360%E5%BA%A6%E6%89%AB%E5%B0%84%E9%98%9F%E5%8F%8B%23&Refer=top) `1.4M 🔥`
 1. [山猪嚼细糠 离职进度](https://s.weibo.com/weibo?q=%E5%B1%B1%E7%8C%AA%E5%9A%BC%E7%BB%86%E7%B3%A0%20%E7%A6%BB%E8%81%8C%E8%BF%9B%E5%BA%A6&Refer=top) `1.4M 🔥`
+1. [深圳禁止APP不全面授权就不让用](https://s.weibo.com/weibo?q=%23%E6%B7%B1%E5%9C%B3%E7%A6%81%E6%AD%A2APP%E4%B8%8D%E5%85%A8%E9%9D%A2%E6%8E%88%E6%9D%83%E5%B0%B1%E4%B8%8D%E8%AE%A9%E7%94%A8%23&Refer=top) `1.3M 🔥`
 1. [还好西瓜绑了安全带](https://s.weibo.com/weibo?q=%23%E8%BF%98%E5%A5%BD%E8%A5%BF%E7%93%9C%E7%BB%91%E4%BA%86%E5%AE%89%E5%85%A8%E5%B8%A6%23&Refer=top) `1.2M 🔥`
-1. [深圳禁止APP不全面授权就不让用](https://s.weibo.com/weibo?q=%23%E6%B7%B1%E5%9C%B3%E7%A6%81%E6%AD%A2APP%E4%B8%8D%E5%85%A8%E9%9D%A2%E6%8E%88%E6%9D%83%E5%B0%B1%E4%B8%8D%E8%AE%A9%E7%94%A8%23&Refer=top) `1.1M 🔥`
 1. [美团外卖崩了](https://s.weibo.com/weibo?q=%E7%BE%8E%E5%9B%A2%E5%A4%96%E5%8D%96%E5%B4%A9%E4%BA%86&Refer=top) `1.1M 🔥`
 1. [周迅上班图氛围感](https://s.weibo.com/weibo?q=%23%E5%91%A8%E8%BF%85%E4%B8%8A%E7%8F%AD%E5%9B%BE%E6%B0%9B%E5%9B%B4%E6%84%9F%23&Refer=top) `1.1M 🔥`
 1. [毕业生用干净宿舍和鲜花感谢宿管阿姨](https://s.weibo.com/weibo?q=%23%E6%AF%95%E4%B8%9A%E7%94%9F%E7%94%A8%E5%B9%B2%E5%87%80%E5%AE%BF%E8%88%8D%E5%92%8C%E9%B2%9C%E8%8A%B1%E6%84%9F%E8%B0%A2%E5%AE%BF%E7%AE%A1%E9%98%BF%E5%A7%A8%23&Refer=top) `1.1M 🔥`
@@ -57,7 +57,7 @@
 1. [杨幂 魏大勋](https://s.weibo.com/weibo?q=%E6%9D%A8%E5%B9%82%20%E9%AD%8F%E5%A4%A7%E5%8B%8B&Refer=top) `595.6K 🔥`
 1. [居民隔空吼退5楼爬窗男童](https://s.weibo.com/weibo?q=%23%E5%B1%85%E6%B0%91%E9%9A%94%E7%A9%BA%E5%90%BC%E9%80%805%E6%A5%BC%E7%88%AC%E7%AA%97%E7%94%B7%E7%AB%A5%23&Refer=top) `583.5K 🔥`
 
-数据更新于 2021-07-06 12:57:51
+数据更新于 2021-07-06 13:01:51
 
 <!-- END -->
 
