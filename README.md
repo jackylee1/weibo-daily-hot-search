@@ -50,14 +50,14 @@
 1. [林俊杰说周杰伦是哥中之哥](https://s.weibo.com/weibo?q=%23%E6%9E%97%E4%BF%8A%E6%9D%B0%E8%AF%B4%E5%91%A8%E6%9D%B0%E4%BC%A6%E6%98%AF%E5%93%A5%E4%B8%AD%E4%B9%8B%E5%93%A5%23&Refer=top) `620.1K 🔥`
 1. [张陶被刑拘](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E9%99%B6%E8%A2%AB%E5%88%91%E6%8B%98%23&Refer=top) `618.0K 🔥`
 1. [迪丽热巴库存港风花絮](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E5%BA%93%E5%AD%98%E6%B8%AF%E9%A3%8E%E8%8A%B1%E7%B5%AE%23&Refer=top) `616.5K 🔥`
+1. [美拒签中国500余名理工科研究生](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E6%8B%92%E7%AD%BE%E4%B8%AD%E5%9B%BD500%E4%BD%99%E5%90%8D%E7%90%86%E5%B7%A5%E7%A7%91%E7%A0%94%E7%A9%B6%E7%94%9F%23&Refer=top) `616.2K 🔥`
 1. [你微笑时很美评分合理吗](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E5%BE%AE%E7%AC%91%E6%97%B6%E5%BE%88%E7%BE%8E%E8%AF%84%E5%88%86%E5%90%88%E7%90%86%E5%90%97%23&Refer=top) `610.5K 🔥`
 1. [超市导购冒雨给顾客电瓶车盖薄膜](https://s.weibo.com/weibo?q=%23%E8%B6%85%E5%B8%82%E5%AF%BC%E8%B4%AD%E5%86%92%E9%9B%A8%E7%BB%99%E9%A1%BE%E5%AE%A2%E7%94%B5%E7%93%B6%E8%BD%A6%E7%9B%96%E8%96%84%E8%86%9C%23&Refer=top) `608.9K 🔥`
 1. [刚出生的小羊驼长啥样](https://s.weibo.com/weibo?q=%23%E5%88%9A%E5%87%BA%E7%94%9F%E7%9A%84%E5%B0%8F%E7%BE%8A%E9%A9%BC%E9%95%BF%E5%95%A5%E6%A0%B7%23&Refer=top) `599.3K 🔥`
 1. [关晓彤对自己蜡像的锁骨很满意](https://s.weibo.com/weibo?q=%23%E5%85%B3%E6%99%93%E5%BD%A4%E5%AF%B9%E8%87%AA%E5%B7%B1%E8%9C%A1%E5%83%8F%E7%9A%84%E9%94%81%E9%AA%A8%E5%BE%88%E6%BB%A1%E6%84%8F%23&Refer=top) `596.7K 🔥`
 1. [杨幂 魏大勋](https://s.weibo.com/weibo?q=%E6%9D%A8%E5%B9%82%20%E9%AD%8F%E5%A4%A7%E5%8B%8B&Refer=top) `595.6K 🔥`
-1. [居民隔空吼退5楼爬窗男童](https://s.weibo.com/weibo?q=%23%E5%B1%85%E6%B0%91%E9%9A%94%E7%A9%BA%E5%90%BC%E9%80%805%E6%A5%BC%E7%88%AC%E7%AA%97%E7%94%B7%E7%AB%A5%23&Refer=top) `583.5K 🔥`
 
-数据更新于 2021-07-06 13:01:51
+数据更新于 2021-07-06 13:09:32
 
 <!-- END -->
 
