@@ -12,7 +12,7 @@
 1. [Angelababy带小海绵游泳](https://s.weibo.com/weibo?q=%23Angelababy%E5%B8%A6%E5%B0%8F%E6%B5%B7%E7%BB%B5%E6%B8%B8%E6%B3%B3%23&Refer=top) `4.2M 🔥`
 1. [海地第一夫人还活着](https://s.weibo.com/weibo?q=%23%E6%B5%B7%E5%9C%B0%E7%AC%AC%E4%B8%80%E5%A4%AB%E4%BA%BA%E8%BF%98%E6%B4%BB%E7%9D%80%23&Refer=top) `3.7M 🔥`
 1. [海地总统身中12枪](https://s.weibo.com/weibo?q=%23%E6%B5%B7%E5%9C%B0%E6%80%BB%E7%BB%9F%E8%BA%AB%E4%B8%AD12%E6%9E%AA%23&Refer=top) `3.5M 🔥`
-1. [插上吸管就能喝的水蜜桃一个能卖128元](https://s.weibo.com/weibo?q=%23%E6%8F%92%E4%B8%8A%E5%90%B8%E7%AE%A1%E5%B0%B1%E8%83%BD%E5%96%9D%E7%9A%84%E6%B0%B4%E8%9C%9C%E6%A1%83%E4%B8%80%E4%B8%AA%E8%83%BD%E5%8D%96128%E5%85%83%23&Refer=top) `3.2M 🔥`
+1. [插上吸管就能喝的水蜜桃一个能卖128元](https://s.weibo.com/weibo?q=%23%E6%8F%92%E4%B8%8A%E5%90%B8%E7%AE%A1%E5%B0%B1%E8%83%BD%E5%96%9D%E7%9A%84%E6%B0%B4%E8%9C%9C%E6%A1%83%E4%B8%80%E4%B8%AA%E8%83%BD%E5%8D%96128%E5%85%83%23&Refer=top) `3.3M 🔥`
 1. [网红蛋糕吃完牙变蓝](https://s.weibo.com/weibo?q=%23%E7%BD%91%E7%BA%A2%E8%9B%8B%E7%B3%95%E5%90%83%E5%AE%8C%E7%89%99%E5%8F%98%E8%93%9D%23&Refer=top) `2.8M 🔥`
 1. [展羽 家暴](https://s.weibo.com/weibo?q=%E5%B1%95%E7%BE%BD%20%E5%AE%B6%E6%9A%B4&Refer=top) `2.5M 🔥`
 1. [金希澈MOMO分手](https://s.weibo.com/weibo?q=%23%E9%87%91%E5%B8%8C%E6%BE%88MOMO%E5%88%86%E6%89%8B%23&Refer=top) `2.4M 🔥`
@@ -28,6 +28,8 @@
 1. [邱天 脸受伤](https://s.weibo.com/weibo?q=%E9%82%B1%E5%A4%A9%20%E8%84%B8%E5%8F%97%E4%BC%A4&Refer=top) `1.7M 🔥`
 1. [还珠格格当年的开机合影](https://s.weibo.com/weibo?q=%23%E8%BF%98%E7%8F%A0%E6%A0%BC%E6%A0%BC%E5%BD%93%E5%B9%B4%E7%9A%84%E5%BC%80%E6%9C%BA%E5%90%88%E5%BD%B1%23&Refer=top) `1.7M 🔥`
 1. [教育部称高考录取不存在内部指标](https://s.weibo.com/weibo?q=%23%E6%95%99%E8%82%B2%E9%83%A8%E7%A7%B0%E9%AB%98%E8%80%83%E5%BD%95%E5%8F%96%E4%B8%8D%E5%AD%98%E5%9C%A8%E5%86%85%E9%83%A8%E6%8C%87%E6%A0%87%23&Refer=top) `1.6M 🔥`
+1. [4年7次起诉离婚女子提起第8次诉讼](https://s.weibo.com/weibo?q=%234%E5%B9%B47%E6%AC%A1%E8%B5%B7%E8%AF%89%E7%A6%BB%E5%A9%9A%E5%A5%B3%E5%AD%90%E6%8F%90%E8%B5%B7%E7%AC%AC8%E6%AC%A1%E8%AF%89%E8%AE%BC%23&Refer=top) `1.6M 🔥`
+1. [吴亦凡方律师声明](https://s.weibo.com/weibo?q=%23%E5%90%B4%E4%BA%A6%E5%87%A1%E6%96%B9%E5%BE%8B%E5%B8%88%E5%A3%B0%E6%98%8E%23&Refer=top) `1.6M 🔥`
 1. [乖乖虎和霹雳虎](https://s.weibo.com/weibo?q=%23%E4%B9%96%E4%B9%96%E8%99%8E%E5%92%8C%E9%9C%B9%E9%9B%B3%E8%99%8E%23&Refer=top) `1.6M 🔥`
 1. [滴滴官网下架滴滴出行App](https://s.weibo.com/weibo?q=%23%E6%BB%B4%E6%BB%B4%E5%AE%98%E7%BD%91%E4%B8%8B%E6%9E%B6%E6%BB%B4%E6%BB%B4%E5%87%BA%E8%A1%8CApp%23&Refer=top) `1.6M 🔥`
 1. [全智贤女团练习生旧照](https://s.weibo.com/weibo?q=%23%E5%85%A8%E6%99%BA%E8%B4%A4%E5%A5%B3%E5%9B%A2%E7%BB%83%E4%B9%A0%E7%94%9F%E6%97%A7%E7%85%A7%23&Refer=top) `1.5M 🔥`
@@ -54,10 +56,8 @@
 1. [原来狗仗人势是真的](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E7%8B%97%E4%BB%97%E4%BA%BA%E5%8A%BF%E6%98%AF%E7%9C%9F%E7%9A%84%23&Refer=top) `915.6K 🔥`
 1. [我国渔民这些年捞了不少好东西](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD%E6%B8%94%E6%B0%91%E8%BF%99%E4%BA%9B%E5%B9%B4%E6%8D%9E%E4%BA%86%E4%B8%8D%E5%B0%91%E5%A5%BD%E4%B8%9C%E8%A5%BF%23&Refer=top) `912.3K 🔥`
 1. [员工长期加班后猝死公司担责二成](https://s.weibo.com/weibo?q=%23%E5%91%98%E5%B7%A5%E9%95%BF%E6%9C%9F%E5%8A%A0%E7%8F%AD%E5%90%8E%E7%8C%9D%E6%AD%BB%E5%85%AC%E5%8F%B8%E6%8B%85%E8%B4%A3%E4%BA%8C%E6%88%90%23&Refer=top) `909.6K 🔥`
-1. [雪糕起步价涨至2元](https://s.weibo.com/weibo?q=%23%E9%9B%AA%E7%B3%95%E8%B5%B7%E6%AD%A5%E4%BB%B7%E6%B6%A8%E8%87%B32%E5%85%83%23&Refer=top) `881.4K 🔥`
-1. [换发型后痛失女友](https://s.weibo.com/weibo?q=%23%E6%8D%A2%E5%8F%91%E5%9E%8B%E5%90%8E%E7%97%9B%E5%A4%B1%E5%A5%B3%E5%8F%8B%23&Refer=top) `870.4K 🔥`
 
-数据更新于 2021-07-08 21:13:40
+数据更新于 2021-07-08 21:36:21
 
 <!-- END -->
 
