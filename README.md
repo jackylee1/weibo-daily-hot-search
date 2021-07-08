@@ -11,6 +11,7 @@
 1. [Angelababy带小海绵游泳](https://s.weibo.com/weibo?q=%23Angelababy%E5%B8%A6%E5%B0%8F%E6%B5%B7%E7%BB%B5%E6%B8%B8%E6%B3%B3%23&Refer=top) `4.2M 🔥`
 1. [海地第一夫人还活着](https://s.weibo.com/weibo?q=%23%E6%B5%B7%E5%9C%B0%E7%AC%AC%E4%B8%80%E5%A4%AB%E4%BA%BA%E8%BF%98%E6%B4%BB%E7%9D%80%23&Refer=top) `3.7M 🔥`
 1. [海地总统身中12枪](https://s.weibo.com/weibo?q=%23%E6%B5%B7%E5%9C%B0%E6%80%BB%E7%BB%9F%E8%BA%AB%E4%B8%AD12%E6%9E%AA%23&Refer=top) `3.5M 🔥`
+1. [杜海涛 有问题就要重视且彻底解决](https://s.weibo.com/weibo?q=%E6%9D%9C%E6%B5%B7%E6%B6%9B%20%E6%9C%89%E9%97%AE%E9%A2%98%E5%B0%B1%E8%A6%81%E9%87%8D%E8%A7%86%E4%B8%94%E5%BD%BB%E5%BA%95%E8%A7%A3%E5%86%B3&Refer=top) `2.9M 🔥`
 1. [网红蛋糕吃完牙变蓝](https://s.weibo.com/weibo?q=%23%E7%BD%91%E7%BA%A2%E8%9B%8B%E7%B3%95%E5%90%83%E5%AE%8C%E7%89%99%E5%8F%98%E8%93%9D%23&Refer=top) `2.8M 🔥`
 1. [展羽 家暴](https://s.weibo.com/weibo?q=%E5%B1%95%E7%BE%BD%20%E5%AE%B6%E6%9A%B4&Refer=top) `2.5M 🔥`
 1. [金希澈MOMO分手](https://s.weibo.com/weibo?q=%23%E9%87%91%E5%B8%8C%E6%BE%88MOMO%E5%88%86%E6%89%8B%23&Refer=top) `2.4M 🔥`
@@ -39,7 +40,6 @@
 1. [马化腾称王者荣耀将举办AI电竞赛](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E5%8C%96%E8%85%BE%E7%A7%B0%E7%8E%8B%E8%80%85%E8%8D%A3%E8%80%80%E5%B0%86%E4%B8%BE%E5%8A%9EAI%E7%94%B5%E7%AB%9E%E8%B5%9B%23&Refer=top) `1.1M 🔥`
 1. [搜救犬发现幸存者时的表情](https://s.weibo.com/weibo?q=%23%E6%90%9C%E6%95%91%E7%8A%AC%E5%8F%91%E7%8E%B0%E5%B9%B8%E5%AD%98%E8%80%85%E6%97%B6%E7%9A%84%E8%A1%A8%E6%83%85%23&Refer=top) `1.0M 🔥`
 1. [母亲晕倒2岁女童冷静求助警察](https://s.weibo.com/weibo?q=%23%E6%AF%8D%E4%BA%B2%E6%99%95%E5%80%922%E5%B2%81%E5%A5%B3%E7%AB%A5%E5%86%B7%E9%9D%99%E6%B1%82%E5%8A%A9%E8%AD%A6%E5%AF%9F%23&Refer=top) `1.0M 🔥`
-1. [杜海涛 有问题就要重视且彻底解决](https://s.weibo.com/weibo?q=%E6%9D%9C%E6%B5%B7%E6%B6%9B%20%E6%9C%89%E9%97%AE%E9%A2%98%E5%B0%B1%E8%A6%81%E9%87%8D%E8%A7%86%E4%B8%94%E5%BD%BB%E5%BA%95%E8%A7%A3%E5%86%B3&Refer=top) `1.0M 🔥`
 1. [厦门警方通报一快捷酒店被曝藏摄像头](https://s.weibo.com/weibo?q=%23%E5%8E%A6%E9%97%A8%E8%AD%A6%E6%96%B9%E9%80%9A%E6%8A%A5%E4%B8%80%E5%BF%AB%E6%8D%B7%E9%85%92%E5%BA%97%E8%A2%AB%E6%9B%9D%E8%97%8F%E6%91%84%E5%83%8F%E5%A4%B4%23&Refer=top) `997.0K 🔥`
 1. [北京河南试点取消教师寒暑假消息不实](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E6%B2%B3%E5%8D%97%E8%AF%95%E7%82%B9%E5%8F%96%E6%B6%88%E6%95%99%E5%B8%88%E5%AF%92%E6%9A%91%E5%81%87%E6%B6%88%E6%81%AF%E4%B8%8D%E5%AE%9E%23&Refer=top) `990.8K 🔥`
 1. [LiveHouse到底有多上头](https://s.weibo.com/weibo?q=%23LiveHouse%E5%88%B0%E5%BA%95%E6%9C%89%E5%A4%9A%E4%B8%8A%E5%A4%B4%23&Refer=top) `978.8K 🔥`
@@ -57,7 +57,7 @@
 1. [肖华希望NBA继续在中国转播](https://s.weibo.com/weibo?q=%E8%82%96%E5%8D%8E%E5%B8%8C%E6%9C%9BNBA%E7%BB%A7%E7%BB%AD%E5%9C%A8%E4%B8%AD%E5%9B%BD%E8%BD%AC%E6%92%AD&Refer=top) `792.5K 🔥`
 1. [邓伦把丝巾投上了8米高的位置](https://s.weibo.com/weibo?q=%23%E9%82%93%E4%BC%A6%E6%8A%8A%E4%B8%9D%E5%B7%BE%E6%8A%95%E4%B8%8A%E4%BA%868%E7%B1%B3%E9%AB%98%E7%9A%84%E4%BD%8D%E7%BD%AE%23&Refer=top) `788.4K 🔥`
 
-数据更新于 2021-07-08 19:20:19
+数据更新于 2021-07-08 19:34:13
 
 <!-- END -->
 
