@@ -27,13 +27,13 @@
 1. [bw](https://s.weibo.com/weibo?q=bw&Refer=top) `746.8K 🔥`
 1. [女儿被妈妈用农药焗头驱虱进ICU](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%84%BF%E8%A2%AB%E5%A6%88%E5%A6%88%E7%94%A8%E5%86%9C%E8%8D%AF%E7%84%97%E5%A4%B4%E9%A9%B1%E8%99%B1%E8%BF%9BICU%23&Refer=top) `746.5K 🔥`
 1. [原来我是同学眼里偶像女主](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E6%88%91%E6%98%AF%E5%90%8C%E5%AD%A6%E7%9C%BC%E9%87%8C%E5%81%B6%E5%83%8F%E5%A5%B3%E4%B8%BB%23&Refer=top) `731.6K 🔥`
+1. [近视手术前必须做好严格术前检查](https://s.weibo.com/weibo?q=%23%E8%BF%91%E8%A7%86%E6%89%8B%E6%9C%AF%E5%89%8D%E5%BF%85%E9%A1%BB%E5%81%9A%E5%A5%BD%E4%B8%A5%E6%A0%BC%E6%9C%AF%E5%89%8D%E6%A3%80%E6%9F%A5%23&Refer=top) `686.1K 🔥`
 1. [当着狗子面别提没考上](https://s.weibo.com/weibo?q=%23%E5%BD%93%E7%9D%80%E7%8B%97%E5%AD%90%E9%9D%A2%E5%88%AB%E6%8F%90%E6%B2%A1%E8%80%83%E4%B8%8A%23&Refer=top) `666.6K 🔥`
 1. [心动的信号4](https://s.weibo.com/weibo?q=%23%E5%BF%83%E5%8A%A8%E7%9A%84%E4%BF%A1%E5%8F%B74%23&Refer=top) `590.5K 🔥`
 1. [南京免费帮家长暑期带娃](https://s.weibo.com/weibo?q=%23%E5%8D%97%E4%BA%AC%E5%85%8D%E8%B4%B9%E5%B8%AE%E5%AE%B6%E9%95%BF%E6%9A%91%E6%9C%9F%E5%B8%A6%E5%A8%83%23&Refer=top) `589.9K 🔥`
 1. [林生斌亡妻哥哥发声](https://s.weibo.com/weibo?q=%23%E6%9E%97%E7%94%9F%E6%96%8C%E4%BA%A1%E5%A6%BB%E5%93%A5%E5%93%A5%E5%8F%91%E5%A3%B0%23&Refer=top) `589.1K 🔥`
 1. [网友拍到中国空间站从头顶飞过](https://s.weibo.com/weibo?q=%23%E7%BD%91%E5%8F%8B%E6%8B%8D%E5%88%B0%E4%B8%AD%E5%9B%BD%E7%A9%BA%E9%97%B4%E7%AB%99%E4%BB%8E%E5%A4%B4%E9%A1%B6%E9%A3%9E%E8%BF%87%23&Refer=top) `581.0K 🔥`
 1. [我国22个新冠疫苗进入临床试验阶段](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD22%E4%B8%AA%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E8%BF%9B%E5%85%A5%E4%B8%B4%E5%BA%8A%E8%AF%95%E9%AA%8C%E9%98%B6%E6%AE%B5%23&Refer=top) `576.4K 🔥`
-1. [近视手术前必须做好严格术前检查](https://s.weibo.com/weibo?q=%23%E8%BF%91%E8%A7%86%E6%89%8B%E6%9C%AF%E5%89%8D%E5%BF%85%E9%A1%BB%E5%81%9A%E5%A5%BD%E4%B8%A5%E6%A0%BC%E6%9C%AF%E5%89%8D%E6%A3%80%E6%9F%A5%23&Refer=top) `552.2K 🔥`
 1. [女车主为女骑手深夜打灯照路5公里](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E8%BD%A6%E4%B8%BB%E4%B8%BA%E5%A5%B3%E9%AA%91%E6%89%8B%E6%B7%B1%E5%A4%9C%E6%89%93%E7%81%AF%E7%85%A7%E8%B7%AF5%E5%85%AC%E9%87%8C%23&Refer=top) `542.4K 🔥`
 1. [当一个有趣的人学会了种菜](https://s.weibo.com/weibo?q=%23%E5%BD%93%E4%B8%80%E4%B8%AA%E6%9C%89%E8%B6%A3%E7%9A%84%E4%BA%BA%E5%AD%A6%E4%BC%9A%E4%BA%86%E7%A7%8D%E8%8F%9C%23&Refer=top) `512.8K 🔥`
 1. [邱天 脸受伤](https://s.weibo.com/weibo?q=%E9%82%B1%E5%A4%A9%20%E8%84%B8%E5%8F%97%E4%BC%A4&Refer=top) `506.2K 🔥`
@@ -44,20 +44,20 @@
 1. [4年7次起诉离婚女子提起第8次诉讼](https://s.weibo.com/weibo?q=%234%E5%B9%B47%E6%AC%A1%E8%B5%B7%E8%AF%89%E7%A6%BB%E5%A9%9A%E5%A5%B3%E5%AD%90%E6%8F%90%E8%B5%B7%E7%AC%AC8%E6%AC%A1%E8%AF%89%E8%AE%BC%23&Refer=top) `437.2K 🔥`
 1. [中国高铁版贪吃蛇](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E9%AB%98%E9%93%81%E7%89%88%E8%B4%AA%E5%90%83%E8%9B%87%23&Refer=top) `377.4K 🔥`
 1. [安徽疫情](https://s.weibo.com/weibo?q=%E5%AE%89%E5%BE%BD%E7%96%AB%E6%83%85&Refer=top) `368.6K 🔥`
+1. [路人头发做到一半去看刘诗诗](https://s.weibo.com/weibo?q=%23%E8%B7%AF%E4%BA%BA%E5%A4%B4%E5%8F%91%E5%81%9A%E5%88%B0%E4%B8%80%E5%8D%8A%E5%8E%BB%E7%9C%8B%E5%88%98%E8%AF%97%E8%AF%97%23&Refer=top) `356.5K 🔥`
 1. [湖南藏香猪排队跳水](https://s.weibo.com/weibo?q=%23%E6%B9%96%E5%8D%97%E8%97%8F%E9%A6%99%E7%8C%AA%E6%8E%92%E9%98%9F%E8%B7%B3%E6%B0%B4%23&Refer=top) `356.3K 🔥`
 1. [林生斌发文回应](https://s.weibo.com/weibo?q=%23%E6%9E%97%E7%94%9F%E6%96%8C%E5%8F%91%E6%96%87%E5%9B%9E%E5%BA%94%23&Refer=top) `355.8K 🔥`
+1. [准大学生扎堆摘眼镜](https://s.weibo.com/weibo?q=%23%E5%87%86%E5%A4%A7%E5%AD%A6%E7%94%9F%E6%89%8E%E5%A0%86%E6%91%98%E7%9C%BC%E9%95%9C%23&Refer=top) `348.9K 🔥`
 1. [焦点访谈](https://s.weibo.com/weibo?q=%E7%84%A6%E7%82%B9%E8%AE%BF%E8%B0%88&Refer=top) `334.6K 🔥`
 1. [摩尔庄园](https://s.weibo.com/weibo?q=%E6%91%A9%E5%B0%94%E5%BA%84%E5%9B%AD&Refer=top) `332.6K 🔥`
-1. [准大学生扎堆摘眼镜](https://s.weibo.com/weibo?q=%23%E5%87%86%E5%A4%A7%E5%AD%A6%E7%94%9F%E6%89%8E%E5%A0%86%E6%91%98%E7%9C%BC%E9%95%9C%23&Refer=top) `317.3K 🔥`
 1. [大爷偷风扇犯选择困难症](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E7%88%B7%E5%81%B7%E9%A3%8E%E6%89%87%E7%8A%AF%E9%80%89%E6%8B%A9%E5%9B%B0%E9%9A%BE%E7%97%87%23&Refer=top) `316.8K 🔥`
 1. [Angelababy说小心机是爱情保鲜剂](https://s.weibo.com/weibo?q=%23Angelababy%E8%AF%B4%E5%B0%8F%E5%BF%83%E6%9C%BA%E6%98%AF%E7%88%B1%E6%83%85%E4%BF%9D%E9%B2%9C%E5%89%82%23&Refer=top) `314.5K 🔥`
 1. [张钧甯希望40岁结婚](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E9%92%A7%E7%94%AF%E5%B8%8C%E6%9C%9B40%E5%B2%81%E7%BB%93%E5%A9%9A%23&Refer=top) `314.3K 🔥`
 1. [FPX首发调整公告](https://s.weibo.com/weibo?q=FPX%E9%A6%96%E5%8F%91%E8%B0%83%E6%95%B4%E5%85%AC%E5%91%8A&Refer=top) `313.6K 🔥`
 1. [毛晓彤侧颜线条](https://s.weibo.com/weibo?q=%23%E6%AF%9B%E6%99%93%E5%BD%A4%E4%BE%A7%E9%A2%9C%E7%BA%BF%E6%9D%A1%23&Refer=top) `311.0K 🔥`
 1. [机智的医生生活](https://s.weibo.com/weibo?q=%E6%9C%BA%E6%99%BA%E7%9A%84%E5%8C%BB%E7%94%9F%E7%94%9F%E6%B4%BB&Refer=top) `310.9K 🔥`
-1. [北京闪电](https://s.weibo.com/weibo?q=%E5%8C%97%E4%BA%AC%E9%97%AA%E7%94%B5&Refer=top) `307.4K 🔥`
 
-数据更新于 2021-07-09 10:39:21
+数据更新于 2021-07-09 10:49:26
 
 <!-- END -->
 
