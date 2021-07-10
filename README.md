@@ -23,6 +23,7 @@
 1. [李现 不要当私生](https://s.weibo.com/weibo?q=%E6%9D%8E%E7%8E%B0%20%E4%B8%8D%E8%A6%81%E5%BD%93%E7%A7%81%E7%94%9F&Refer=top) `1.6M 🔥`
 1. [张艺兴解释粉丝名叫贝壳因为硬](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%89%BA%E5%85%B4%E8%A7%A3%E9%87%8A%E7%B2%89%E4%B8%9D%E5%90%8D%E5%8F%AB%E8%B4%9D%E5%A3%B3%E5%9B%A0%E4%B8%BA%E7%A1%AC%23&Refer=top) `1.5M 🔥`
 1. [苏晓彤赵天昊牵手搂腰](https://s.weibo.com/weibo?q=%23%E8%8B%8F%E6%99%93%E5%BD%A4%E8%B5%B5%E5%A4%A9%E6%98%8A%E7%89%B5%E6%89%8B%E6%90%82%E8%85%B0%23&Refer=top) `1.5M 🔥`
+1. [收费站承诺以后苹果蕉都走绿通](https://s.weibo.com/weibo?q=%23%E6%94%B6%E8%B4%B9%E7%AB%99%E6%89%BF%E8%AF%BA%E4%BB%A5%E5%90%8E%E8%8B%B9%E6%9E%9C%E8%95%89%E9%83%BD%E8%B5%B0%E7%BB%BF%E9%80%9A%23&Refer=top) `1.5M 🔥`
 1. [家里蹲三年以上是什么感受](https://s.weibo.com/weibo?q=%23%E5%AE%B6%E9%87%8C%E8%B9%B2%E4%B8%89%E5%B9%B4%E4%BB%A5%E4%B8%8A%E6%98%AF%E4%BB%80%E4%B9%88%E6%84%9F%E5%8F%97%23&Refer=top) `1.5M 🔥`
 1. [玖月晞告读者](https://s.weibo.com/weibo?q=%23%E7%8E%96%E6%9C%88%E6%99%9E%E5%91%8A%E8%AF%BB%E8%80%85%23&Refer=top) `1.5M 🔥`
 1. [小学生因开小差错过放暑假通知](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E5%AD%A6%E7%94%9F%E5%9B%A0%E5%BC%80%E5%B0%8F%E5%B7%AE%E9%94%99%E8%BF%87%E6%94%BE%E6%9A%91%E5%81%87%E9%80%9A%E7%9F%A5%23&Refer=top) `1.3M 🔥`
@@ -52,12 +53,11 @@
 1. [周奇瘦回方一凡](https://s.weibo.com/weibo?q=%23%E5%91%A8%E5%A5%87%E7%98%A6%E5%9B%9E%E6%96%B9%E4%B8%80%E5%87%A1%23&Refer=top) `737.1K 🔥`
 1. [蔡徐坤演唱会门票](https://s.weibo.com/weibo?q=%23%E8%94%A1%E5%BE%90%E5%9D%A4%E6%BC%94%E5%94%B1%E4%BC%9A%E9%97%A8%E7%A5%A8%23&Refer=top) `722.7K 🔥`
 1. [湖南大学湘潭大学发布联合声明](https://s.weibo.com/weibo?q=%23%E6%B9%96%E5%8D%97%E5%A4%A7%E5%AD%A6%E6%B9%98%E6%BD%AD%E5%A4%A7%E5%AD%A6%E5%8F%91%E5%B8%83%E8%81%94%E5%90%88%E5%A3%B0%E6%98%8E%23&Refer=top) `712.7K 🔥`
-1. [收费站承诺以后苹果蕉都走绿通](https://s.weibo.com/weibo?q=%23%E6%94%B6%E8%B4%B9%E7%AB%99%E6%89%BF%E8%AF%BA%E4%BB%A5%E5%90%8E%E8%8B%B9%E6%9E%9C%E8%95%89%E9%83%BD%E8%B5%B0%E7%BB%BF%E9%80%9A%23&Refer=top) `692.7K 🔥`
 1. [字节跳动8月将取消大小周](https://s.weibo.com/weibo?q=%23%E5%AD%97%E8%8A%82%E8%B7%B3%E5%8A%A88%E6%9C%88%E5%B0%86%E5%8F%96%E6%B6%88%E5%A4%A7%E5%B0%8F%E5%91%A8%23&Refer=top) `688.6K 🔥`
 1. [女孩被小区内被未栓绳狗狗狂追](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%A9%E8%A2%AB%E5%B0%8F%E5%8C%BA%E5%86%85%E8%A2%AB%E6%9C%AA%E6%A0%93%E7%BB%B3%E7%8B%97%E7%8B%97%E7%8B%82%E8%BF%BD%23&Refer=top) `681.8K 🔥`
 1. [海地政府请求美国出兵保护](https://s.weibo.com/weibo?q=%23%E6%B5%B7%E5%9C%B0%E6%94%BF%E5%BA%9C%E8%AF%B7%E6%B1%82%E7%BE%8E%E5%9B%BD%E5%87%BA%E5%85%B5%E4%BF%9D%E6%8A%A4%23&Refer=top) `669.0K 🔥`
 
-数据更新于 2021-07-10 17:25:29
+数据更新于 2021-07-10 17:37:23
 
 <!-- END -->
 
