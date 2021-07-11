@@ -16,16 +16,18 @@
 1. [乐华声明呼吁观众切勿入戏太深](https://s.weibo.com/weibo?q=%23%E4%B9%90%E5%8D%8E%E5%A3%B0%E6%98%8E%E5%91%BC%E5%90%81%E8%A7%82%E4%BC%97%E5%88%87%E5%8B%BF%E5%85%A5%E6%88%8F%E5%A4%AA%E6%B7%B1%23&Refer=top) `1.7M 🔥`
 1. [17岁男孩喝12瓶啤酒胃险爆炸](https://s.weibo.com/weibo?q=%2317%E5%B2%81%E7%94%B7%E5%AD%A9%E5%96%9D12%E7%93%B6%E5%95%A4%E9%85%92%E8%83%83%E9%99%A9%E7%88%86%E7%82%B8%23&Refer=top) `1.7M 🔥`
 1. [英国一女子请病假看球被直播拍下后遭解雇](https://s.weibo.com/weibo?q=%23%E8%8B%B1%E5%9B%BD%E4%B8%80%E5%A5%B3%E5%AD%90%E8%AF%B7%E7%97%85%E5%81%87%E7%9C%8B%E7%90%83%E8%A2%AB%E7%9B%B4%E6%92%AD%E6%8B%8D%E4%B8%8B%E5%90%8E%E9%81%AD%E8%A7%A3%E9%9B%87%23&Refer=top) `1.7M 🔥`
+1. [洱海坠机烈士儿子还在等父亲归家](https://s.weibo.com/weibo?q=%23%E6%B4%B1%E6%B5%B7%E5%9D%A0%E6%9C%BA%E7%83%88%E5%A3%AB%E5%84%BF%E5%AD%90%E8%BF%98%E5%9C%A8%E7%AD%89%E7%88%B6%E4%BA%B2%E5%BD%92%E5%AE%B6%23&Refer=top) `1.6M 🔥`
 1. [买房后妻子激动在新家模仿烧菜](https://s.weibo.com/weibo?q=%23%E4%B9%B0%E6%88%BF%E5%90%8E%E5%A6%BB%E5%AD%90%E6%BF%80%E5%8A%A8%E5%9C%A8%E6%96%B0%E5%AE%B6%E6%A8%A1%E4%BB%BF%E7%83%A7%E8%8F%9C%23&Refer=top) `1.6M 🔥`
 1. [拿来吧你](https://s.weibo.com/weibo?q=%E6%8B%BF%E6%9D%A5%E5%90%A7%E4%BD%A0&Refer=top) `1.6M 🔥`
 1. [阿根廷夺冠](https://s.weibo.com/weibo?q=%23%E9%98%BF%E6%A0%B9%E5%BB%B7%E5%A4%BA%E5%86%A0%23&Refer=top) `1.6M 🔥`
+1. [你微笑时很美剧组呼吁理性追剧](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E5%BE%AE%E7%AC%91%E6%97%B6%E5%BE%88%E7%BE%8E%E5%89%A7%E7%BB%84%E5%91%BC%E5%90%81%E7%90%86%E6%80%A7%E8%BF%BD%E5%89%A7%23&Refer=top) `1.5M 🔥`
 1. [女子为哄娃狠拽孔雀羽毛](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E4%B8%BA%E5%93%84%E5%A8%83%E7%8B%A0%E6%8B%BD%E5%AD%94%E9%9B%80%E7%BE%BD%E6%AF%9B%23&Refer=top) `1.4M 🔥`
 1. [张子枫演中国医生一条过](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%AD%90%E6%9E%AB%E6%BC%94%E4%B8%AD%E5%9B%BD%E5%8C%BB%E7%94%9F%E4%B8%80%E6%9D%A1%E8%BF%87%23&Refer=top) `1.4M 🔥`
 1. [杜飞才是真正的反矫达人](https://s.weibo.com/weibo?q=%23%E6%9D%9C%E9%A3%9E%E6%89%8D%E6%98%AF%E7%9C%9F%E6%AD%A3%E7%9A%84%E5%8F%8D%E7%9F%AB%E8%BE%BE%E4%BA%BA%23&Refer=top) `1.3M 🔥`
+1. [北京最低工资增加120元](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E6%9C%80%E4%BD%8E%E5%B7%A5%E8%B5%84%E5%A2%9E%E5%8A%A0120%E5%85%83%23&Refer=top) `1.2M 🔥`
 1. [张子枫眼神哭戏好绝](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%AD%90%E6%9E%AB%E7%9C%BC%E7%A5%9E%E5%93%AD%E6%88%8F%E5%A5%BD%E7%BB%9D%23&Refer=top) `1.2M 🔥`
 1. [古人为何喜欢用黄金做面具](https://s.weibo.com/weibo?q=%23%E5%8F%A4%E4%BA%BA%E4%B8%BA%E4%BD%95%E5%96%9C%E6%AC%A2%E7%94%A8%E9%BB%84%E9%87%91%E5%81%9A%E9%9D%A2%E5%85%B7%23&Refer=top) `1.2M 🔥`
 1. [云南高一男生被老师酒后扇耳光](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E9%AB%98%E4%B8%80%E7%94%B7%E7%94%9F%E8%A2%AB%E8%80%81%E5%B8%88%E9%85%92%E5%90%8E%E6%89%87%E8%80%B3%E5%85%89%23&Refer=top) `1.2M 🔥`
-1. [你微笑时很美剧组呼吁理性追剧](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E5%BE%AE%E7%AC%91%E6%97%B6%E5%BE%88%E7%BE%8E%E5%89%A7%E7%BB%84%E5%91%BC%E5%90%81%E7%90%86%E6%80%A7%E8%BF%BD%E5%89%A7%23&Refer=top) `1.1M 🔥`
 1. [父母将3岁儿子给月嫂照顾后消失](https://s.weibo.com/weibo?q=%23%E7%88%B6%E6%AF%8D%E5%B0%863%E5%B2%81%E5%84%BF%E5%AD%90%E7%BB%99%E6%9C%88%E5%AB%82%E7%85%A7%E9%A1%BE%E5%90%8E%E6%B6%88%E5%A4%B1%23&Refer=top) `1.1M 🔥`
 1. [许凯亲周冬雨额头像在盖章](https://s.weibo.com/weibo?q=%23%E8%AE%B8%E5%87%AF%E4%BA%B2%E5%91%A8%E5%86%AC%E9%9B%A8%E9%A2%9D%E5%A4%B4%E5%83%8F%E5%9C%A8%E7%9B%96%E7%AB%A0%23&Refer=top) `1.1M 🔥`
 1. [原来狗也怕鬼](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E7%8B%97%E4%B9%9F%E6%80%95%E9%AC%BC%23&Refer=top) `1.1M 🔥`
@@ -39,7 +41,6 @@
 1. [家里没人奶奶每天到网吧看电视](https://s.weibo.com/weibo?q=%23%E5%AE%B6%E9%87%8C%E6%B2%A1%E4%BA%BA%E5%A5%B6%E5%A5%B6%E6%AF%8F%E5%A4%A9%E5%88%B0%E7%BD%91%E5%90%A7%E7%9C%8B%E7%94%B5%E8%A7%86%23&Refer=top) `972.6K 🔥`
 1. [102岁老人状告5子女不赡养](https://s.weibo.com/weibo?q=%23102%E5%B2%81%E8%80%81%E4%BA%BA%E7%8A%B6%E5%91%8A5%E5%AD%90%E5%A5%B3%E4%B8%8D%E8%B5%A1%E5%85%BB%23&Refer=top) `957.2K 🔥`
 1. [网友说李荣浩眼睛跟井柏然卧蚕一样大](https://s.weibo.com/weibo?q=%23%E7%BD%91%E5%8F%8B%E8%AF%B4%E6%9D%8E%E8%8D%A3%E6%B5%A9%E7%9C%BC%E7%9D%9B%E8%B7%9F%E4%BA%95%E6%9F%8F%E7%84%B6%E5%8D%A7%E8%9A%95%E4%B8%80%E6%A0%B7%E5%A4%A7%23&Refer=top) `941.5K 🔥`
-1. [北京最低工资增加120元](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E6%9C%80%E4%BD%8E%E5%B7%A5%E8%B5%84%E5%A2%9E%E5%8A%A0120%E5%85%83%23&Refer=top) `895.5K 🔥`
 1. [业主凌晨被困电梯报警时手机断电](https://s.weibo.com/weibo?q=%23%E4%B8%9A%E4%B8%BB%E5%87%8C%E6%99%A8%E8%A2%AB%E5%9B%B0%E7%94%B5%E6%A2%AF%E6%8A%A5%E8%AD%A6%E6%97%B6%E6%89%8B%E6%9C%BA%E6%96%AD%E7%94%B5%23&Refer=top) `892.9K 🔥`
 1. [阿根廷 巴西](https://s.weibo.com/weibo?q=%E9%98%BF%E6%A0%B9%E5%BB%B7%20%E5%B7%B4%E8%A5%BF&Refer=top) `822.3K 🔥`
 1. [张雨绮说杨迪是自己的盖世英雄](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E9%9B%A8%E7%BB%AE%E8%AF%B4%E6%9D%A8%E8%BF%AA%E6%98%AF%E8%87%AA%E5%B7%B1%E7%9A%84%E7%9B%96%E4%B8%96%E8%8B%B1%E9%9B%84%23&Refer=top) `817.7K 🔥`
@@ -55,9 +56,8 @@
 1. [马龙刘诗雯碰拍的笑](https://s.weibo.com/weibo?q=%E9%A9%AC%E9%BE%99%E5%88%98%E8%AF%97%E9%9B%AF%E7%A2%B0%E6%8B%8D%E7%9A%84%E7%AC%91&Refer=top) `741.8K 🔥`
 1. [苏芒 道理我都懂就是心里疼](https://s.weibo.com/weibo?q=%E8%8B%8F%E8%8A%92%20%E9%81%93%E7%90%86%E6%88%91%E9%83%BD%E6%87%82%E5%B0%B1%E6%98%AF%E5%BF%83%E9%87%8C%E7%96%BC&Refer=top) `740.8K 🔥`
 1. [专家称孕妇防辐射服作用微乎其微](https://s.weibo.com/weibo?q=%23%E4%B8%93%E5%AE%B6%E7%A7%B0%E5%AD%95%E5%A6%87%E9%98%B2%E8%BE%90%E5%B0%84%E6%9C%8D%E4%BD%9C%E7%94%A8%E5%BE%AE%E4%B9%8E%E5%85%B6%E5%BE%AE%23&Refer=top) `734.3K 🔥`
-1. [修音师听孟子义唱歌时的表情](https://s.weibo.com/weibo?q=%23%E4%BF%AE%E9%9F%B3%E5%B8%88%E5%90%AC%E5%AD%9F%E5%AD%90%E4%B9%89%E5%94%B1%E6%AD%8C%E6%97%B6%E7%9A%84%E8%A1%A8%E6%83%85%23&Refer=top) `733.1K 🔥`
 
-数据更新于 2021-07-11 19:13:36
+数据更新于 2021-07-11 19:24:30
 
 <!-- END -->
 
