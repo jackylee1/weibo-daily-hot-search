@@ -25,6 +25,7 @@
 1. [北京暴雨](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E6%9A%B4%E9%9B%A8%23&Refer=top) `1.6M 🔥`
 1. [阿根廷夺冠](https://s.weibo.com/weibo?q=%23%E9%98%BF%E6%A0%B9%E5%BB%B7%E5%A4%BA%E5%86%A0%23&Refer=top) `1.6M 🔥`
 1. [你微笑时很美剧组呼吁理性追剧](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E5%BE%AE%E7%AC%91%E6%97%B6%E5%BE%88%E7%BE%8E%E5%89%A7%E7%BB%84%E5%91%BC%E5%90%81%E7%90%86%E6%80%A7%E8%BF%BD%E5%89%A7%23&Refer=top) `1.5M 🔥`
+1. [发量多的女生不适合鲨鱼夹](https://s.weibo.com/weibo?q=%23%E5%8F%91%E9%87%8F%E5%A4%9A%E7%9A%84%E5%A5%B3%E7%94%9F%E4%B8%8D%E9%80%82%E5%90%88%E9%B2%A8%E9%B1%BC%E5%A4%B9%23&Refer=top) `1.5M 🔥`
 1. [女子为哄娃狠拽孔雀羽毛](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E4%B8%BA%E5%93%84%E5%A8%83%E7%8B%A0%E6%8B%BD%E5%AD%94%E9%9B%80%E7%BE%BD%E6%AF%9B%23&Refer=top) `1.4M 🔥`
 1. [张子枫演中国医生一条过](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%AD%90%E6%9E%AB%E6%BC%94%E4%B8%AD%E5%9B%BD%E5%8C%BB%E7%94%9F%E4%B8%80%E6%9D%A1%E8%BF%87%23&Refer=top) `1.4M 🔥`
 1. [杜飞才是真正的反矫达人](https://s.weibo.com/weibo?q=%23%E6%9D%9C%E9%A3%9E%E6%89%8D%E6%98%AF%E7%9C%9F%E6%AD%A3%E7%9A%84%E5%8F%8D%E7%9F%AB%E8%BE%BE%E4%BA%BA%23&Refer=top) `1.3M 🔥`
@@ -51,13 +52,12 @@
 1. [女孩放弃港大奖学金去北大读马克思](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%A9%E6%94%BE%E5%BC%83%E6%B8%AF%E5%A4%A7%E5%A5%96%E5%AD%A6%E9%87%91%E5%8E%BB%E5%8C%97%E5%A4%A7%E8%AF%BB%E9%A9%AC%E5%85%8B%E6%80%9D%23&Refer=top) `931.7K 🔥`
 1. [业主凌晨被困电梯报警时手机断电](https://s.weibo.com/weibo?q=%23%E4%B8%9A%E4%B8%BB%E5%87%8C%E6%99%A8%E8%A2%AB%E5%9B%B0%E7%94%B5%E6%A2%AF%E6%8A%A5%E8%AD%A6%E6%97%B6%E6%89%8B%E6%9C%BA%E6%96%AD%E7%94%B5%23&Refer=top) `892.9K 🔥`
 1. [男子无聊手动检查969颗瓜子](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E6%97%A0%E8%81%8A%E6%89%8B%E5%8A%A8%E6%A3%80%E6%9F%A5969%E9%A2%97%E7%93%9C%E5%AD%90%23&Refer=top) `884.2K 🔥`
+1. [狗狗误食野生菌啃空气](https://s.weibo.com/weibo?q=%23%E7%8B%97%E7%8B%97%E8%AF%AF%E9%A3%9F%E9%87%8E%E7%94%9F%E8%8F%8C%E5%95%83%E7%A9%BA%E6%B0%94%23&Refer=top) `867.4K 🔥`
 1. [阿根廷 巴西](https://s.weibo.com/weibo?q=%E9%98%BF%E6%A0%B9%E5%BB%B7%20%E5%B7%B4%E8%A5%BF&Refer=top) `822.3K 🔥`
 1. [张雨绮说杨迪是自己的盖世英雄](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E9%9B%A8%E7%BB%AE%E8%AF%B4%E6%9D%A8%E8%BF%AA%E6%98%AF%E8%87%AA%E5%B7%B1%E7%9A%84%E7%9B%96%E4%B8%96%E8%8B%B1%E9%9B%84%23&Refer=top) `817.7K 🔥`
 1. [中央气象台发布暴雨橙色预警](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%A4%AE%E6%B0%94%E8%B1%A1%E5%8F%B0%E5%8F%91%E5%B8%83%E6%9A%B4%E9%9B%A8%E6%A9%99%E8%89%B2%E9%A2%84%E8%AD%A6%23&Refer=top) `817.6K 🔥`
-1. [56部电影定档暑假](https://s.weibo.com/weibo?q=%2356%E9%83%A8%E7%94%B5%E5%BD%B1%E5%AE%9A%E6%A1%A3%E6%9A%91%E5%81%87%23&Refer=top) `814.8K 🔥`
-1. [男朋友准备的花束](https://s.weibo.com/weibo?q=%23%E7%94%B7%E6%9C%8B%E5%8F%8B%E5%87%86%E5%A4%87%E7%9A%84%E8%8A%B1%E6%9D%9F%23&Refer=top) `808.8K 🔥`
 
-数据更新于 2021-07-11 23:01:59
+数据更新于 2021-07-11 23:21:16
 
 <!-- END -->
 
