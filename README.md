@@ -46,6 +46,7 @@
 1. [吴昕 谢谢海燕姐让我蹭热度](https://s.weibo.com/weibo?q=%E5%90%B4%E6%98%95%20%E8%B0%A2%E8%B0%A2%E6%B5%B7%E7%87%95%E5%A7%90%E8%AE%A9%E6%88%91%E8%B9%AD%E7%83%AD%E5%BA%A6&Refer=top) `971.6K 🔥`
 1. [发量多的女生不适合鲨鱼夹](https://s.weibo.com/weibo?q=%23%E5%8F%91%E9%87%8F%E5%A4%9A%E7%9A%84%E5%A5%B3%E7%94%9F%E4%B8%8D%E9%80%82%E5%90%88%E9%B2%A8%E9%B1%BC%E5%A4%B9%23&Refer=top) `971.4K 🔥`
 1. [特斯拉大降价引发车市连锁反应](https://s.weibo.com/weibo?q=%23%E7%89%B9%E6%96%AF%E6%8B%89%E5%A4%A7%E9%99%8D%E4%BB%B7%E5%BC%95%E5%8F%91%E8%BD%A6%E5%B8%82%E8%BF%9E%E9%94%81%E5%8F%8D%E5%BA%94%23&Refer=top) `944.4K 🔥`
+1. [9.9万名台胞已在大陆接种新冠疫苗](https://s.weibo.com/weibo?q=%239.9%E4%B8%87%E5%90%8D%E5%8F%B0%E8%83%9E%E5%B7%B2%E5%9C%A8%E5%A4%A7%E9%99%86%E6%8E%A5%E7%A7%8D%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%23&Refer=top) `938.0K 🔥`
 1. [刘德华张学友郭富城给黎明送花篮](https://s.weibo.com/weibo?q=%23%E5%88%98%E5%BE%B7%E5%8D%8E%E5%BC%A0%E5%AD%A6%E5%8F%8B%E9%83%AD%E5%AF%8C%E5%9F%8E%E7%BB%99%E9%BB%8E%E6%98%8E%E9%80%81%E8%8A%B1%E7%AF%AE%23&Refer=top) `929.4K 🔥`
 1. [狗狗误食野生菌啃空气](https://s.weibo.com/weibo?q=%23%E7%8B%97%E7%8B%97%E8%AF%AF%E9%A3%9F%E9%87%8E%E7%94%9F%E8%8F%8C%E5%95%83%E7%A9%BA%E6%B0%94%23&Refer=top) `919.7K 🔥`
 1. [大学生付费实习是天坑还是捷径](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%AD%A6%E7%94%9F%E4%BB%98%E8%B4%B9%E5%AE%9E%E4%B9%A0%E6%98%AF%E5%A4%A9%E5%9D%91%E8%BF%98%E6%98%AF%E6%8D%B7%E5%BE%84%23&Refer=top) `897.6K 🔥`
@@ -55,9 +56,8 @@
 1. [复旦大学院长说小孩睡懒觉没坏处](https://s.weibo.com/weibo?q=%23%E5%A4%8D%E6%97%A6%E5%A4%A7%E5%AD%A6%E9%99%A2%E9%95%BF%E8%AF%B4%E5%B0%8F%E5%AD%A9%E7%9D%A1%E6%87%92%E8%A7%89%E6%B2%A1%E5%9D%8F%E5%A4%84%23&Refer=top) `835.2K 🔥`
 1. [福建一学生举报网络间谍受表彰](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E4%B8%80%E5%AD%A6%E7%94%9F%E4%B8%BE%E6%8A%A5%E7%BD%91%E7%BB%9C%E9%97%B4%E8%B0%8D%E5%8F%97%E8%A1%A8%E5%BD%B0%23&Refer=top) `826.3K 🔥`
 1. [梅西妻子迎接梅西回家](https://s.weibo.com/weibo?q=%23%E6%A2%85%E8%A5%BF%E5%A6%BB%E5%AD%90%E8%BF%8E%E6%8E%A5%E6%A2%85%E8%A5%BF%E5%9B%9E%E5%AE%B6%23&Refer=top) `823.2K 🔥`
-1. [谭晶yyds](https://s.weibo.com/weibo?q=%23%E8%B0%AD%E6%99%B6yyds%23&Refer=top) `821.7K 🔥`
 
-数据更新于 2021-07-12 17:24:13
+数据更新于 2021-07-12 17:36:38
 
 <!-- END -->
 
