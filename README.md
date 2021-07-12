@@ -24,8 +24,8 @@
 1. [住在60层是种什么体验](https://s.weibo.com/weibo?q=%23%E4%BD%8F%E5%9C%A860%E5%B1%82%E6%98%AF%E7%A7%8D%E4%BB%80%E4%B9%88%E4%BD%93%E9%AA%8C%23&Refer=top) `606.7K 🔥`
 1. [失孤原型郭刚堂儿子DNA比对成功](https://s.weibo.com/weibo?q=%23%E5%A4%B1%E5%AD%A4%E5%8E%9F%E5%9E%8B%E9%83%AD%E5%88%9A%E5%A0%82%E5%84%BF%E5%AD%90DNA%E6%AF%94%E5%AF%B9%E6%88%90%E5%8A%9F%23&Refer=top) `595.0K 🔥`
 1. [宋茜 她逃他追她插翅难飞](https://s.weibo.com/weibo?q=%E5%AE%8B%E8%8C%9C%20%E5%A5%B9%E9%80%83%E4%BB%96%E8%BF%BD%E5%A5%B9%E6%8F%92%E7%BF%85%E9%9A%BE%E9%A3%9E&Refer=top) `592.4K 🔥`
-1. [王珞丹 我们不能拿青春明码标价](https://s.weibo.com/weibo?q=%E7%8E%8B%E7%8F%9E%E4%B8%B9%20%E6%88%91%E4%BB%AC%E4%B8%8D%E8%83%BD%E6%8B%BF%E9%9D%92%E6%98%A5%E6%98%8E%E7%A0%81%E6%A0%87%E4%BB%B7&Refer=top) `571.4K 🔥`
-1. [刘德华祝福失孤原型郭刚堂](https://s.weibo.com/weibo?q=%E5%88%98%E5%BE%B7%E5%8D%8E%E7%A5%9D%E7%A6%8F%E5%A4%B1%E5%AD%A4%E5%8E%9F%E5%9E%8B%E9%83%AD%E5%88%9A%E5%A0%82&Refer=top) `542.8K 🔥`
+1. [王珞丹 我们不能拿青春明码标价](https://s.weibo.com/weibo?q=%E7%8E%8B%E7%8F%9E%E4%B8%B9%20%E6%88%91%E4%BB%AC%E4%B8%8D%E8%83%BD%E6%8B%BF%E9%9D%92%E6%98%A5%E6%98%8E%E7%A0%81%E6%A0%87%E4%BB%B7&Refer=top) `581.3K 🔥`
+1. [刘德华祝福失孤原型郭刚堂](https://s.weibo.com/weibo?q=%E5%88%98%E5%BE%B7%E5%8D%8E%E7%A5%9D%E7%A6%8F%E5%A4%B1%E5%AD%A4%E5%8E%9F%E5%9E%8B%E9%83%AD%E5%88%9A%E5%A0%82&Refer=top) `576.1K 🔥`
 1. [魔幻手机其实是部神剧](https://s.weibo.com/weibo?q=%23%E9%AD%94%E5%B9%BB%E6%89%8B%E6%9C%BA%E5%85%B6%E5%AE%9E%E6%98%AF%E9%83%A8%E7%A5%9E%E5%89%A7%23&Refer=top) `534.0K 🔥`
 1. [谢霆锋给菜打伞](https://s.weibo.com/weibo?q=%23%E8%B0%A2%E9%9C%86%E9%94%8B%E7%BB%99%E8%8F%9C%E6%89%93%E4%BC%9E%23&Refer=top) `520.3K 🔥`
 1. [甘肃一高中老师在黄河石上绘画](https://s.weibo.com/weibo?q=%23%E7%94%98%E8%82%83%E4%B8%80%E9%AB%98%E4%B8%AD%E8%80%81%E5%B8%88%E5%9C%A8%E9%BB%84%E6%B2%B3%E7%9F%B3%E4%B8%8A%E7%BB%98%E7%94%BB%23&Refer=top) `467.0K 🔥`
@@ -39,9 +39,11 @@
 1. [小朋友给自己安排的一生](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E6%9C%8B%E5%8F%8B%E7%BB%99%E8%87%AA%E5%B7%B1%E5%AE%89%E6%8E%92%E7%9A%84%E4%B8%80%E7%94%9F%23&Refer=top) `375.5K 🔥`
 1. [宋茜演技](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E8%8C%9C%E6%BC%94%E6%8A%80%23&Refer=top) `373.7K 🔥`
 1. [在母婴室抽烟有多过分](https://s.weibo.com/weibo?q=%23%E5%9C%A8%E6%AF%8D%E5%A9%B4%E5%AE%A4%E6%8A%BD%E7%83%9F%E6%9C%89%E5%A4%9A%E8%BF%87%E5%88%86%23&Refer=top) `322.3K 🔥`
+1. [冻西瓜](https://s.weibo.com/weibo?q=%E5%86%BB%E8%A5%BF%E7%93%9C&Refer=top) `317.8K 🔥`
 1. [心疼后池](https://s.weibo.com/weibo?q=%23%E5%BF%83%E7%96%BC%E5%90%8E%E6%B1%A0%23&Refer=top) `315.2K 🔥`
 1. [赵雅芝粉丝状态](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E9%9B%85%E8%8A%9D%E7%B2%89%E4%B8%9D%E7%8A%B6%E6%80%81%23&Refer=top) `314.9K 🔥`
 1. [欧豪演的霍佑泽](https://s.weibo.com/weibo?q=%23%E6%AC%A7%E8%B1%AA%E6%BC%94%E7%9A%84%E9%9C%8D%E4%BD%91%E6%B3%BD%23&Refer=top) `314.3K 🔥`
+1. [苏州酒店坍塌事故已救出被困人员14人](https://s.weibo.com/weibo?q=%23%E8%8B%8F%E5%B7%9E%E9%85%92%E5%BA%97%E5%9D%8D%E5%A1%8C%E4%BA%8B%E6%95%85%E5%B7%B2%E6%95%91%E5%87%BA%E8%A2%AB%E5%9B%B0%E4%BA%BA%E5%91%9814%E4%BA%BA%23&Refer=top) `302.7K 🔥`
 1. [翟潇闻赔偿粉丝打碎的花盆](https://s.weibo.com/weibo?q=%23%E7%BF%9F%E6%BD%87%E9%97%BB%E8%B5%94%E5%81%BF%E7%B2%89%E4%B8%9D%E6%89%93%E7%A2%8E%E7%9A%84%E8%8A%B1%E7%9B%86%23&Refer=top) `287.5K 🔥`
 1. [伊能静女儿腿长](https://s.weibo.com/weibo?q=%23%E4%BC%8A%E8%83%BD%E9%9D%99%E5%A5%B3%E5%84%BF%E8%85%BF%E9%95%BF%23&Refer=top) `275.7K 🔥`
 1. [中国2款疫苗进入新冠疫苗实施计划疫苗库](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD2%E6%AC%BE%E7%96%AB%E8%8B%97%E8%BF%9B%E5%85%A5%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E5%AE%9E%E6%96%BD%E8%AE%A1%E5%88%92%E7%96%AB%E8%8B%97%E5%BA%93%23&Refer=top) `272.9K 🔥`
@@ -54,10 +56,8 @@
 1. [黑寡妇](https://s.weibo.com/weibo?q=%E9%BB%91%E5%AF%A1%E5%A6%87&Refer=top) `250.6K 🔥`
 1. [关晓彤妈妈气质](https://s.weibo.com/weibo?q=%23%E5%85%B3%E6%99%93%E5%BD%A4%E5%A6%88%E5%A6%88%E6%B0%94%E8%B4%A8%23&Refer=top) `248.4K 🔥`
 1. [金晨问妈妈要变声期](https://s.weibo.com/weibo?q=%23%E9%87%91%E6%99%A8%E9%97%AE%E5%A6%88%E5%A6%88%E8%A6%81%E5%8F%98%E5%A3%B0%E6%9C%9F%23&Refer=top) `248.4K 🔥`
-1. [苏州酒店坍塌事故已救出被困人员14人](https://s.weibo.com/weibo?q=%23%E8%8B%8F%E5%B7%9E%E9%85%92%E5%BA%97%E5%9D%8D%E5%A1%8C%E4%BA%8B%E6%95%85%E5%B7%B2%E6%95%91%E5%87%BA%E8%A2%AB%E5%9B%B0%E4%BA%BA%E5%91%9814%E4%BA%BA%23&Refer=top) `243.0K 🔥`
-1. [贺先生的恋恋不忘](https://s.weibo.com/weibo?q=%E8%B4%BA%E5%85%88%E7%94%9F%E7%9A%84%E6%81%8B%E6%81%8B%E4%B8%8D%E5%BF%98&Refer=top) `232.4K 🔥`
 
-数据更新于 2021-07-13 07:53:19
+数据更新于 2021-07-13 07:59:44
 
 <!-- END -->
 
