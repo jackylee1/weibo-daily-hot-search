@@ -8,6 +8,7 @@
 
 1. [谷嘉诚陈小纭同回酒店](https://s.weibo.com/weibo?q=%23%E8%B0%B7%E5%98%89%E8%AF%9A%E9%99%88%E5%B0%8F%E7%BA%AD%E5%90%8C%E5%9B%9E%E9%85%92%E5%BA%97%23&Refer=top) `5.1M 🔥`
 1. [方媛点赞评论回应带孩子坐经济舱](https://s.weibo.com/weibo?q=%23%E6%96%B9%E5%AA%9B%E7%82%B9%E8%B5%9E%E8%AF%84%E8%AE%BA%E5%9B%9E%E5%BA%94%E5%B8%A6%E5%AD%A9%E5%AD%90%E5%9D%90%E7%BB%8F%E6%B5%8E%E8%88%B1%23&Refer=top) `3.8M 🔥`
+1. [京东宣布全员涨薪两个月](https://s.weibo.com/weibo?q=%23%E4%BA%AC%E4%B8%9C%E5%AE%A3%E5%B8%83%E5%85%A8%E5%91%98%E6%B6%A8%E8%96%AA%E4%B8%A4%E4%B8%AA%E6%9C%88%23&Refer=top) `2.9M 🔥`
 1. [郭刚堂认亲前全家泪崩](https://s.weibo.com/weibo?q=%23%E9%83%AD%E5%88%9A%E5%A0%82%E8%AE%A4%E4%BA%B2%E5%89%8D%E5%85%A8%E5%AE%B6%E6%B3%AA%E5%B4%A9%23&Refer=top) `2.9M 🔥`
 1. [罗云熙吴倩牵手路透](https://s.weibo.com/weibo?q=%23%E7%BD%97%E4%BA%91%E7%86%99%E5%90%B4%E5%80%A9%E7%89%B5%E6%89%8B%E8%B7%AF%E9%80%8F%23&Refer=top) `2.6M 🔥`
 1. [方媛带着两个孩子坐经济舱](https://s.weibo.com/weibo?q=%23%E6%96%B9%E5%AA%9B%E5%B8%A6%E7%9D%80%E4%B8%A4%E4%B8%AA%E5%AD%A9%E5%AD%90%E5%9D%90%E7%BB%8F%E6%B5%8E%E8%88%B1%23&Refer=top) `2.5M 🔥`
@@ -15,8 +16,8 @@
 1. [云顶天宫](https://s.weibo.com/weibo?q=%E4%BA%91%E9%A1%B6%E5%A4%A9%E5%AE%AB&Refer=top) `2.4M 🔥`
 1. [许晴演过86版西游记里的炼丹童子](https://s.weibo.com/weibo?q=%23%E8%AE%B8%E6%99%B4%E6%BC%94%E8%BF%8786%E7%89%88%E8%A5%BF%E6%B8%B8%E8%AE%B0%E9%87%8C%E7%9A%84%E7%82%BC%E4%B8%B9%E7%AB%A5%E5%AD%90%23&Refer=top) `2.4M 🔥`
 1. [张艺兴用筷子的另一头夹面](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%89%BA%E5%85%B4%E7%94%A8%E7%AD%B7%E5%AD%90%E7%9A%84%E5%8F%A6%E4%B8%80%E5%A4%B4%E5%A4%B9%E9%9D%A2%23&Refer=top) `2.2M 🔥`
-1. [京东宣布全员涨薪两个月](https://s.weibo.com/weibo?q=%23%E4%BA%AC%E4%B8%9C%E5%AE%A3%E5%B8%83%E5%85%A8%E5%91%98%E6%B6%A8%E8%96%AA%E4%B8%A4%E4%B8%AA%E6%9C%88%23&Refer=top) `2.1M 🔥`
 1. [江苏疫情](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%8B%8F%E7%96%AB%E6%83%85%23&Refer=top) `2.0M 🔥`
+1. [女儿突然坠楼被妈妈拽住腿](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%84%BF%E7%AA%81%E7%84%B6%E5%9D%A0%E6%A5%BC%E8%A2%AB%E5%A6%88%E5%A6%88%E6%8B%BD%E4%BD%8F%E8%85%BF%23&Refer=top) `1.9M 🔥`
 1. [拐卖郭刚堂儿子两名嫌犯已抓获](https://s.weibo.com/weibo?q=%23%E6%8B%90%E5%8D%96%E9%83%AD%E5%88%9A%E5%A0%82%E5%84%BF%E5%AD%90%E4%B8%A4%E5%90%8D%E5%AB%8C%E7%8A%AF%E5%B7%B2%E6%8A%93%E8%8E%B7%23&Refer=top) `1.9M 🔥`
 1. [Sunnee郑乃馨看望Pam](https://s.weibo.com/weibo?q=%23Sunnee%E9%83%91%E4%B9%83%E9%A6%A8%E7%9C%8B%E6%9C%9BPam%23&Refer=top) `1.8M 🔥`
 1. [奥迪保时捷两车主飙车双双被刑拘](https://s.weibo.com/weibo?q=%23%E5%A5%A5%E8%BF%AA%E4%BF%9D%E6%97%B6%E6%8D%B7%E4%B8%A4%E8%BD%A6%E4%B8%BB%E9%A3%99%E8%BD%A6%E5%8F%8C%E5%8F%8C%E8%A2%AB%E5%88%91%E6%8B%98%23&Refer=top) `1.8M 🔥`
@@ -55,9 +56,8 @@
 1. [印度70多人遭雷击身亡](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%BA%A670%E5%A4%9A%E4%BA%BA%E9%81%AD%E9%9B%B7%E5%87%BB%E8%BA%AB%E4%BA%A1%23&Refer=top) `632.8K 🔥`
 1. [供养女考研袖珍爸爸婉拒捐款](https://s.weibo.com/weibo?q=%23%E4%BE%9B%E5%85%BB%E5%A5%B3%E8%80%83%E7%A0%94%E8%A2%96%E7%8F%8D%E7%88%B8%E7%88%B8%E5%A9%89%E6%8B%92%E6%8D%90%E6%AC%BE%23&Refer=top) `632.4K 🔥`
 1. [龚俊张慧雯车窗对视](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E5%BC%A0%E6%85%A7%E9%9B%AF%E8%BD%A6%E7%AA%97%E5%AF%B9%E8%A7%86%23&Refer=top) `621.7K 🔥`
-1. [宋丹丹演刘敏涛妈妈](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E4%B8%B9%E4%B8%B9%E6%BC%94%E5%88%98%E6%95%8F%E6%B6%9B%E5%A6%88%E5%A6%88%23&Refer=top) `615.4K 🔥`
 
-数据更新于 2021-07-13 14:03:03
+数据更新于 2021-07-13 14:32:18
 
 <!-- END -->
 
