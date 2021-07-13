@@ -10,9 +10,9 @@
 1. [方媛点赞评论回应带孩子坐经济舱](https://s.weibo.com/weibo?q=%23%E6%96%B9%E5%AA%9B%E7%82%B9%E8%B5%9E%E8%AF%84%E8%AE%BA%E5%9B%9E%E5%BA%94%E5%B8%A6%E5%AD%A9%E5%AD%90%E5%9D%90%E7%BB%8F%E6%B5%8E%E8%88%B1%23&Refer=top) `3.8M 🔥`
 1. [京东宣布全员涨薪两个月](https://s.weibo.com/weibo?q=%23%E4%BA%AC%E4%B8%9C%E5%AE%A3%E5%B8%83%E5%85%A8%E5%91%98%E6%B6%A8%E8%96%AA%E4%B8%A4%E4%B8%AA%E6%9C%88%23&Refer=top) `2.9M 🔥`
 1. [郭刚堂认亲前全家泪崩](https://s.weibo.com/weibo?q=%23%E9%83%AD%E5%88%9A%E5%A0%82%E8%AE%A4%E4%BA%B2%E5%89%8D%E5%85%A8%E5%AE%B6%E6%B3%AA%E5%B4%A9%23&Refer=top) `2.9M 🔥`
+1. [女儿突然坠楼被妈妈拽住腿](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%84%BF%E7%AA%81%E7%84%B6%E5%9D%A0%E6%A5%BC%E8%A2%AB%E5%A6%88%E5%A6%88%E6%8B%BD%E4%BD%8F%E8%85%BF%23&Refer=top) `2.7M 🔥`
 1. [罗云熙吴倩牵手路透](https://s.weibo.com/weibo?q=%23%E7%BD%97%E4%BA%91%E7%86%99%E5%90%B4%E5%80%A9%E7%89%B5%E6%89%8B%E8%B7%AF%E9%80%8F%23&Refer=top) `2.6M 🔥`
 1. [方媛带着两个孩子坐经济舱](https://s.weibo.com/weibo?q=%23%E6%96%B9%E5%AA%9B%E5%B8%A6%E7%9D%80%E4%B8%A4%E4%B8%AA%E5%AD%A9%E5%AD%90%E5%9D%90%E7%BB%8F%E6%B5%8E%E8%88%B1%23&Refer=top) `2.5M 🔥`
-1. [女儿突然坠楼被妈妈拽住腿](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%84%BF%E7%AA%81%E7%84%B6%E5%9D%A0%E6%A5%BC%E8%A2%AB%E5%A6%88%E5%A6%88%E6%8B%BD%E4%BD%8F%E8%85%BF%23&Refer=top) `2.5M 🔥`
 1. [多地通知未接种疫苗将影响出行](https://s.weibo.com/weibo?q=%23%E5%A4%9A%E5%9C%B0%E9%80%9A%E7%9F%A5%E6%9C%AA%E6%8E%A5%E7%A7%8D%E7%96%AB%E8%8B%97%E5%B0%86%E5%BD%B1%E5%93%8D%E5%87%BA%E8%A1%8C%23&Refer=top) `2.5M 🔥`
 1. [儿子被拐两个月27岁郭刚堂白了头](https://s.weibo.com/weibo?q=%23%E5%84%BF%E5%AD%90%E8%A2%AB%E6%8B%90%E4%B8%A4%E4%B8%AA%E6%9C%8827%E5%B2%81%E9%83%AD%E5%88%9A%E5%A0%82%E7%99%BD%E4%BA%86%E5%A4%B4%23&Refer=top) `2.4M 🔥`
 1. [云顶天宫](https://s.weibo.com/weibo?q=%E4%BA%91%E9%A1%B6%E5%A4%A9%E5%AE%AB&Refer=top) `2.4M 🔥`
@@ -30,6 +30,7 @@
 1. [房客连住3晚退房1小时后酒店坍塌](https://s.weibo.com/weibo?q=%23%E6%88%BF%E5%AE%A2%E8%BF%9E%E4%BD%8F3%E6%99%9A%E9%80%80%E6%88%BF1%E5%B0%8F%E6%97%B6%E5%90%8E%E9%85%92%E5%BA%97%E5%9D%8D%E5%A1%8C%23&Refer=top) `1.6M 🔥`
 1. [比利时女性感染双重变种毒株后死亡](https://s.weibo.com/weibo?q=%23%E6%AF%94%E5%88%A9%E6%97%B6%E5%A5%B3%E6%80%A7%E6%84%9F%E6%9F%93%E5%8F%8C%E9%87%8D%E5%8F%98%E7%A7%8D%E6%AF%92%E6%A0%AA%E5%90%8E%E6%AD%BB%E4%BA%A1%23&Refer=top) `1.5M 🔥`
 1. [教育部辟谣取消教师寒暑假](https://s.weibo.com/weibo?q=%23%E6%95%99%E8%82%B2%E9%83%A8%E8%BE%9F%E8%B0%A3%E5%8F%96%E6%B6%88%E6%95%99%E5%B8%88%E5%AF%92%E6%9A%91%E5%81%87%23&Refer=top) `1.5M 🔥`
+1. [瘫痪女孩父亲称已经与刘浩存父母和解](https://s.weibo.com/weibo?q=%23%E7%98%AB%E7%97%AA%E5%A5%B3%E5%AD%A9%E7%88%B6%E4%BA%B2%E7%A7%B0%E5%B7%B2%E7%BB%8F%E4%B8%8E%E5%88%98%E6%B5%A9%E5%AD%98%E7%88%B6%E6%AF%8D%E5%92%8C%E8%A7%A3%23&Refer=top) `1.4M 🔥`
 1. [上海90后用优惠券薅羊毛45万被捕](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B790%E5%90%8E%E7%94%A8%E4%BC%98%E6%83%A0%E5%88%B8%E8%96%85%E7%BE%8A%E6%AF%9B45%E4%B8%87%E8%A2%AB%E6%8D%95%23&Refer=top) `1.4M 🔥`
 1. [冻西瓜](https://s.weibo.com/weibo?q=%23%E5%86%BB%E8%A5%BF%E7%93%9C%23&Refer=top) `1.3M 🔥`
 1. [王珞丹 我们不能拿青春明码标价](https://s.weibo.com/weibo?q=%E7%8E%8B%E7%8F%9E%E4%B8%B9%20%E6%88%91%E4%BB%AC%E4%B8%8D%E8%83%BD%E6%8B%BF%E9%9D%92%E6%98%A5%E6%98%8E%E7%A0%81%E6%A0%87%E4%BB%B7&Refer=top) `1.3M 🔥`
@@ -37,7 +38,6 @@
 1. [谷嘉诚前女友 聊天记录](https://s.weibo.com/weibo?q=%E8%B0%B7%E5%98%89%E8%AF%9A%E5%89%8D%E5%A5%B3%E5%8F%8B%20%E8%81%8A%E5%A4%A9%E8%AE%B0%E5%BD%95&Refer=top) `1.2M 🔥`
 1. [24年前张桂梅在讲台倒下瞬间](https://s.weibo.com/weibo?q=%2324%E5%B9%B4%E5%89%8D%E5%BC%A0%E6%A1%82%E6%A2%85%E5%9C%A8%E8%AE%B2%E5%8F%B0%E5%80%92%E4%B8%8B%E7%9E%AC%E9%97%B4%23&Refer=top) `1.2M 🔥`
 1. [凡尔赛式贫穷](https://s.weibo.com/weibo?q=%23%E5%87%A1%E5%B0%94%E8%B5%9B%E5%BC%8F%E8%B4%AB%E7%A9%B7%23&Refer=top) `1.1M 🔥`
-1. [瘫痪女孩父亲称已经与刘浩存父母和解](https://s.weibo.com/weibo?q=%23%E7%98%AB%E7%97%AA%E5%A5%B3%E5%AD%A9%E7%88%B6%E4%BA%B2%E7%A7%B0%E5%B7%B2%E7%BB%8F%E4%B8%8E%E5%88%98%E6%B5%A9%E5%AD%98%E7%88%B6%E6%AF%8D%E5%92%8C%E8%A7%A3%23&Refer=top) `1.1M 🔥`
 1. [龚俊听到向周杰伦王力宏邀歌时的反应](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E5%90%AC%E5%88%B0%E5%90%91%E5%91%A8%E6%9D%B0%E4%BC%A6%E7%8E%8B%E5%8A%9B%E5%AE%8F%E9%82%80%E6%AD%8C%E6%97%B6%E7%9A%84%E5%8F%8D%E5%BA%94%23&Refer=top) `1.0M 🔥`
 1. [女子称花6万元割双眼皮视力下降](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E7%A7%B0%E8%8A%B16%E4%B8%87%E5%85%83%E5%89%B2%E5%8F%8C%E7%9C%BC%E7%9A%AE%E8%A7%86%E5%8A%9B%E4%B8%8B%E9%99%8D%23&Refer=top) `1.0M 🔥`
 1. [白敬亭的脸被台标挡住了](https://s.weibo.com/weibo?q=%23%E7%99%BD%E6%95%AC%E4%BA%AD%E7%9A%84%E8%84%B8%E8%A2%AB%E5%8F%B0%E6%A0%87%E6%8C%A1%E4%BD%8F%E4%BA%86%23&Refer=top) `980.7K 🔥`
@@ -57,7 +57,7 @@
 1. [想去美术学院捡垃圾](https://s.weibo.com/weibo?q=%23%E6%83%B3%E5%8E%BB%E7%BE%8E%E6%9C%AF%E5%AD%A6%E9%99%A2%E6%8D%A1%E5%9E%83%E5%9C%BE%23&Refer=top) `754.8K 🔥`
 1. [景甜生图](https://s.weibo.com/weibo?q=%23%E6%99%AF%E7%94%9C%E7%94%9F%E5%9B%BE%23&Refer=top) `721.4K 🔥`
 
-数据更新于 2021-07-13 16:31:16
+数据更新于 2021-07-13 16:42:25
 
 <!-- END -->
 
