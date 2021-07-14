@@ -26,6 +26,7 @@
 1. [上海地铁提醒车厢内少跷二郎腿](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E5%9C%B0%E9%93%81%E6%8F%90%E9%86%92%E8%BD%A6%E5%8E%A2%E5%86%85%E5%B0%91%E8%B7%B7%E4%BA%8C%E9%83%8E%E8%85%BF%23&Refer=top) `545.6K 🔥`
 1. [童谣被逼道歉](https://s.weibo.com/weibo?q=%23%E7%AB%A5%E8%B0%A3%E8%A2%AB%E9%80%BC%E9%81%93%E6%AD%89%23&Refer=top) `543.2K 🔥`
 1. [丝瓜千万要斜着切](https://s.weibo.com/weibo?q=%23%E4%B8%9D%E7%93%9C%E5%8D%83%E4%B8%87%E8%A6%81%E6%96%9C%E7%9D%80%E5%88%87%23&Refer=top) `538.4K 🔥`
+1. [张柏芝对儿子进娱乐圈的态度](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%9F%8F%E8%8A%9D%E5%AF%B9%E5%84%BF%E5%AD%90%E8%BF%9B%E5%A8%B1%E4%B9%90%E5%9C%88%E7%9A%84%E6%80%81%E5%BA%A6%23&Refer=top) `534.3K 🔥`
 1. [B站因服务器故障向部分用户发放补偿](https://s.weibo.com/weibo?q=%23B%E7%AB%99%E5%9B%A0%E6%9C%8D%E5%8A%A1%E5%99%A8%E6%95%85%E9%9A%9C%E5%90%91%E9%83%A8%E5%88%86%E7%94%A8%E6%88%B7%E5%8F%91%E6%94%BE%E8%A1%A5%E5%81%BF%23&Refer=top) `533.2K 🔥`
 1. [宣璐嗑cp代餐恋爱](https://s.weibo.com/weibo?q=%23%E5%AE%A3%E7%92%90%E5%97%91cp%E4%BB%A3%E9%A4%90%E6%81%8B%E7%88%B1%23&Refer=top) `501.3K 🔥`
 1. [父亲威胁将3岁儿子扔下14楼被捕](https://s.weibo.com/weibo?q=%23%E7%88%B6%E4%BA%B2%E5%A8%81%E8%83%81%E5%B0%863%E5%B2%81%E5%84%BF%E5%AD%90%E6%89%94%E4%B8%8B14%E6%A5%BC%E8%A2%AB%E6%8D%95%23&Refer=top) `500.3K 🔥`
@@ -35,7 +36,6 @@
 1. [原来桃子之间也有竞争](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E6%A1%83%E5%AD%90%E4%B9%8B%E9%97%B4%E4%B9%9F%E6%9C%89%E7%AB%9E%E4%BA%89%23&Refer=top) `493.6K 🔥`
 1. [情侣扶梯上热吻仰翻摔下](https://s.weibo.com/weibo?q=%23%E6%83%85%E4%BE%A3%E6%89%B6%E6%A2%AF%E4%B8%8A%E7%83%AD%E5%90%BB%E4%BB%B0%E7%BF%BB%E6%91%94%E4%B8%8B%23&Refer=top) `481.0K 🔥`
 1. [李子柒柴米油盐酱醋茶完结](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E5%AD%90%E6%9F%92%E6%9F%B4%E7%B1%B3%E6%B2%B9%E7%9B%90%E9%85%B1%E9%86%8B%E8%8C%B6%E5%AE%8C%E7%BB%93%23&Refer=top) `474.8K 🔥`
-1. [张柏芝对儿子进娱乐圈的态度](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%9F%8F%E8%8A%9D%E5%AF%B9%E5%84%BF%E5%AD%90%E8%BF%9B%E5%A8%B1%E4%B9%90%E5%9C%88%E7%9A%84%E6%80%81%E5%BA%A6%23&Refer=top) `438.7K 🔥`
 1. [王一博张哲瀚撞衫](https://s.weibo.com/weibo?q=%E7%8E%8B%E4%B8%80%E5%8D%9A%E5%BC%A0%E5%93%B2%E7%80%9A%E6%92%9E%E8%A1%AB&Refer=top) `425.3K 🔥`
 1. [民警吃饭认出服务员是嫌疑人](https://s.weibo.com/weibo?q=%23%E6%B0%91%E8%AD%A6%E5%90%83%E9%A5%AD%E8%AE%A4%E5%87%BA%E6%9C%8D%E5%8A%A1%E5%91%98%E6%98%AF%E5%AB%8C%E7%96%91%E4%BA%BA%23&Refer=top) `416.1K 🔥`
 1. [全国已连续4年多未发生暴恐案事件](https://s.weibo.com/weibo?q=%23%E5%85%A8%E5%9B%BD%E5%B7%B2%E8%BF%9E%E7%BB%AD4%E5%B9%B4%E5%A4%9A%E6%9C%AA%E5%8F%91%E7%94%9F%E6%9A%B4%E6%81%90%E6%A1%88%E4%BA%8B%E4%BB%B6%23&Refer=top) `403.3K 🔥`
@@ -57,7 +57,7 @@
 1. [阮经天方否认与宋祖儿恋情](https://s.weibo.com/weibo?q=%23%E9%98%AE%E7%BB%8F%E5%A4%A9%E6%96%B9%E5%90%A6%E8%AE%A4%E4%B8%8E%E5%AE%8B%E7%A5%96%E5%84%BF%E6%81%8B%E6%83%85%23&Refer=top) `251.8K 🔥`
 1. [张嘉倪接发vlog](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%98%89%E5%80%AA%E6%8E%A5%E5%8F%91vlog%23&Refer=top) `249.6K 🔥`
 
-数据更新于 2021-07-15 07:05:53
+数据更新于 2021-07-15 07:22:48
 
 <!-- END -->
 
