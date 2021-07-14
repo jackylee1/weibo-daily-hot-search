@@ -40,6 +40,7 @@
 1. [频繁聊天会出现恋爱错觉吗](https://s.weibo.com/weibo?q=%23%E9%A2%91%E7%B9%81%E8%81%8A%E5%A4%A9%E4%BC%9A%E5%87%BA%E7%8E%B0%E6%81%8B%E7%88%B1%E9%94%99%E8%A7%89%E5%90%97%23&Refer=top) `2.0M 🔥`
 1. [陈晓回复粉丝评论好搞笑](https://s.weibo.com/weibo?q=%23%E9%99%88%E6%99%93%E5%9B%9E%E5%A4%8D%E7%B2%89%E4%B8%9D%E8%AF%84%E8%AE%BA%E5%A5%BD%E6%90%9E%E7%AC%91%23&Refer=top) `1.9M 🔥`
 1. [连口型都对得上](https://s.weibo.com/weibo?q=%23%E8%BF%9E%E5%8F%A3%E5%9E%8B%E9%83%BD%E5%AF%B9%E5%BE%97%E4%B8%8A%23&Refer=top) `1.9M 🔥`
+1. [女儿吐槽妈妈花800买歌手代言咖啡机](https://s.weibo.com/weibo?q=%E5%A5%B3%E5%84%BF%E5%90%90%E6%A7%BD%E5%A6%88%E5%A6%88%E8%8A%B1800%E4%B9%B0%E6%AD%8C%E6%89%8B%E4%BB%A3%E8%A8%80%E5%92%96%E5%95%A1%E6%9C%BA&Refer=top) `1.9M 🔥`
 1. [王一博受伤做核磁共振](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E4%B8%80%E5%8D%9A%E5%8F%97%E4%BC%A4%E5%81%9A%E6%A0%B8%E7%A3%81%E5%85%B1%E6%8C%AF%23&Refer=top) `1.9M 🔥`
 1. [新疆各民族平等权利的保障白皮书](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%96%86%E5%90%84%E6%B0%91%E6%97%8F%E5%B9%B3%E7%AD%89%E6%9D%83%E5%88%A9%E7%9A%84%E4%BF%9D%E9%9A%9C%E7%99%BD%E7%9A%AE%E4%B9%A6%23&Refer=top) `1.8M 🔥`
 1. [陕西榆林全面关停中小学学科类校外培训](https://s.weibo.com/weibo?q=%23%E9%99%95%E8%A5%BF%E6%A6%86%E6%9E%97%E5%85%A8%E9%9D%A2%E5%85%B3%E5%81%9C%E4%B8%AD%E5%B0%8F%E5%AD%A6%E5%AD%A6%E7%A7%91%E7%B1%BB%E6%A0%A1%E5%A4%96%E5%9F%B9%E8%AE%AD%23&Refer=top) `1.7M 🔥`
@@ -55,9 +56,8 @@
 1. [林峯承诺张馨月两年内办婚礼](https://s.weibo.com/weibo?q=%23%E6%9E%97%E5%B3%AF%E6%89%BF%E8%AF%BA%E5%BC%A0%E9%A6%A8%E6%9C%88%E4%B8%A4%E5%B9%B4%E5%86%85%E5%8A%9E%E5%A9%9A%E7%A4%BC%23&Refer=top) `1.5M 🔥`
 1. [20年前的那声Beijing](https://s.weibo.com/weibo?q=%2320%E5%B9%B4%E5%89%8D%E7%9A%84%E9%82%A3%E5%A3%B0Beijing%23&Refer=top) `1.4M 🔥`
 1. [巴赫误将日本人说成中国人](https://s.weibo.com/weibo?q=%23%E5%B7%B4%E8%B5%AB%E8%AF%AF%E5%B0%86%E6%97%A5%E6%9C%AC%E4%BA%BA%E8%AF%B4%E6%88%90%E4%B8%AD%E5%9B%BD%E4%BA%BA%23&Refer=top) `1.4M 🔥`
-1. [小燕子的眼睛能有多大](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E7%87%95%E5%AD%90%E7%9A%84%E7%9C%BC%E7%9D%9B%E8%83%BD%E6%9C%89%E5%A4%9A%E5%A4%A7%23&Refer=top) `1.3M 🔥`
 
-数据更新于 2021-07-14 22:21:26
+数据更新于 2021-07-14 22:36:27
 
 <!-- END -->
 
