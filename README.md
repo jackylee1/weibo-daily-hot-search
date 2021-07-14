@@ -10,19 +10,23 @@
 1. [港大不再承认学生会在校内的角色](https://s.weibo.com/weibo?q=%23%E6%B8%AF%E5%A4%A7%E4%B8%8D%E5%86%8D%E6%89%BF%E8%AE%A4%E5%AD%A6%E7%94%9F%E4%BC%9A%E5%9C%A8%E6%A0%A1%E5%86%85%E7%9A%84%E8%A7%92%E8%89%B2%23&Refer=top) `5.3M 🔥`
 1. [A站也崩了](https://s.weibo.com/weibo?q=A%E7%AB%99%E4%B9%9F%E5%B4%A9%E4%BA%86&Refer=top) `2.7M 🔥`
 1. [上海云海服务器](https://s.weibo.com/weibo?q=%E4%B8%8A%E6%B5%B7%E4%BA%91%E6%B5%B7%E6%9C%8D%E5%8A%A1%E5%99%A8&Refer=top) `2.5M 🔥`
-1. [王一博受伤做核磁共振](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E4%B8%80%E5%8D%9A%E5%8F%97%E4%BC%A4%E5%81%9A%E6%A0%B8%E7%A3%81%E5%85%B1%E6%8C%AF%23&Refer=top) `1.7M 🔥`
+1. [王一博受伤做核磁共振](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E4%B8%80%E5%8D%9A%E5%8F%97%E4%BC%A4%E5%81%9A%E6%A0%B8%E7%A3%81%E5%85%B1%E6%8C%AF%23&Refer=top) `1.9M 🔥`
 1. [20年前的那声Beijing](https://s.weibo.com/weibo?q=%2320%E5%B9%B4%E5%89%8D%E7%9A%84%E9%82%A3%E5%A3%B0Beijing%23&Refer=top) `1.4M 🔥`
 1. [小燕子的眼睛能有多大](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E7%87%95%E5%AD%90%E7%9A%84%E7%9C%BC%E7%9D%9B%E8%83%BD%E6%9C%89%E5%A4%9A%E5%A4%A7%23&Refer=top) `1.3M 🔥`
 1. [减肥瘦十斤是什么概念](https://s.weibo.com/weibo?q=%23%E5%87%8F%E8%82%A5%E7%98%A6%E5%8D%81%E6%96%A4%E6%98%AF%E4%BB%80%E4%B9%88%E6%A6%82%E5%BF%B5%23&Refer=top) `1.3M 🔥`
+1. [B站服务器机房故障造成无法访问](https://s.weibo.com/weibo?q=B%E7%AB%99%E6%9C%8D%E5%8A%A1%E5%99%A8%E6%9C%BA%E6%88%BF%E6%95%85%E9%9A%9C%E9%80%A0%E6%88%90%E6%97%A0%E6%B3%95%E8%AE%BF%E9%97%AE&Refer=top) `1.2M 🔥`
+1. [央视主播提醒有些人别动歪脑筋](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E4%B8%BB%E6%92%AD%E6%8F%90%E9%86%92%E6%9C%89%E4%BA%9B%E4%BA%BA%E5%88%AB%E5%8A%A8%E6%AD%AA%E8%84%91%E7%AD%8B%23&Refer=top) `1.1M 🔥`
+1. [离家六年阳台长出两棵大树](https://s.weibo.com/weibo?q=%23%E7%A6%BB%E5%AE%B6%E5%85%AD%E5%B9%B4%E9%98%B3%E5%8F%B0%E9%95%BF%E5%87%BA%E4%B8%A4%E6%A3%B5%E5%A4%A7%E6%A0%91%23&Refer=top) `1.1M 🔥`
 1. [请回答1988真的太好哭了](https://s.weibo.com/weibo?q=%23%E8%AF%B7%E5%9B%9E%E7%AD%941988%E7%9C%9F%E7%9A%84%E5%A4%AA%E5%A5%BD%E5%93%AD%E4%BA%86%23&Refer=top) `1.1M 🔥`
-1. [离家六年阳台长出两棵大树](https://s.weibo.com/weibo?q=%23%E7%A6%BB%E5%AE%B6%E5%85%AD%E5%B9%B4%E9%98%B3%E5%8F%B0%E9%95%BF%E5%87%BA%E4%B8%A4%E6%A3%B5%E5%A4%A7%E6%A0%91%23&Refer=top) `951.4K 🔥`
 1. [丈夫迷恋女主播妻子带女儿投江](https://s.weibo.com/weibo?q=%23%E4%B8%88%E5%A4%AB%E8%BF%B7%E6%81%8B%E5%A5%B3%E4%B8%BB%E6%92%AD%E5%A6%BB%E5%AD%90%E5%B8%A6%E5%A5%B3%E5%84%BF%E6%8A%95%E6%B1%9F%23&Refer=top) `870.8K 🔥`
 1. [谷嘉诚 切走半块香皂](https://s.weibo.com/weibo?q=%E8%B0%B7%E5%98%89%E8%AF%9A%20%E5%88%87%E8%B5%B0%E5%8D%8A%E5%9D%97%E9%A6%99%E7%9A%82&Refer=top) `805.9K 🔥`
+1. [上海消防称B站大楼未见火情](https://s.weibo.com/weibo?q=%E4%B8%8A%E6%B5%B7%E6%B6%88%E9%98%B2%E7%A7%B0B%E7%AB%99%E5%A4%A7%E6%A5%BC%E6%9C%AA%E8%A7%81%E7%81%AB%E6%83%85&Refer=top) `790.0K 🔥`
 1. [隐形社恐](https://s.weibo.com/weibo?q=%23%E9%9A%90%E5%BD%A2%E7%A4%BE%E6%81%90%23&Refer=top) `713.6K 🔥`
 1. [梅桢放弃华东政法大学任教机会](https://s.weibo.com/weibo?q=%23%E6%A2%85%E6%A1%A2%E6%94%BE%E5%BC%83%E5%8D%8E%E4%B8%9C%E6%94%BF%E6%B3%95%E5%A4%A7%E5%AD%A6%E4%BB%BB%E6%95%99%E6%9C%BA%E4%BC%9A%23&Refer=top) `695.6K 🔥`
 1. [刘国梁说这次奥运会备战极其艰难](https://s.weibo.com/weibo?q=%23%E5%88%98%E5%9B%BD%E6%A2%81%E8%AF%B4%E8%BF%99%E6%AC%A1%E5%A5%A5%E8%BF%90%E4%BC%9A%E5%A4%87%E6%88%98%E6%9E%81%E5%85%B6%E8%89%B0%E9%9A%BE%23&Refer=top) `691.1K 🔥`
 1. [王一博 纪录片](https://s.weibo.com/weibo?q=%E7%8E%8B%E4%B8%80%E5%8D%9A%20%E7%BA%AA%E5%BD%95%E7%89%87&Refer=top) `691.1K 🔥`
 1. [比尔盖茨承认是自己搞砸了婚姻](https://s.weibo.com/weibo?q=%23%E6%AF%94%E5%B0%94%E7%9B%96%E8%8C%A8%E6%89%BF%E8%AE%A4%E6%98%AF%E8%87%AA%E5%B7%B1%E6%90%9E%E7%A0%B8%E4%BA%86%E5%A9%9A%E5%A7%BB%23&Refer=top) `605.2K 🔥`
+1. [东京奥运乒乓球比赛不许手触球台或吹球](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E4%BA%AC%E5%A5%A5%E8%BF%90%E4%B9%92%E4%B9%93%E7%90%83%E6%AF%94%E8%B5%9B%E4%B8%8D%E8%AE%B8%E6%89%8B%E8%A7%A6%E7%90%83%E5%8F%B0%E6%88%96%E5%90%B9%E7%90%83%23&Refer=top) `603.9K 🔥`
 1. [电影失孤中的两个细节成真了](https://s.weibo.com/weibo?q=%23%E7%94%B5%E5%BD%B1%E5%A4%B1%E5%AD%A4%E4%B8%AD%E7%9A%84%E4%B8%A4%E4%B8%AA%E7%BB%86%E8%8A%82%E6%88%90%E7%9C%9F%E4%BA%86%23&Refer=top) `574.0K 🔥`
 1. [b站 停电](https://s.weibo.com/weibo?q=b%E7%AB%99%20%E5%81%9C%E7%94%B5&Refer=top) `573.6K 🔥`
 1. [陈睿](https://s.weibo.com/weibo?q=%E9%99%88%E7%9D%BF&Refer=top) `572.9K 🔥`
@@ -51,13 +55,9 @@
 1. [赵立坚说中国必须也必然统一](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E7%AB%8B%E5%9D%9A%E8%AF%B4%E4%B8%AD%E5%9B%BD%E5%BF%85%E9%A1%BB%E4%B9%9F%E5%BF%85%E7%84%B6%E7%BB%9F%E4%B8%80%23&Refer=top) `363.4K 🔥`
 1. [拜托了冰箱](https://s.weibo.com/weibo?q=%E6%8B%9C%E6%89%98%E4%BA%86%E5%86%B0%E7%AE%B1&Refer=top) `359.1K 🔥`
 1. [如何快速在产房出名](https://s.weibo.com/weibo?q=%23%E5%A6%82%E4%BD%95%E5%BF%AB%E9%80%9F%E5%9C%A8%E4%BA%A7%E6%88%BF%E5%87%BA%E5%90%8D%23&Refer=top) `357.9K 🔥`
-1. [B站服务器机房故障造成无法访问](https://s.weibo.com/weibo?q=B%E7%AB%99%E6%9C%8D%E5%8A%A1%E5%99%A8%E6%9C%BA%E6%88%BF%E6%95%85%E9%9A%9C%E9%80%A0%E6%88%90%E6%97%A0%E6%B3%95%E8%AE%BF%E9%97%AE&Refer=top) `330.8K 🔥`
 1. [喻言密室拍照教学](https://s.weibo.com/weibo?q=%23%E5%96%BB%E8%A8%80%E5%AF%86%E5%AE%A4%E6%8B%8D%E7%85%A7%E6%95%99%E5%AD%A6%23&Refer=top) `327.3K 🔥`
-1. [走私生物试剂被检测出2种病毒](https://s.weibo.com/weibo?q=%23%E8%B5%B0%E7%A7%81%E7%94%9F%E7%89%A9%E8%AF%95%E5%89%82%E8%A2%AB%E6%A3%80%E6%B5%8B%E5%87%BA2%E7%A7%8D%E7%97%85%E6%AF%92%23&Refer=top) `327.2K 🔥`
-1. [陆思诚五杀好燃](https://s.weibo.com/weibo?q=%23%E9%99%86%E6%80%9D%E8%AF%9A%E4%BA%94%E6%9D%80%E5%A5%BD%E7%87%83%23&Refer=top) `278.4K 🔥`
-1. [缉毒警察灵魂拷问四连](https://s.weibo.com/weibo?q=%23%E7%BC%89%E6%AF%92%E8%AD%A6%E5%AF%9F%E7%81%B5%E9%AD%82%E6%8B%B7%E9%97%AE%E5%9B%9B%E8%BF%9E%23&Refer=top) `278.0K 🔥`
 
-数据更新于 2021-07-14 07:54:47
+数据更新于 2021-07-14 08:12:36
 
 <!-- END -->
 
