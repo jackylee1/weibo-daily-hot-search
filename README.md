@@ -53,11 +53,11 @@
 1. [3D打印技术再现30座广东红色建筑](https://s.weibo.com/weibo?q=%233D%E6%89%93%E5%8D%B0%E6%8A%80%E6%9C%AF%E5%86%8D%E7%8E%B030%E5%BA%A7%E5%B9%BF%E4%B8%9C%E7%BA%A2%E8%89%B2%E5%BB%BA%E7%AD%91%23&Refer=top) `267.6K 🔥`
 1. [抽脂去世网红好友讲述事发经过](https://s.weibo.com/weibo?q=%23%E6%8A%BD%E8%84%82%E5%8E%BB%E4%B8%96%E7%BD%91%E7%BA%A2%E5%A5%BD%E5%8F%8B%E8%AE%B2%E8%BF%B0%E4%BA%8B%E5%8F%91%E7%BB%8F%E8%BF%87%23&Refer=top) `263.0K 🔥`
 1. [奥运高光图鉴](https://s.weibo.com/weibo?q=%23%E5%A5%A5%E8%BF%90%E9%AB%98%E5%85%89%E5%9B%BE%E9%89%B4%23&Refer=top) `244.7K 🔥`
+1. [霍思燕看中国医生哭了](https://s.weibo.com/weibo?q=%23%E9%9C%8D%E6%80%9D%E7%87%95%E7%9C%8B%E4%B8%AD%E5%9B%BD%E5%8C%BB%E7%94%9F%E5%93%AD%E4%BA%86%23&Refer=top) `244.5K 🔥`
 1. [机智的医生生活](https://s.weibo.com/weibo?q=%E6%9C%BA%E6%99%BA%E7%9A%84%E5%8C%BB%E7%94%9F%E7%94%9F%E6%B4%BB&Refer=top) `242.3K 🔥`
 1. [南京37度高温天下冰雹](https://s.weibo.com/weibo?q=%23%E5%8D%97%E4%BA%AC37%E5%BA%A6%E9%AB%98%E6%B8%A9%E5%A4%A9%E4%B8%8B%E5%86%B0%E9%9B%B9%23&Refer=top) `241.5K 🔥`
-1. [北京153家医院已实现一键报警](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC153%E5%AE%B6%E5%8C%BB%E9%99%A2%E5%B7%B2%E5%AE%9E%E7%8E%B0%E4%B8%80%E9%94%AE%E6%8A%A5%E8%AD%A6%23&Refer=top) `239.1K 🔥`
 
-数据更新于 2021-07-16 06:41:45
+数据更新于 2021-07-16 06:47:55
 
 <!-- END -->
 
