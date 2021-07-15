@@ -41,6 +41,7 @@
 1. [B站回应崩溃补偿会自动续费](https://s.weibo.com/weibo?q=%23B%E7%AB%99%E5%9B%9E%E5%BA%94%E5%B4%A9%E6%BA%83%E8%A1%A5%E5%81%BF%E4%BC%9A%E8%87%AA%E5%8A%A8%E7%BB%AD%E8%B4%B9%23&Refer=top) `1.0M 🔥`
 1. [笔记本电脑需要每天关机吗](https://s.weibo.com/weibo?q=%23%E7%AC%94%E8%AE%B0%E6%9C%AC%E7%94%B5%E8%84%91%E9%9C%80%E8%A6%81%E6%AF%8F%E5%A4%A9%E5%85%B3%E6%9C%BA%E5%90%97%23&Refer=top) `1.0M 🔥`
 1. [东京很可能是他们最后一届奥运](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E4%BA%AC%E5%BE%88%E5%8F%AF%E8%83%BD%E6%98%AF%E4%BB%96%E4%BB%AC%E6%9C%80%E5%90%8E%E4%B8%80%E5%B1%8A%E5%A5%A5%E8%BF%90%23&Refer=top) `986.4K 🔥`
+1. [24岁小伙高温天打球后当场猝死](https://s.weibo.com/weibo?q=%2324%E5%B2%81%E5%B0%8F%E4%BC%99%E9%AB%98%E6%B8%A9%E5%A4%A9%E6%89%93%E7%90%83%E5%90%8E%E5%BD%93%E5%9C%BA%E7%8C%9D%E6%AD%BB%23&Refer=top) `982.7K 🔥`
 1. [男子月入上万拒支付儿子抚养费被判刑](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E6%9C%88%E5%85%A5%E4%B8%8A%E4%B8%87%E6%8B%92%E6%94%AF%E4%BB%98%E5%84%BF%E5%AD%90%E6%8A%9A%E5%85%BB%E8%B4%B9%E8%A2%AB%E5%88%A4%E5%88%91%23&Refer=top) `978.8K 🔥`
 1. [人人视频回应大量内容下架](https://s.weibo.com/weibo?q=%23%E4%BA%BA%E4%BA%BA%E8%A7%86%E9%A2%91%E5%9B%9E%E5%BA%94%E5%A4%A7%E9%87%8F%E5%86%85%E5%AE%B9%E4%B8%8B%E6%9E%B6%23&Refer=top) `907.5K 🔥`
 1. [男子工作5年体重飙至400斤](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E5%B7%A5%E4%BD%9C5%E5%B9%B4%E4%BD%93%E9%87%8D%E9%A3%99%E8%87%B3400%E6%96%A4%23&Refer=top) `879.9K 🔥`
@@ -55,9 +56,8 @@
 1. [汶川地震震中画面](https://s.weibo.com/weibo?q=%23%E6%B1%B6%E5%B7%9D%E5%9C%B0%E9%9C%87%E9%9C%87%E4%B8%AD%E7%94%BB%E9%9D%A2%23&Refer=top) `783.0K 🔥`
 1. [港男有多会保养](https://s.weibo.com/weibo?q=%23%E6%B8%AF%E7%94%B7%E6%9C%89%E5%A4%9A%E4%BC%9A%E4%BF%9D%E5%85%BB%23&Refer=top) `763.2K 🔥`
 1. [男童被锁家中5楼坠落奇迹生还](https://s.weibo.com/weibo?q=%23%E7%94%B7%E7%AB%A5%E8%A2%AB%E9%94%81%E5%AE%B6%E4%B8%AD5%E6%A5%BC%E5%9D%A0%E8%90%BD%E5%A5%87%E8%BF%B9%E7%94%9F%E8%BF%98%23&Refer=top) `752.1K 🔥`
-1. [Angelababy说瞬间的崩溃难以自愈](https://s.weibo.com/weibo?q=%23Angelababy%E8%AF%B4%E7%9E%AC%E9%97%B4%E7%9A%84%E5%B4%A9%E6%BA%83%E9%9A%BE%E4%BB%A5%E8%87%AA%E6%84%88%23&Refer=top) `751.9K 🔥`
 
-数据更新于 2021-07-15 18:12:44
+数据更新于 2021-07-15 18:32:14
 
 <!-- END -->
 
