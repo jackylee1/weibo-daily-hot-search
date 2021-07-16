@@ -10,6 +10,7 @@
 1. [南昌杀妻抛尸案被告被判死刑](https://s.weibo.com/weibo?q=%23%E5%8D%97%E6%98%8C%E6%9D%80%E5%A6%BB%E6%8A%9B%E5%B0%B8%E6%A1%88%E8%A2%AB%E5%91%8A%E8%A2%AB%E5%88%A4%E6%AD%BB%E5%88%91%23&Refer=top) `6.8M 🔥`
 1. [龚俊工作室注销](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E5%B7%A5%E4%BD%9C%E5%AE%A4%E6%B3%A8%E9%94%80%23&Refer=top) `4.8M 🔥`
 1. [重庆两幼童坠亡生父被捕](https://s.weibo.com/weibo?q=%23%E9%87%8D%E5%BA%86%E4%B8%A4%E5%B9%BC%E7%AB%A5%E5%9D%A0%E4%BA%A1%E7%94%9F%E7%88%B6%E8%A2%AB%E6%8D%95%23&Refer=top) `4.0M 🔥`
+1. [华晨宇方律师声明](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E6%99%A8%E5%AE%87%E6%96%B9%E5%BE%8B%E5%B8%88%E5%A3%B0%E6%98%8E%23&Refer=top) `3.7M 🔥`
 1. [京牌车现身东京街头](https://s.weibo.com/weibo?q=%23%E4%BA%AC%E7%89%8C%E8%BD%A6%E7%8E%B0%E8%BA%AB%E4%B8%9C%E4%BA%AC%E8%A1%97%E5%A4%B4%23&Refer=top) `3.3M 🔥`
 1. [金毛Siri主人发声](https://s.weibo.com/weibo?q=%23%E9%87%91%E6%AF%9BSiri%E4%B8%BB%E4%BA%BA%E5%8F%91%E5%A3%B0%23&Refer=top) `3.1M 🔥`
 1. [金毛Siri](https://s.weibo.com/weibo?q=%23%E9%87%91%E6%AF%9BSiri%23&Refer=top) `2.9M 🔥`
@@ -23,7 +24,6 @@
 1. [小龙虾吃到一半突然活了一只](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E9%BE%99%E8%99%BE%E5%90%83%E5%88%B0%E4%B8%80%E5%8D%8A%E7%AA%81%E7%84%B6%E6%B4%BB%E4%BA%86%E4%B8%80%E5%8F%AA%23&Refer=top) `2.3M 🔥`
 1. [李惠利感谢柳俊烈应援](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E6%83%A0%E5%88%A9%E6%84%9F%E8%B0%A2%E6%9F%B3%E4%BF%8A%E7%83%88%E5%BA%94%E6%8F%B4%23&Refer=top) `1.9M 🔥`
 1. [苹果新emoji疑有男妈妈表情](https://s.weibo.com/weibo?q=%23%E8%8B%B9%E6%9E%9C%E6%96%B0emoji%E7%96%91%E6%9C%89%E7%94%B7%E5%A6%88%E5%A6%88%E8%A1%A8%E6%83%85%23&Refer=top) `1.9M 🔥`
-1. [华晨宇方律师声明](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E6%99%A8%E5%AE%87%E6%96%B9%E5%BE%8B%E5%B8%88%E5%A3%B0%E6%98%8E%23&Refer=top) `1.9M 🔥`
 1. [两个儿子同天被拐父亲苦寻28年](https://s.weibo.com/weibo?q=%23%E4%B8%A4%E4%B8%AA%E5%84%BF%E5%AD%90%E5%90%8C%E5%A4%A9%E8%A2%AB%E6%8B%90%E7%88%B6%E4%BA%B2%E8%8B%A6%E5%AF%BB28%E5%B9%B4%23&Refer=top) `1.8M 🔥`
 1. [致命女人](https://s.weibo.com/weibo?q=%E8%87%B4%E5%91%BD%E5%A5%B3%E4%BA%BA&Refer=top) `1.8M 🔥`
 1. [南京一秒变天黑](https://s.weibo.com/weibo?q=%23%E5%8D%97%E4%BA%AC%E4%B8%80%E7%A7%92%E5%8F%98%E5%A4%A9%E9%BB%91%23&Refer=top) `1.7M 🔥`
@@ -40,6 +40,7 @@
 1. [国家安全部等七部门联合进驻滴滴](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E5%AE%B6%E5%AE%89%E5%85%A8%E9%83%A8%E7%AD%89%E4%B8%83%E9%83%A8%E9%97%A8%E8%81%94%E5%90%88%E8%BF%9B%E9%A9%BB%E6%BB%B4%E6%BB%B4%23&Refer=top) `1.3M 🔥`
 1. [SM向私生饭宣战](https://s.weibo.com/weibo?q=%23SM%E5%90%91%E7%A7%81%E7%94%9F%E9%A5%AD%E5%AE%A3%E6%88%98%23&Refer=top) `1.2M 🔥`
 1. [网信办等七部门进驻滴滴](https://s.weibo.com/weibo?q=%23%E7%BD%91%E4%BF%A1%E5%8A%9E%E7%AD%89%E4%B8%83%E9%83%A8%E9%97%A8%E8%BF%9B%E9%A9%BB%E6%BB%B4%E6%BB%B4%23&Refer=top) `1.2M 🔥`
+1. [郭美美被上海铁检院提起公诉](https://s.weibo.com/weibo?q=%23%E9%83%AD%E7%BE%8E%E7%BE%8E%E8%A2%AB%E4%B8%8A%E6%B5%B7%E9%93%81%E6%A3%80%E9%99%A2%E6%8F%90%E8%B5%B7%E5%85%AC%E8%AF%89%23&Refer=top) `1.2M 🔥`
 1. [朴泰桓韩惠珍确诊新冠](https://s.weibo.com/weibo?q=%23%E6%9C%B4%E6%B3%B0%E6%A1%93%E9%9F%A9%E6%83%A0%E7%8F%8D%E7%A1%AE%E8%AF%8A%E6%96%B0%E5%86%A0%23&Refer=top) `1.1M 🔥`
 1. [鲍师傅估值达100亿](https://s.weibo.com/weibo?q=%23%E9%B2%8D%E5%B8%88%E5%82%85%E4%BC%B0%E5%80%BC%E8%BE%BE100%E4%BA%BF%23&Refer=top) `1.1M 🔥`
 1. [都美竹 我报警了但目前并没有起诉](https://s.weibo.com/weibo?q=%E9%83%BD%E7%BE%8E%E7%AB%B9%20%E6%88%91%E6%8A%A5%E8%AD%A6%E4%BA%86%E4%BD%86%E7%9B%AE%E5%89%8D%E5%B9%B6%E6%B2%A1%E6%9C%89%E8%B5%B7%E8%AF%89&Refer=top) `1.1M 🔥`
@@ -55,9 +56,8 @@
 1. [孙俪一家四口海边背影照](https://s.weibo.com/weibo?q=%23%E5%AD%99%E4%BF%AA%E4%B8%80%E5%AE%B6%E5%9B%9B%E5%8F%A3%E6%B5%B7%E8%BE%B9%E8%83%8C%E5%BD%B1%E7%85%A7%23&Refer=top) `963.0K 🔥`
 1. [6毛钱就能买到产妇真实信息](https://s.weibo.com/weibo?q=%236%E6%AF%9B%E9%92%B1%E5%B0%B1%E8%83%BD%E4%B9%B0%E5%88%B0%E4%BA%A7%E5%A6%87%E7%9C%9F%E5%AE%9E%E4%BF%A1%E6%81%AF%23&Refer=top) `945.6K 🔥`
 1. [98岁法医去世遗体捐母校](https://s.weibo.com/weibo?q=%2398%E5%B2%81%E6%B3%95%E5%8C%BB%E5%8E%BB%E4%B8%96%E9%81%97%E4%BD%93%E6%8D%90%E6%AF%8D%E6%A0%A1%23&Refer=top) `939.4K 🔥`
-1. [龚俊 谢谢大家对我演唱事业的肯定](https://s.weibo.com/weibo?q=%E9%BE%9A%E4%BF%8A%20%E8%B0%A2%E8%B0%A2%E5%A4%A7%E5%AE%B6%E5%AF%B9%E6%88%91%E6%BC%94%E5%94%B1%E4%BA%8B%E4%B8%9A%E7%9A%84%E8%82%AF%E5%AE%9A&Refer=top) `936.1K 🔥`
 
-数据更新于 2021-07-16 19:42:43
+数据更新于 2021-07-16 19:48:58
 
 <!-- END -->
 
