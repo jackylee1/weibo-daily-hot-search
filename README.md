@@ -57,7 +57,7 @@
 1. [海地前公职人员下令刺杀海地总统](https://s.weibo.com/weibo?q=%23%E6%B5%B7%E5%9C%B0%E5%89%8D%E5%85%AC%E8%81%8C%E4%BA%BA%E5%91%98%E4%B8%8B%E4%BB%A4%E5%88%BA%E6%9D%80%E6%B5%B7%E5%9C%B0%E6%80%BB%E7%BB%9F%23&Refer=top) `1.3M 🔥`
 1. [警方回应女子拿拖鞋拍打婴儿脸](https://s.weibo.com/weibo?q=%23%E8%AD%A6%E6%96%B9%E5%9B%9E%E5%BA%94%E5%A5%B3%E5%AD%90%E6%8B%BF%E6%8B%96%E9%9E%8B%E6%8B%8D%E6%89%93%E5%A9%B4%E5%84%BF%E8%84%B8%23&Refer=top) `1.2M 🔥`
 
-数据更新于 2021-07-17 19:19:17
+数据更新于 2021-07-17 19:27:03
 
 <!-- END -->
 
