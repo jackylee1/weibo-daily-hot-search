@@ -22,6 +22,7 @@
 1. [留守女孩被录取为空军飞行员](https://s.weibo.com/weibo?q=%23%E7%95%99%E5%AE%88%E5%A5%B3%E5%AD%A9%E8%A2%AB%E5%BD%95%E5%8F%96%E4%B8%BA%E7%A9%BA%E5%86%9B%E9%A3%9E%E8%A1%8C%E5%91%98%23&Refer=top) `576.4K 🔥`
 1. [蔡徐坤唱没有意外哭了](https://s.weibo.com/weibo?q=%23%E8%94%A1%E5%BE%90%E5%9D%A4%E5%94%B1%E6%B2%A1%E6%9C%89%E6%84%8F%E5%A4%96%E5%93%AD%E4%BA%86%23&Refer=top) `576.2K 🔥`
 1. [蔡徐坤情人全场大合唱](https://s.weibo.com/weibo?q=%23%E8%94%A1%E5%BE%90%E5%9D%A4%E6%83%85%E4%BA%BA%E5%85%A8%E5%9C%BA%E5%A4%A7%E5%90%88%E5%94%B1%23&Refer=top) `531.5K 🔥`
+1. [乔振宇两小时躲了个寂寞](https://s.weibo.com/weibo?q=%23%E4%B9%94%E6%8C%AF%E5%AE%87%E4%B8%A4%E5%B0%8F%E6%97%B6%E8%BA%B2%E4%BA%86%E4%B8%AA%E5%AF%82%E5%AF%9E%23&Refer=top) `526.1K 🔥`
 1. [朱婷成为中国夏奥首位开幕式女旗手](https://s.weibo.com/weibo?q=%23%E6%9C%B1%E5%A9%B7%E6%88%90%E4%B8%BA%E4%B8%AD%E5%9B%BD%E5%A4%8F%E5%A5%A5%E9%A6%96%E4%BD%8D%E5%BC%80%E5%B9%95%E5%BC%8F%E5%A5%B3%E6%97%97%E6%89%8B%23&Refer=top) `510.8K 🔥`
 1. [张蓝心 于晓光还用得着我骂吗](https://s.weibo.com/weibo?q=%E5%BC%A0%E8%93%9D%E5%BF%83%20%E4%BA%8E%E6%99%93%E5%85%89%E8%BF%98%E7%94%A8%E5%BE%97%E7%9D%80%E6%88%91%E9%AA%82%E5%90%97&Refer=top) `436.1K 🔥`
 1. [牛气满满的哥哥](https://s.weibo.com/weibo?q=%E7%89%9B%E6%B0%94%E6%BB%A1%E6%BB%A1%E7%9A%84%E5%93%A5%E5%93%A5&Refer=top) `435.4K 🔥`
@@ -55,9 +56,8 @@
 1. [范丞丞MissedTexts舞台](https://s.weibo.com/weibo?q=%23%E8%8C%83%E4%B8%9E%E4%B8%9EMissedTexts%E8%88%9E%E5%8F%B0%23&Refer=top) `228.9K 🔥`
 1. [流浪猫会羡慕宠物猫吗](https://s.weibo.com/weibo?q=%23%E6%B5%81%E6%B5%AA%E7%8C%AB%E4%BC%9A%E7%BE%A1%E6%85%95%E5%AE%A0%E7%89%A9%E7%8C%AB%E5%90%97%23&Refer=top) `225.8K 🔥`
 1. [凤凰古城水上夜游上新](https://s.weibo.com/weibo?q=%23%E5%87%A4%E5%87%B0%E5%8F%A4%E5%9F%8E%E6%B0%B4%E4%B8%8A%E5%A4%9C%E6%B8%B8%E4%B8%8A%E6%96%B0%23&Refer=top) `213.1K 🔥`
-1. [小人还能画得这么立体](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E4%BA%BA%E8%BF%98%E8%83%BD%E7%94%BB%E5%BE%97%E8%BF%99%E4%B9%88%E7%AB%8B%E4%BD%93%23&Refer=top) `211.0K 🔥`
 
-数据更新于 2021-07-18 06:07:23
+数据更新于 2021-07-18 06:24:13
 
 <!-- END -->
 
