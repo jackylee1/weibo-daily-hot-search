@@ -53,11 +53,11 @@
 1. [白玦替上古应劫](https://s.weibo.com/weibo?q=%23%E7%99%BD%E7%8E%A6%E6%9B%BF%E4%B8%8A%E5%8F%A4%E5%BA%94%E5%8A%AB%23&Refer=top) `287.4K 🔥`
 1. [哪种方言最接近古人讲的话](https://s.weibo.com/weibo?q=%23%E5%93%AA%E7%A7%8D%E6%96%B9%E8%A8%80%E6%9C%80%E6%8E%A5%E8%BF%91%E5%8F%A4%E4%BA%BA%E8%AE%B2%E7%9A%84%E8%AF%9D%23&Refer=top) `281.6K 🔥`
 1. [王一博无感舞台 EXO的Lotto](https://s.weibo.com/weibo?q=%E7%8E%8B%E4%B8%80%E5%8D%9A%E6%97%A0%E6%84%9F%E8%88%9E%E5%8F%B0%20EXO%E7%9A%84Lotto&Refer=top) `271.0K 🔥`
+1. [撞劳斯莱斯外卖小哥称自己是正常直行](https://s.weibo.com/weibo?q=%23%E6%92%9E%E5%8A%B3%E6%96%AF%E8%8E%B1%E6%96%AF%E5%A4%96%E5%8D%96%E5%B0%8F%E5%93%A5%E7%A7%B0%E8%87%AA%E5%B7%B1%E6%98%AF%E6%AD%A3%E5%B8%B8%E7%9B%B4%E8%A1%8C%23&Refer=top) `266.8K 🔥`
 1. [写给3位航天员的出征满月信](https://s.weibo.com/weibo?q=%23%E5%86%99%E7%BB%993%E4%BD%8D%E8%88%AA%E5%A4%A9%E5%91%98%E7%9A%84%E5%87%BA%E5%BE%81%E6%BB%A1%E6%9C%88%E4%BF%A1%23&Refer=top) `254.3K 🔥`
 1. [王一博无感编曲制作人发文澄清](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E4%B8%80%E5%8D%9A%E6%97%A0%E6%84%9F%E7%BC%96%E6%9B%B2%E5%88%B6%E4%BD%9C%E4%BA%BA%E5%8F%91%E6%96%87%E6%BE%84%E6%B8%85%23&Refer=top) `245.8K 🔥`
-1. [小鬼说电竞行业太残酷了](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E9%AC%BC%E8%AF%B4%E7%94%B5%E7%AB%9E%E8%A1%8C%E4%B8%9A%E5%A4%AA%E6%AE%8B%E9%85%B7%E4%BA%86%23&Refer=top) `244.2K 🔥`
 
-数据更新于 2021-07-19 06:41:50
+数据更新于 2021-07-19 06:48:02
 
 <!-- END -->
 
