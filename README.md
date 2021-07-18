@@ -29,13 +29,14 @@
 1. [豆瓣崩了](https://s.weibo.com/weibo?q=%23%E8%B1%86%E7%93%A3%E5%B4%A9%E4%BA%86%23&Refer=top) `3.2M 🔥`
 1. [老板发福利女员工搬走一车榴莲](https://s.weibo.com/weibo?q=%23%E8%80%81%E6%9D%BF%E5%8F%91%E7%A6%8F%E5%88%A9%E5%A5%B3%E5%91%98%E5%B7%A5%E6%90%AC%E8%B5%B0%E4%B8%80%E8%BD%A6%E6%A6%B4%E8%8E%B2%23&Refer=top) `3.1M 🔥`
 1. [你经历过假性亲密关系吗](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E7%BB%8F%E5%8E%86%E8%BF%87%E5%81%87%E6%80%A7%E4%BA%B2%E5%AF%86%E5%85%B3%E7%B3%BB%E5%90%97%23&Refer=top) `1.9M 🔥`
-1. [青簪行还能播吗](https://s.weibo.com/weibo?q=%23%E9%9D%92%E7%B0%AA%E8%A1%8C%E8%BF%98%E8%83%BD%E6%92%AD%E5%90%97%23&Refer=top) `1.6M 🔥`
+1. [青簪行还能播吗](https://s.weibo.com/weibo?q=%23%E9%9D%92%E7%B0%AA%E8%A1%8C%E8%BF%98%E8%83%BD%E6%92%AD%E5%90%97%23&Refer=top) `1.8M 🔥`
 1. [安珀wang 郭麒麟聊天记录](https://s.weibo.com/weibo?q=%E5%AE%89%E7%8F%80wang%20%E9%83%AD%E9%BA%92%E9%BA%9F%E8%81%8A%E5%A4%A9%E8%AE%B0%E5%BD%95&Refer=top) `1.1M 🔥`
 1. [当年爸妈不让嫁的人怎样了](https://s.weibo.com/weibo?q=%23%E5%BD%93%E5%B9%B4%E7%88%B8%E5%A6%88%E4%B8%8D%E8%AE%A9%E5%AB%81%E7%9A%84%E4%BA%BA%E6%80%8E%E6%A0%B7%E4%BA%86%23&Refer=top) `941.4K 🔥`
 1. [蔡徐坤南京演唱会官宣](https://s.weibo.com/weibo?q=%23%E8%94%A1%E5%BE%90%E5%9D%A4%E5%8D%97%E4%BA%AC%E6%BC%94%E5%94%B1%E4%BC%9A%E5%AE%98%E5%AE%A3%23&Refer=top) `920.0K 🔥`
 1. [良品铺子已终止与吴亦凡合作](https://s.weibo.com/weibo?q=%23%E8%89%AF%E5%93%81%E9%93%BA%E5%AD%90%E5%B7%B2%E7%BB%88%E6%AD%A2%E4%B8%8E%E5%90%B4%E4%BA%A6%E5%87%A1%E5%90%88%E4%BD%9C%23&Refer=top) `899.7K 🔥`
 1. [何洛洛问xxj行为是什么意思](https://s.weibo.com/weibo?q=%23%E4%BD%95%E6%B4%9B%E6%B4%9B%E9%97%AExxj%E8%A1%8C%E4%B8%BA%E6%98%AF%E4%BB%80%E4%B9%88%E6%84%8F%E6%80%9D%23&Refer=top) `872.7K 🔥`
 1. [你能接受另一半给异性介绍对象吗](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E8%83%BD%E6%8E%A5%E5%8F%97%E5%8F%A6%E4%B8%80%E5%8D%8A%E7%BB%99%E5%BC%82%E6%80%A7%E4%BB%8B%E7%BB%8D%E5%AF%B9%E8%B1%A1%E5%90%97%23&Refer=top) `768.9K 🔥`
+1. [被跟踪两年后女护士首次发声](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E8%B7%9F%E8%B8%AA%E4%B8%A4%E5%B9%B4%E5%90%8E%E5%A5%B3%E6%8A%A4%E5%A3%AB%E9%A6%96%E6%AC%A1%E5%8F%91%E5%A3%B0%23&Refer=top) `712.2K 🔥`
 1. [刘雨昕鼻子长痘](https://s.weibo.com/weibo?q=%23%E5%88%98%E9%9B%A8%E6%98%95%E9%BC%BB%E5%AD%90%E9%95%BF%E7%97%98%23&Refer=top) `692.6K 🔥`
 1. [吴亦凡代言品牌权限与他合作发布的微博](https://s.weibo.com/weibo?q=%23%E5%90%B4%E4%BA%A6%E5%87%A1%E4%BB%A3%E8%A8%80%E5%93%81%E7%89%8C%E6%9D%83%E9%99%90%E4%B8%8E%E4%BB%96%E5%90%88%E4%BD%9C%E5%8F%91%E5%B8%83%E7%9A%84%E5%BE%AE%E5%8D%9A%23&Refer=top) `654.9K 🔥`
 1. [天天向上](https://s.weibo.com/weibo?q=%E5%A4%A9%E5%A4%A9%E5%90%91%E4%B8%8A&Refer=top) `653.8K 🔥`
@@ -52,12 +53,11 @@
 1. [写给3位航天员的出征满月信](https://s.weibo.com/weibo?q=%23%E5%86%99%E7%BB%993%E4%BD%8D%E8%88%AA%E5%A4%A9%E5%91%98%E7%9A%84%E5%87%BA%E5%BE%81%E6%BB%A1%E6%9C%88%E4%BF%A1%23&Refer=top) `254.3K 🔥`
 1. [王一博无感编曲制作人发文澄清](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E4%B8%80%E5%8D%9A%E6%97%A0%E6%84%9F%E7%BC%96%E6%9B%B2%E5%88%B6%E4%BD%9C%E4%BA%BA%E5%8F%91%E6%96%87%E6%BE%84%E6%B8%85%23&Refer=top) `245.8K 🔥`
 1. [小鬼说电竞行业太残酷了](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E9%AC%BC%E8%AF%B4%E7%94%B5%E7%AB%9E%E8%A1%8C%E4%B8%9A%E5%A4%AA%E6%AE%8B%E9%85%B7%E4%BA%86%23&Refer=top) `244.2K 🔥`
-1. [被跟踪两年后女护士首次发声](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E8%B7%9F%E8%B8%AA%E4%B8%A4%E5%B9%B4%E5%90%8E%E5%A5%B3%E6%8A%A4%E5%A3%AB%E9%A6%96%E6%AC%A1%E5%8F%91%E5%A3%B0%23&Refer=top) `241.9K 🔥`
 1. [南京玄武湖罕见双色睡莲](https://s.weibo.com/weibo?q=%23%E5%8D%97%E4%BA%AC%E7%8E%84%E6%AD%A6%E6%B9%96%E7%BD%95%E8%A7%81%E5%8F%8C%E8%89%B2%E7%9D%A1%E8%8E%B2%23&Refer=top) `234.1K 🔥`
 1. [LPL](https://s.weibo.com/weibo?q=LPL&Refer=top) `232.7K 🔥`
 1. [部分电动牙刷清洁效果甚至不如普通牙刷](https://s.weibo.com/weibo?q=%23%E9%83%A8%E5%88%86%E7%94%B5%E5%8A%A8%E7%89%99%E5%88%B7%E6%B8%85%E6%B4%81%E6%95%88%E6%9E%9C%E7%94%9A%E8%87%B3%E4%B8%8D%E5%A6%82%E6%99%AE%E9%80%9A%E7%89%99%E5%88%B7%23&Refer=top) `227.5K 🔥`
 
-数据更新于 2021-07-19 01:33:12
+数据更新于 2021-07-19 01:44:08
 
 <!-- END -->
 
