@@ -32,12 +32,13 @@
 1. [王彦霖陈立农婚礼合唱](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E5%BD%A6%E9%9C%96%E9%99%88%E7%AB%8B%E5%86%9C%E5%A9%9A%E7%A4%BC%E5%90%88%E5%94%B1%23&Refer=top) `1.5M 🔥`
 1. [18岁和81岁](https://s.weibo.com/weibo?q=%2318%E5%B2%81%E5%92%8C81%E5%B2%81%23&Refer=top) `1.5M 🔥`
 1. [沃尔玛解雇残疾员工被判赔1.25亿美元](https://s.weibo.com/weibo?q=%23%E6%B2%83%E5%B0%94%E7%8E%9B%E8%A7%A3%E9%9B%87%E6%AE%8B%E7%96%BE%E5%91%98%E5%B7%A5%E8%A2%AB%E5%88%A4%E8%B5%941.25%E4%BA%BF%E7%BE%8E%E5%85%83%23&Refer=top) `1.4M 🔥`
+1. [管泽元的预测](https://s.weibo.com/weibo?q=%23%E7%AE%A1%E6%B3%BD%E5%85%83%E7%9A%84%E9%A2%84%E6%B5%8B%23&Refer=top) `1.4M 🔥`
+1. [韩束与吴亦凡解约](https://s.weibo.com/weibo?q=%23%E9%9F%A9%E6%9D%9F%E4%B8%8E%E5%90%B4%E4%BA%A6%E5%87%A1%E8%A7%A3%E7%BA%A6%23&Refer=top) `1.4M 🔥`
+1. [管泽元五杀](https://s.weibo.com/weibo?q=%23%E7%AE%A1%E6%B3%BD%E5%85%83%E4%BA%94%E6%9D%80%23&Refer=top) `1.4M 🔥`
 1. [哭着看蔡徐坤借位吻](https://s.weibo.com/weibo?q=%23%E5%93%AD%E7%9D%80%E7%9C%8B%E8%94%A1%E5%BE%90%E5%9D%A4%E5%80%9F%E4%BD%8D%E5%90%BB%23&Refer=top) `1.3M 🔥`
 1. [部分电动牙刷清洁效果甚至不如普通牙刷](https://s.weibo.com/weibo?q=%23%E9%83%A8%E5%88%86%E7%94%B5%E5%8A%A8%E7%89%99%E5%88%B7%E6%B8%85%E6%B4%81%E6%95%88%E6%9E%9C%E7%94%9A%E8%87%B3%E4%B8%8D%E5%A6%82%E6%99%AE%E9%80%9A%E7%89%99%E5%88%B7%23&Refer=top) `1.3M 🔥`
 1. [上海奶奶花18万克隆宠物](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E5%A5%B6%E5%A5%B6%E8%8A%B118%E4%B8%87%E5%85%8B%E9%9A%86%E5%AE%A0%E7%89%A9%23&Refer=top) `1.3M 🔥`
-1. [管泽元的预测](https://s.weibo.com/weibo?q=%23%E7%AE%A1%E6%B3%BD%E5%85%83%E7%9A%84%E9%A2%84%E6%B5%8B%23&Refer=top) `1.3M 🔥`
 1. [黄子韬在看王彦霖婚礼直播](https://s.weibo.com/weibo?q=%23%E9%BB%84%E5%AD%90%E9%9F%AC%E5%9C%A8%E7%9C%8B%E7%8E%8B%E5%BD%A6%E9%9C%96%E5%A9%9A%E7%A4%BC%E7%9B%B4%E6%92%AD%23&Refer=top) `1.3M 🔥`
-1. [韩束与吴亦凡解约](https://s.weibo.com/weibo?q=%23%E9%9F%A9%E6%9D%9F%E4%B8%8E%E5%90%B4%E4%BA%A6%E5%87%A1%E8%A7%A3%E7%BA%A6%23&Refer=top) `1.2M 🔥`
 1. [杭州一电动车骑行中发生爆炸](https://s.weibo.com/weibo?q=%23%E6%9D%AD%E5%B7%9E%E4%B8%80%E7%94%B5%E5%8A%A8%E8%BD%A6%E9%AA%91%E8%A1%8C%E4%B8%AD%E5%8F%91%E7%94%9F%E7%88%86%E7%82%B8%23&Refer=top) `1.2M 🔥`
 1. [严屹宽反杀](https://s.weibo.com/weibo?q=%23%E4%B8%A5%E5%B1%B9%E5%AE%BD%E5%8F%8D%E6%9D%80%23&Refer=top) `1.2M 🔥`
 1. [原来剧本杀是个体力活](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E5%89%A7%E6%9C%AC%E6%9D%80%E6%98%AF%E4%B8%AA%E4%BD%93%E5%8A%9B%E6%B4%BB%23&Refer=top) `1.2M 🔥`
@@ -55,9 +56,8 @@
 1. [印尼男子主动吸入新冠病毒后去世](https://s.weibo.com/weibo?q=%23%E5%8D%B0%E5%B0%BC%E7%94%B7%E5%AD%90%E4%B8%BB%E5%8A%A8%E5%90%B8%E5%85%A5%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E5%90%8E%E5%8E%BB%E4%B8%96%23&Refer=top) `1.0M 🔥`
 1. [杨洋下次记得坐山东航空](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E6%B4%8B%E4%B8%8B%E6%AC%A1%E8%AE%B0%E5%BE%97%E5%9D%90%E5%B1%B1%E4%B8%9C%E8%88%AA%E7%A9%BA%23&Refer=top) `1.0M 🔥`
 1. [男子为当贴吧吧主向百度员工行贿宝马](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E4%B8%BA%E5%BD%93%E8%B4%B4%E5%90%A7%E5%90%A7%E4%B8%BB%E5%90%91%E7%99%BE%E5%BA%A6%E5%91%98%E5%B7%A5%E8%A1%8C%E8%B4%BF%E5%AE%9D%E9%A9%AC%23&Refer=top) `1.0M 🔥`
-1. [中国奥运代表团第111个出场](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%A5%A5%E8%BF%90%E4%BB%A3%E8%A1%A8%E5%9B%A2%E7%AC%AC111%E4%B8%AA%E5%87%BA%E5%9C%BA%23&Refer=top) `979.1K 🔥`
 
-数据更新于 2021-07-18 22:11:39
+数据更新于 2021-07-18 22:23:33
 
 <!-- END -->
 
