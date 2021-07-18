@@ -28,6 +28,7 @@
 1. [严屹宽反杀](https://s.weibo.com/weibo?q=%23%E4%B8%A5%E5%B1%B9%E5%AE%BD%E5%8F%8D%E6%9D%80%23&Refer=top) `1.2M 🔥`
 1. [爷爷装睡2岁孙女帮忙盖被子](https://s.weibo.com/weibo?q=%23%E7%88%B7%E7%88%B7%E8%A3%85%E7%9D%A12%E5%B2%81%E5%AD%99%E5%A5%B3%E5%B8%AE%E5%BF%99%E7%9B%96%E8%A2%AB%E5%AD%90%23&Refer=top) `1.2M 🔥`
 1. [浙江可以自拍身份证照片](https://s.weibo.com/weibo?q=%23%E6%B5%99%E6%B1%9F%E5%8F%AF%E4%BB%A5%E8%87%AA%E6%8B%8D%E8%BA%AB%E4%BB%BD%E8%AF%81%E7%85%A7%E7%89%87%23&Refer=top) `1.2M 🔥`
+1. [18岁和81岁](https://s.weibo.com/weibo?q=%2318%E5%B2%81%E5%92%8C81%E5%B2%81%23&Refer=top) `1.2M 🔥`
 1. [准大学生为追回500元反被骗光学费](https://s.weibo.com/weibo?q=%23%E5%87%86%E5%A4%A7%E5%AD%A6%E7%94%9F%E4%B8%BA%E8%BF%BD%E5%9B%9E500%E5%85%83%E5%8F%8D%E8%A2%AB%E9%AA%97%E5%85%89%E5%AD%A6%E8%B4%B9%23&Refer=top) `1.2M 🔥`
 1. [北京巨型雨幕从天而降](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E5%B7%A8%E5%9E%8B%E9%9B%A8%E5%B9%95%E4%BB%8E%E5%A4%A9%E8%80%8C%E9%99%8D%23&Refer=top) `1.2M 🔥`
 1. [华莱士致歉](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E8%8E%B1%E5%A3%AB%E8%87%B4%E6%AD%89%23&Refer=top) `1.1M 🔥`
@@ -55,9 +56,8 @@
 1. [中小学不得在校内设置小卖部超市](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%B0%8F%E5%AD%A6%E4%B8%8D%E5%BE%97%E5%9C%A8%E6%A0%A1%E5%86%85%E8%AE%BE%E7%BD%AE%E5%B0%8F%E5%8D%96%E9%83%A8%E8%B6%85%E5%B8%82%23&Refer=top) `638.4K 🔥`
 1. [这才是真正的流水席](https://s.weibo.com/weibo?q=%23%E8%BF%99%E6%89%8D%E6%98%AF%E7%9C%9F%E6%AD%A3%E7%9A%84%E6%B5%81%E6%B0%B4%E5%B8%AD%23&Refer=top) `612.7K 🔥`
 1. [马龙谌龙两届奥运对比照](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E9%BE%99%E8%B0%8C%E9%BE%99%E4%B8%A4%E5%B1%8A%E5%A5%A5%E8%BF%90%E5%AF%B9%E6%AF%94%E7%85%A7%23&Refer=top) `601.8K 🔥`
-1. [字母哥罚球太阳球迷数钱](https://s.weibo.com/weibo?q=%23%E5%AD%97%E6%AF%8D%E5%93%A5%E7%BD%9A%E7%90%83%E5%A4%AA%E9%98%B3%E7%90%83%E8%BF%B7%E6%95%B0%E9%92%B1%23&Refer=top) `587.4K 🔥`
 
-数据更新于 2021-07-18 14:20:39
+数据更新于 2021-07-18 14:42:32
 
 <!-- END -->
 
