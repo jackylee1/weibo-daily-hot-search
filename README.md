@@ -46,18 +46,18 @@
 1. [谢楠回应点赞](https://s.weibo.com/weibo?q=%E8%B0%A2%E6%A5%A0%E5%9B%9E%E5%BA%94%E7%82%B9%E8%B5%9E&Refer=top) `4.9M 🔥`
 1. [网友想对都美竹说的话](https://s.weibo.com/weibo?q=%23%E7%BD%91%E5%8F%8B%E6%83%B3%E5%AF%B9%E9%83%BD%E7%BE%8E%E7%AB%B9%E8%AF%B4%E7%9A%84%E8%AF%9D%23&Refer=top) `4.8M 🔥`
 1. [西安美院回应8考生录取2天后遭退档](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E5%AE%89%E7%BE%8E%E9%99%A2%E5%9B%9E%E5%BA%948%E8%80%83%E7%94%9F%E5%BD%95%E5%8F%962%E5%A4%A9%E5%90%8E%E9%81%AD%E9%80%80%E6%A1%A3%23&Refer=top) `4.8M 🔥`
+1. [男孩开冰可乐被炸伤缝38针](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%A9%E5%BC%80%E5%86%B0%E5%8F%AF%E4%B9%90%E8%A2%AB%E7%82%B8%E4%BC%A4%E7%BC%9D38%E9%92%88%23&Refer=top) `4.6M 🔥`
 1. [94年前的今天赵世炎牺牲](https://s.weibo.com/weibo?q=%2394%E5%B9%B4%E5%89%8D%E7%9A%84%E4%BB%8A%E5%A4%A9%E8%B5%B5%E4%B8%96%E7%82%8E%E7%89%BA%E7%89%B2%23&Refer=top) `3.9M 🔥`
 1. [珠宝商用已故之人牙齿制作饰品](https://s.weibo.com/weibo?q=%23%E7%8F%A0%E5%AE%9D%E5%95%86%E7%94%A8%E5%B7%B2%E6%95%85%E4%B9%8B%E4%BA%BA%E7%89%99%E9%BD%BF%E5%88%B6%E4%BD%9C%E9%A5%B0%E5%93%81%23&Refer=top) `3.7M 🔥`
 1. [被跟踪两年后女护士首次发声](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E8%B7%9F%E8%B8%AA%E4%B8%A4%E5%B9%B4%E5%90%8E%E5%A5%B3%E6%8A%A4%E5%A3%AB%E9%A6%96%E6%AC%A1%E5%8F%91%E5%A3%B0%23&Refer=top) `3.6M 🔥`
 1. [吴亦凡回应](https://s.weibo.com/weibo?q=%23%E5%90%B4%E4%BA%A6%E5%87%A1%E5%9B%9E%E5%BA%94%23&Refer=top) `3.6M 🔥`
 1. [小怡同学否认与吴亦凡交往](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E6%80%A1%E5%90%8C%E5%AD%A6%E5%90%A6%E8%AE%A4%E4%B8%8E%E5%90%B4%E4%BA%A6%E5%87%A1%E4%BA%A4%E5%BE%80%23&Refer=top) `3.4M 🔥`
 1. [立白章子怡背景图手势](https://s.weibo.com/weibo?q=%23%E7%AB%8B%E7%99%BD%E7%AB%A0%E5%AD%90%E6%80%A1%E8%83%8C%E6%99%AF%E5%9B%BE%E6%89%8B%E5%8A%BF%23&Refer=top) `3.4M 🔥`
-1. [男孩开冰可乐被炸伤缝38针](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%A9%E5%BC%80%E5%86%B0%E5%8F%AF%E4%B9%90%E8%A2%AB%E7%82%B8%E4%BC%A4%E7%BC%9D38%E9%92%88%23&Refer=top) `3.2M 🔥`
 1. [张丹三吴亦凡 聊天记录](https://s.weibo.com/weibo?q=%E5%BC%A0%E4%B8%B9%E4%B8%89%E5%90%B4%E4%BA%A6%E5%87%A1%20%E8%81%8A%E5%A4%A9%E8%AE%B0%E5%BD%95&Refer=top) `3.2M 🔥`
 1. [豆瓣崩了](https://s.weibo.com/weibo?q=%23%E8%B1%86%E7%93%A3%E5%B4%A9%E4%BA%86%23&Refer=top) `3.2M 🔥`
 1. [老板发福利女员工搬走一车榴莲](https://s.weibo.com/weibo?q=%23%E8%80%81%E6%9D%BF%E5%8F%91%E7%A6%8F%E5%88%A9%E5%A5%B3%E5%91%98%E5%B7%A5%E6%90%AC%E8%B5%B0%E4%B8%80%E8%BD%A6%E6%A6%B4%E8%8E%B2%23&Refer=top) `3.1M 🔥`
 
-数据更新于 2021-07-19 18:49:13
+数据更新于 2021-07-19 18:55:20
 
 <!-- END -->
 
