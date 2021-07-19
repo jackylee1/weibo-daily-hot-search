@@ -24,16 +24,17 @@
 1. [小孩子的攀比有多好笑](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E5%AD%A9%E5%AD%90%E7%9A%84%E6%94%80%E6%AF%94%E6%9C%89%E5%A4%9A%E5%A5%BD%E7%AC%91%23&Refer=top) `6.2M 🔥`
 1. [2分钟教你如何看体检报告](https://s.weibo.com/weibo?q=%232%E5%88%86%E9%92%9F%E6%95%99%E4%BD%A0%E5%A6%82%E4%BD%95%E7%9C%8B%E4%BD%93%E6%A3%80%E6%8A%A5%E5%91%8A%23&Refer=top) `6.1M 🔥`
 1. [杭州一电动车骑行中发生爆炸](https://s.weibo.com/weibo?q=%23%E6%9D%AD%E5%B7%9E%E4%B8%80%E7%94%B5%E5%8A%A8%E8%BD%A6%E9%AA%91%E8%A1%8C%E4%B8%AD%E5%8F%91%E7%94%9F%E7%88%86%E7%82%B8%23&Refer=top) `5.8M 🔥`
+1. [青簪行还能播吗](https://s.weibo.com/weibo?q=%23%E9%9D%92%E7%B0%AA%E8%A1%8C%E8%BF%98%E8%83%BD%E6%92%AD%E5%90%97%23&Refer=top) `5.7M 🔥`
+1. [小G娜事件](https://s.weibo.com/weibo?q=%E5%B0%8FG%E5%A8%9C%E4%BA%8B%E4%BB%B6&Refer=top) `5.7M 🔥`
 1. [建议全国女厕所和女更衣室学习](https://s.weibo.com/weibo?q=%23%E5%BB%BA%E8%AE%AE%E5%85%A8%E5%9B%BD%E5%A5%B3%E5%8E%95%E6%89%80%E5%92%8C%E5%A5%B3%E6%9B%B4%E8%A1%A3%E5%AE%A4%E5%AD%A6%E4%B9%A0%23&Refer=top) `5.6M 🔥`
 1. [网友想对都美竹说的话](https://s.weibo.com/weibo?q=%23%E7%BD%91%E5%8F%8B%E6%83%B3%E5%AF%B9%E9%83%BD%E7%BE%8E%E7%AB%B9%E8%AF%B4%E7%9A%84%E8%AF%9D%23&Refer=top) `4.8M 🔥`
 1. [被跟踪两年后女护士首次发声](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E8%B7%9F%E8%B8%AA%E4%B8%A4%E5%B9%B4%E5%90%8E%E5%A5%B3%E6%8A%A4%E5%A3%AB%E9%A6%96%E6%AC%A1%E5%8F%91%E5%A3%B0%23&Refer=top) `3.6M 🔥`
 1. [豆瓣崩了](https://s.weibo.com/weibo?q=%23%E8%B1%86%E7%93%A3%E5%B4%A9%E4%BA%86%23&Refer=top) `3.2M 🔥`
 1. [老板发福利女员工搬走一车榴莲](https://s.weibo.com/weibo?q=%23%E8%80%81%E6%9D%BF%E5%8F%91%E7%A6%8F%E5%88%A9%E5%A5%B3%E5%91%98%E5%B7%A5%E6%90%AC%E8%B5%B0%E4%B8%80%E8%BD%A6%E6%A6%B4%E8%8E%B2%23&Refer=top) `3.1M 🔥`
+1. [林西娅发文](https://s.weibo.com/weibo?q=%23%E6%9E%97%E8%A5%BF%E5%A8%85%E5%8F%91%E6%96%87%23&Refer=top) `2.0M 🔥`
 1. [你经历过假性亲密关系吗](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E7%BB%8F%E5%8E%86%E8%BF%87%E5%81%87%E6%80%A7%E4%BA%B2%E5%AF%86%E5%85%B3%E7%B3%BB%E5%90%97%23&Refer=top) `1.9M 🔥`
-1. [青簪行还能播吗](https://s.weibo.com/weibo?q=%23%E9%9D%92%E7%B0%AA%E8%A1%8C%E8%BF%98%E8%83%BD%E6%92%AD%E5%90%97%23&Refer=top) `1.8M 🔥`
-1. [林西娅发文](https://s.weibo.com/weibo?q=%23%E6%9E%97%E8%A5%BF%E5%A8%85%E5%8F%91%E6%96%87%23&Refer=top) `1.1M 🔥`
+1. [姐姐来了](https://s.weibo.com/weibo?q=%E5%A7%90%E5%A7%90%E6%9D%A5%E4%BA%86&Refer=top) `1.4M 🔥`
 1. [安珀wang 郭麒麟聊天记录](https://s.weibo.com/weibo?q=%E5%AE%89%E7%8F%80wang%20%E9%83%AD%E9%BA%92%E9%BA%9F%E8%81%8A%E5%A4%A9%E8%AE%B0%E5%BD%95&Refer=top) `1.1M 🔥`
-1. [姐姐来了](https://s.weibo.com/weibo?q=%E5%A7%90%E5%A7%90%E6%9D%A5%E4%BA%86&Refer=top) `1.1M 🔥`
 1. [当年爸妈不让嫁的人怎样了](https://s.weibo.com/weibo?q=%23%E5%BD%93%E5%B9%B4%E7%88%B8%E5%A6%88%E4%B8%8D%E8%AE%A9%E5%AB%81%E7%9A%84%E4%BA%BA%E6%80%8E%E6%A0%B7%E4%BA%86%23&Refer=top) `941.4K 🔥`
 1. [蔡徐坤南京演唱会官宣](https://s.weibo.com/weibo?q=%23%E8%94%A1%E5%BE%90%E5%9D%A4%E5%8D%97%E4%BA%AC%E6%BC%94%E5%94%B1%E4%BC%9A%E5%AE%98%E5%AE%A3%23&Refer=top) `920.0K 🔥`
 1. [良品铺子已终止与吴亦凡合作](https://s.weibo.com/weibo?q=%23%E8%89%AF%E5%93%81%E9%93%BA%E5%AD%90%E5%B7%B2%E7%BB%88%E6%AD%A2%E4%B8%8E%E5%90%B4%E4%BA%A6%E5%87%A1%E5%90%88%E4%BD%9C%23&Refer=top) `899.7K 🔥`
@@ -46,18 +47,17 @@
 1. [天天向上](https://s.weibo.com/weibo?q=%E5%A4%A9%E5%A4%A9%E5%90%91%E4%B8%8A&Refer=top) `653.8K 🔥`
 1. [脱粉](https://s.weibo.com/weibo?q=%E8%84%B1%E7%B2%89&Refer=top) `649.7K 🔥`
 1. [上班第一天公司就倒闭了](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E7%8F%AD%E7%AC%AC%E4%B8%80%E5%A4%A9%E5%85%AC%E5%8F%B8%E5%B0%B1%E5%80%92%E9%97%AD%E4%BA%86%23&Refer=top) `578.8K 🔥`
-1. [中国奥运代表团第111个出场](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%A5%A5%E8%BF%90%E4%BB%A3%E8%A1%A8%E5%9B%A2%E7%AC%AC111%E4%B8%AA%E5%87%BA%E5%9C%BA%23&Refer=top) `465.0K 🔥`
+1. [中国奥运代表团第111个出场](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%A5%A5%E8%BF%90%E4%BB%A3%E8%A1%A8%E5%9B%A2%E7%AC%AC111%E4%B8%AA%E5%87%BA%E5%9C%BA%23&Refer=top) `476.2K 🔥`
+1. [吴亦凡超话](https://s.weibo.com/weibo?q=%23%E5%90%B4%E4%BA%A6%E5%87%A1%E8%B6%85%E8%AF%9D%23&Refer=top) `471.0K 🔥`
 1. [迪丽热巴龚俊 安乐传](https://s.weibo.com/weibo?q=%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E9%BE%9A%E4%BF%8A%20%E5%AE%89%E4%B9%90%E4%BC%A0&Refer=top) `449.7K 🔥`
-1. [吴亦凡超话](https://s.weibo.com/weibo?q=%E5%90%B4%E4%BA%A6%E5%87%A1%E8%B6%85%E8%AF%9D&Refer=top) `391.8K 🔥`
+1. [一口热水喝掉5000多块](https://s.weibo.com/weibo?q=%23%E4%B8%80%E5%8F%A3%E7%83%AD%E6%B0%B4%E5%96%9D%E6%8E%895000%E5%A4%9A%E5%9D%97%23&Refer=top) `356.0K 🔥`
 1. [都美竹吴亦凡事件韩网评论](https://s.weibo.com/weibo?q=%23%E9%83%BD%E7%BE%8E%E7%AB%B9%E5%90%B4%E4%BA%A6%E5%87%A1%E4%BA%8B%E4%BB%B6%E9%9F%A9%E7%BD%91%E8%AF%84%E8%AE%BA%23&Refer=top) `352.1K 🔥`
 1. [猫咪为这个家操碎了心](https://s.weibo.com/weibo?q=%23%E7%8C%AB%E5%92%AA%E4%B8%BA%E8%BF%99%E4%B8%AA%E5%AE%B6%E6%93%8D%E7%A2%8E%E4%BA%86%E5%BF%83%23&Refer=top) `352.0K 🔥`
+1. [以前总觉得父亲无所不能](https://s.weibo.com/weibo?q=%23%E4%BB%A5%E5%89%8D%E6%80%BB%E8%A7%89%E5%BE%97%E7%88%B6%E4%BA%B2%E6%97%A0%E6%89%80%E4%B8%8D%E8%83%BD%23&Refer=top) `350.0K 🔥`
+1. [前男友向戴小雨求婚](https://s.weibo.com/weibo?q=%23%E5%89%8D%E7%94%B7%E5%8F%8B%E5%90%91%E6%88%B4%E5%B0%8F%E9%9B%A8%E6%B1%82%E5%A9%9A%23&Refer=top) `333.0K 🔥`
 1. [珠海隧道透水事故最新进展](https://s.weibo.com/weibo?q=%23%E7%8F%A0%E6%B5%B7%E9%9A%A7%E9%81%93%E9%80%8F%E6%B0%B4%E4%BA%8B%E6%95%85%E6%9C%80%E6%96%B0%E8%BF%9B%E5%B1%95%23&Refer=top) `318.8K 🔥`
-1. [潘晓婷现身LPL焦点战](https://s.weibo.com/weibo?q=%23%E6%BD%98%E6%99%93%E5%A9%B7%E7%8E%B0%E8%BA%ABLPL%E7%84%A6%E7%82%B9%E6%88%98%23&Refer=top) `302.6K 🔥`
-1. [原来剧本杀是个体力活](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E5%89%A7%E6%9C%AC%E6%9D%80%E6%98%AF%E4%B8%AA%E4%BD%93%E5%8A%9B%E6%B4%BB%23&Refer=top) `290.4K 🔥`
-1. [白玦替上古应劫](https://s.weibo.com/weibo?q=%23%E7%99%BD%E7%8E%A6%E6%9B%BF%E4%B8%8A%E5%8F%A4%E5%BA%94%E5%8A%AB%23&Refer=top) `287.4K 🔥`
-1. [以前总觉得父亲无所不能](https://s.weibo.com/weibo?q=%23%E4%BB%A5%E5%89%8D%E6%80%BB%E8%A7%89%E5%BE%97%E7%88%B6%E4%BA%B2%E6%97%A0%E6%89%80%E4%B8%8D%E8%83%BD%23&Refer=top) `284.9K 🔥`
 
-数据更新于 2021-07-19 07:59:07
+数据更新于 2021-07-19 08:13:08
 
 <!-- END -->
 
