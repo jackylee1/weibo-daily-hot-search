@@ -31,6 +31,7 @@
 1. [小孩子的攀比有多好笑](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E5%AD%A9%E5%AD%90%E7%9A%84%E6%94%80%E6%AF%94%E6%9C%89%E5%A4%9A%E5%A5%BD%E7%AC%91%23&Refer=top) `6.2M 🔥`
 1. [2分钟教你如何看体检报告](https://s.weibo.com/weibo?q=%232%E5%88%86%E9%92%9F%E6%95%99%E4%BD%A0%E5%A6%82%E4%BD%95%E7%9C%8B%E4%BD%93%E6%A3%80%E6%8A%A5%E5%91%8A%23&Refer=top) `6.1M 🔥`
 1. [逃避的事情都会回来找你](https://s.weibo.com/weibo?q=%23%E9%80%83%E9%81%BF%E7%9A%84%E4%BA%8B%E6%83%85%E9%83%BD%E4%BC%9A%E5%9B%9E%E6%9D%A5%E6%89%BE%E4%BD%A0%23&Refer=top) `5.9M 🔥`
+1. [法律是道德的最低标准](https://s.weibo.com/weibo?q=%23%E6%B3%95%E5%BE%8B%E6%98%AF%E9%81%93%E5%BE%B7%E7%9A%84%E6%9C%80%E4%BD%8E%E6%A0%87%E5%87%86%23&Refer=top) `5.9M 🔥`
 1. [杭州一电动车骑行中发生爆炸](https://s.weibo.com/weibo?q=%23%E6%9D%AD%E5%B7%9E%E4%B8%80%E7%94%B5%E5%8A%A8%E8%BD%A6%E9%AA%91%E8%A1%8C%E4%B8%AD%E5%8F%91%E7%94%9F%E7%88%86%E7%82%B8%23&Refer=top) `5.8M 🔥`
 1. [青簪行还能播吗](https://s.weibo.com/weibo?q=%23%E9%9D%92%E7%B0%AA%E8%A1%8C%E8%BF%98%E8%83%BD%E6%92%AD%E5%90%97%23&Refer=top) `5.7M 🔥`
 1. [小G娜事件](https://s.weibo.com/weibo?q=%E5%B0%8FG%E5%A8%9C%E4%BA%8B%E4%BB%B6&Refer=top) `5.7M 🔥`
@@ -45,7 +46,6 @@
 1. [谢楠回应点赞](https://s.weibo.com/weibo?q=%E8%B0%A2%E6%A5%A0%E5%9B%9E%E5%BA%94%E7%82%B9%E8%B5%9E&Refer=top) `4.9M 🔥`
 1. [网友想对都美竹说的话](https://s.weibo.com/weibo?q=%23%E7%BD%91%E5%8F%8B%E6%83%B3%E5%AF%B9%E9%83%BD%E7%BE%8E%E7%AB%B9%E8%AF%B4%E7%9A%84%E8%AF%9D%23&Refer=top) `4.8M 🔥`
 1. [西安美院回应8考生录取2天后遭退档](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E5%AE%89%E7%BE%8E%E9%99%A2%E5%9B%9E%E5%BA%948%E8%80%83%E7%94%9F%E5%BD%95%E5%8F%962%E5%A4%A9%E5%90%8E%E9%81%AD%E9%80%80%E6%A1%A3%23&Refer=top) `4.8M 🔥`
-1. [法律是道德的最低标准](https://s.weibo.com/weibo?q=%23%E6%B3%95%E5%BE%8B%E6%98%AF%E9%81%93%E5%BE%B7%E7%9A%84%E6%9C%80%E4%BD%8E%E6%A0%87%E5%87%86%23&Refer=top) `4.3M 🔥`
 1. [珠宝商用已故之人牙齿制作饰品](https://s.weibo.com/weibo?q=%23%E7%8F%A0%E5%AE%9D%E5%95%86%E7%94%A8%E5%B7%B2%E6%95%85%E4%B9%8B%E4%BA%BA%E7%89%99%E9%BD%BF%E5%88%B6%E4%BD%9C%E9%A5%B0%E5%93%81%23&Refer=top) `3.7M 🔥`
 1. [被跟踪两年后女护士首次发声](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E8%B7%9F%E8%B8%AA%E4%B8%A4%E5%B9%B4%E5%90%8E%E5%A5%B3%E6%8A%A4%E5%A3%AB%E9%A6%96%E6%AC%A1%E5%8F%91%E5%A3%B0%23&Refer=top) `3.6M 🔥`
 1. [吴亦凡回应](https://s.weibo.com/weibo?q=%23%E5%90%B4%E4%BA%A6%E5%87%A1%E5%9B%9E%E5%BA%94%23&Refer=top) `3.6M 🔥`
@@ -57,7 +57,7 @@
 1. [香港一人茶餐厅老板娘说想做警嫂](https://s.weibo.com/weibo?q=%23%E9%A6%99%E6%B8%AF%E4%B8%80%E4%BA%BA%E8%8C%B6%E9%A4%90%E5%8E%85%E8%80%81%E6%9D%BF%E5%A8%98%E8%AF%B4%E6%83%B3%E5%81%9A%E8%AD%A6%E5%AB%82%23&Refer=top) `3.1M 🔥`
 1. [韩其原](https://s.weibo.com/weibo?q=%E9%9F%A9%E5%85%B6%E5%8E%9F&Refer=top) `3.0M 🔥`
 
-数据更新于 2021-07-19 16:46:23
+数据更新于 2021-07-19 16:52:45
 
 <!-- END -->
 
