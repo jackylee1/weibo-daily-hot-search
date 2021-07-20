@@ -7,7 +7,7 @@
 <!-- BEGIN -->
 
 1. [张陶被批捕](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E9%99%B6%E8%A2%AB%E6%89%B9%E6%8D%95%23&Refer=top) `7.5M 🔥`
-1. [十三部门发文支持女性科技人才发展](https://s.weibo.com/weibo?q=%23%E5%8D%81%E4%B8%89%E9%83%A8%E9%97%A8%E5%8F%91%E6%96%87%E6%94%AF%E6%8C%81%E5%A5%B3%E6%80%A7%E7%A7%91%E6%8A%80%E4%BA%BA%E6%89%8D%E5%8F%91%E5%B1%95%23&Refer=top) `4.3M 🔥`
+1. [十三部门发文支持女性科技人才发展](https://s.weibo.com/weibo?q=%23%E5%8D%81%E4%B8%89%E9%83%A8%E9%97%A8%E5%8F%91%E6%96%87%E6%94%AF%E6%8C%81%E5%A5%B3%E6%80%A7%E7%A7%91%E6%8A%80%E4%BA%BA%E6%89%8D%E5%8F%91%E5%B1%95%23&Refer=top) `5.9M 🔥`
 1. [皓衣行](https://s.weibo.com/weibo?q=%E7%9A%93%E8%A1%A3%E8%A1%8C&Refer=top) `4.2M 🔥`
 1. [全国最长录取通知书](https://s.weibo.com/weibo?q=%23%E5%85%A8%E5%9B%BD%E6%9C%80%E9%95%BF%E5%BD%95%E5%8F%96%E9%80%9A%E7%9F%A5%E4%B9%A6%23&Refer=top) `4.2M 🔥`
 1. [兰蔻恢复吴亦凡相关微博](https://s.weibo.com/weibo?q=%23%E5%85%B0%E8%94%BB%E6%81%A2%E5%A4%8D%E5%90%B4%E4%BA%A6%E5%87%A1%E7%9B%B8%E5%85%B3%E5%BE%AE%E5%8D%9A%23&Refer=top) `4.2M 🔥`
@@ -29,6 +29,7 @@
 1. [吴亦凡工作室发澄清](https://s.weibo.com/weibo?q=%23%E5%90%B4%E4%BA%A6%E5%87%A1%E5%B7%A5%E4%BD%9C%E5%AE%A4%E5%8F%91%E6%BE%84%E6%B8%85%23&Refer=top) `2.5M 🔥`
 1. [吴亦凡或面临巨额赔付](https://s.weibo.com/weibo?q=%23%E5%90%B4%E4%BA%A6%E5%87%A1%E6%88%96%E9%9D%A2%E4%B8%B4%E5%B7%A8%E9%A2%9D%E8%B5%94%E4%BB%98%23&Refer=top) `2.5M 🔥`
 1. [我是真的爱你](https://s.weibo.com/weibo?q=%23%E6%88%91%E6%98%AF%E7%9C%9F%E7%9A%84%E7%88%B1%E4%BD%A0%23&Refer=top) `2.4M 🔥`
+1. [喜茶回应收购乐乐茶](https://s.weibo.com/weibo?q=%23%E5%96%9C%E8%8C%B6%E5%9B%9E%E5%BA%94%E6%94%B6%E8%B4%AD%E4%B9%90%E4%B9%90%E8%8C%B6%23&Refer=top) `2.2M 🔥`
 1. [林更新与美女一同出游](https://s.weibo.com/weibo?q=%23%E6%9E%97%E6%9B%B4%E6%96%B0%E4%B8%8E%E7%BE%8E%E5%A5%B3%E4%B8%80%E5%90%8C%E5%87%BA%E6%B8%B8%23&Refer=top) `2.1M 🔥`
 1. [中国演出行业协会发声](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E6%BC%94%E5%87%BA%E8%A1%8C%E4%B8%9A%E5%8D%8F%E4%BC%9A%E5%8F%91%E5%A3%B0%23&Refer=top) `1.9M 🔥`
 1. [于嘉萌反驳都美竹姐姐](https://s.weibo.com/weibo?q=%23%E4%BA%8E%E5%98%89%E8%90%8C%E5%8F%8D%E9%A9%B3%E9%83%BD%E7%BE%8E%E7%AB%B9%E5%A7%90%E5%A7%90%23&Refer=top) `1.8M 🔥`
@@ -40,7 +41,6 @@
 1. [究竟什么是性同意](https://s.weibo.com/weibo?q=%23%E7%A9%B6%E7%AB%9F%E4%BB%80%E4%B9%88%E6%98%AF%E6%80%A7%E5%90%8C%E6%84%8F%23&Refer=top) `1.5M 🔥`
 1. [欧莱雅男士](https://s.weibo.com/weibo?q=%23%E6%AC%A7%E8%8E%B1%E9%9B%85%E7%94%B7%E5%A3%AB%23&Refer=top) `1.4M 🔥`
 1. [阿娇 吃瓜吃得好累](https://s.weibo.com/weibo?q=%E9%98%BF%E5%A8%87%20%E5%90%83%E7%93%9C%E5%90%83%E5%BE%97%E5%A5%BD%E7%B4%AF&Refer=top) `1.4M 🔥`
-1. [喜茶回应收购乐乐茶](https://s.weibo.com/weibo?q=%23%E5%96%9C%E8%8C%B6%E5%9B%9E%E5%BA%94%E6%94%B6%E8%B4%AD%E4%B9%90%E4%B9%90%E8%8C%B6%23&Refer=top) `1.3M 🔥`
 1. [毛可异](https://s.weibo.com/weibo?q=%E6%AF%9B%E5%8F%AF%E5%BC%82&Refer=top) `1.3M 🔥`
 1. [暴躁小当ris 聊天记录](https://s.weibo.com/weibo?q=%E6%9A%B4%E8%BA%81%E5%B0%8F%E5%BD%93ris%20%E8%81%8A%E5%A4%A9%E8%AE%B0%E5%BD%95&Refer=top) `1.3M 🔥`
 1. [美国男篮只剩8名队员飞往东京](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E7%94%B7%E7%AF%AE%E5%8F%AA%E5%89%A98%E5%90%8D%E9%98%9F%E5%91%98%E9%A3%9E%E5%BE%80%E4%B8%9C%E4%BA%AC%23&Refer=top) `1.1M 🔥`
@@ -57,7 +57,7 @@
 1. [李佳琦直播](https://s.weibo.com/weibo?q=%E6%9D%8E%E4%BD%B3%E7%90%A6%E7%9B%B4%E6%92%AD&Refer=top) `828.3K 🔥`
 1. [珠海隧道透水事故已致3人遇难](https://s.weibo.com/weibo?q=%23%E7%8F%A0%E6%B5%B7%E9%9A%A7%E9%81%93%E9%80%8F%E6%B0%B4%E4%BA%8B%E6%95%85%E5%B7%B2%E8%87%B43%E4%BA%BA%E9%81%87%E9%9A%BE%23&Refer=top) `807.4K 🔥`
 
-数据更新于 2021-07-20 11:02:31
+数据更新于 2021-07-20 11:14:01
 
 <!-- END -->
 
