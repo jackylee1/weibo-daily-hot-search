@@ -50,14 +50,14 @@
 1. [都美竹姐姐发文](https://s.weibo.com/weibo?q=%23%E9%83%BD%E7%BE%8E%E7%AB%B9%E5%A7%90%E5%A7%90%E5%8F%91%E6%96%87%23&Refer=top) `971.9K 🔥`
 1. [奶奶带孙女聚会唱k后酒驾回家被查](https://s.weibo.com/weibo?q=%23%E5%A5%B6%E5%A5%B6%E5%B8%A6%E5%AD%99%E5%A5%B3%E8%81%9A%E4%BC%9A%E5%94%B1k%E5%90%8E%E9%85%92%E9%A9%BE%E5%9B%9E%E5%AE%B6%E8%A2%AB%E6%9F%A5%23&Refer=top) `925.7K 🔥`
 1. [宝格丽终止与吴亦凡合作关系](https://s.weibo.com/weibo?q=%23%E5%AE%9D%E6%A0%BC%E4%B8%BD%E7%BB%88%E6%AD%A2%E4%B8%8E%E5%90%B4%E4%BA%A6%E5%87%A1%E5%90%88%E4%BD%9C%E5%85%B3%E7%B3%BB%23&Refer=top) `879.2K 🔥`
+1. [美国男篮只剩8名队员飞往东京](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E7%94%B7%E7%AF%AE%E5%8F%AA%E5%89%A98%E5%90%8D%E9%98%9F%E5%91%98%E9%A3%9E%E5%BE%80%E4%B8%9C%E4%BA%AC%23&Refer=top) `837.7K 🔥`
 1. [李佳琦直播](https://s.weibo.com/weibo?q=%E6%9D%8E%E4%BD%B3%E7%90%A6%E7%9B%B4%E6%92%AD&Refer=top) `828.3K 🔥`
+1. [吴亦凡或面临巨额赔付](https://s.weibo.com/weibo?q=%23%E5%90%B4%E4%BA%A6%E5%87%A1%E6%88%96%E9%9D%A2%E4%B8%B4%E5%B7%A8%E9%A2%9D%E8%B5%94%E4%BB%98%23&Refer=top) `803.1K 🔥`
 1. [近视眼手术不是人人都适合](https://s.weibo.com/weibo?q=%23%E8%BF%91%E8%A7%86%E7%9C%BC%E6%89%8B%E6%9C%AF%E4%B8%8D%E6%98%AF%E4%BA%BA%E4%BA%BA%E9%83%BD%E9%80%82%E5%90%88%23&Refer=top) `758.0K 🔥`
 1. [当广东人民听说有台风](https://s.weibo.com/weibo?q=%23%E5%BD%93%E5%B9%BF%E4%B8%9C%E4%BA%BA%E6%B0%91%E5%90%AC%E8%AF%B4%E6%9C%89%E5%8F%B0%E9%A3%8E%23&Refer=top) `753.9K 🔥`
 1. [原生家庭很糟糕是什么体验](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E7%94%9F%E5%AE%B6%E5%BA%AD%E5%BE%88%E7%B3%9F%E7%B3%95%E6%98%AF%E4%BB%80%E4%B9%88%E4%BD%93%E9%AA%8C%23&Refer=top) `753.5K 🔥`
-1. [幼童被锁车内消防欲破窗家长犹豫](https://s.weibo.com/weibo?q=%23%E5%B9%BC%E7%AB%A5%E8%A2%AB%E9%94%81%E8%BD%A6%E5%86%85%E6%B6%88%E9%98%B2%E6%AC%B2%E7%A0%B4%E7%AA%97%E5%AE%B6%E9%95%BF%E7%8A%B9%E8%B1%AB%23&Refer=top) `715.0K 🔥`
-1. [乐华全家福](https://s.weibo.com/weibo?q=%23%E4%B9%90%E5%8D%8E%E5%85%A8%E5%AE%B6%E7%A6%8F%23&Refer=top) `708.4K 🔥`
 
-数据更新于 2021-07-20 10:42:35
+数据更新于 2021-07-20 10:52:12
 
 <!-- END -->
 
