@@ -41,10 +41,10 @@
 1. [郑州泄洪](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E6%B3%84%E6%B4%AA%23&Refer=top) `2.5M 🔥`
 1. [时代少年团向河南灾区捐款100万元](https://s.weibo.com/weibo?q=%23%E6%97%B6%E4%BB%A3%E5%B0%91%E5%B9%B4%E5%9B%A2%E5%90%91%E6%B2%B3%E5%8D%97%E7%81%BE%E5%8C%BA%E6%8D%90%E6%AC%BE100%E4%B8%87%E5%85%83%23&Refer=top) `2.5M 🔥`
 1. [一家三口掉进积水坑路人舍命救援](https://s.weibo.com/weibo?q=%23%E4%B8%80%E5%AE%B6%E4%B8%89%E5%8F%A3%E6%8E%89%E8%BF%9B%E7%A7%AF%E6%B0%B4%E5%9D%91%E8%B7%AF%E4%BA%BA%E8%88%8D%E5%91%BD%E6%95%91%E6%8F%B4%23&Refer=top) `2.5M 🔥`
+1. [字母哥哭了](https://s.weibo.com/weibo?q=%23%E5%AD%97%E6%AF%8D%E5%93%A5%E5%93%AD%E4%BA%86%23&Refer=top) `2.4M 🔥`
 1. [郑州进入特大自然灾难一级战备状态](https://s.weibo.com/weibo?q=%E9%83%91%E5%B7%9E%E8%BF%9B%E5%85%A5%E7%89%B9%E5%A4%A7%E8%87%AA%E7%84%B6%E7%81%BE%E9%9A%BE%E4%B8%80%E7%BA%A7%E6%88%98%E5%A4%87%E7%8A%B6%E6%80%81&Refer=top) `2.3M 🔥`
 1. [河南的雨要下多久](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8D%97%E7%9A%84%E9%9B%A8%E8%A6%81%E4%B8%8B%E5%A4%9A%E4%B9%85%23&Refer=top) `2.3M 🔥`
 1. [郑州暴雨](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E6%9A%B4%E9%9B%A8%23&Refer=top) `2.3M 🔥`
-1. [字母哥哭了](https://s.weibo.com/weibo?q=%23%E5%AD%97%E6%AF%8D%E5%93%A5%E5%93%AD%E4%BA%86%23&Refer=top) `2.3M 🔥`
 1. [张杰谢娜捐款100万元驰援河南](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%9D%B0%E8%B0%A2%E5%A8%9C%E6%8D%90%E6%AC%BE100%E4%B8%87%E5%85%83%E9%A9%B0%E6%8F%B4%E6%B2%B3%E5%8D%97%23&Refer=top) `2.3M 🔥`
 1. [任嘉伦 大连](https://s.weibo.com/weibo?q=%E4%BB%BB%E5%98%89%E4%BC%A6%20%E5%A4%A7%E8%BF%9E&Refer=top) `2.3M 🔥`
 1. [享道出行郑州致歉](https://s.weibo.com/weibo?q=%23%E4%BA%AB%E9%81%93%E5%87%BA%E8%A1%8C%E9%83%91%E5%B7%9E%E8%87%B4%E6%AD%89%23&Refer=top) `2.3M 🔥`
@@ -52,12 +52,12 @@
 1. [郑大一附院ICU已恢复供电](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%A4%A7%E4%B8%80%E9%99%84%E9%99%A2ICU%E5%B7%B2%E6%81%A2%E5%A4%8D%E4%BE%9B%E7%94%B5%23&Refer=top) `2.2M 🔥`
 1. [去哪儿今明入住郑州酒店旅客可免费取消](https://s.weibo.com/weibo?q=%23%E5%8E%BB%E5%93%AA%E5%84%BF%E4%BB%8A%E6%98%8E%E5%85%A5%E4%BD%8F%E9%83%91%E5%B7%9E%E9%85%92%E5%BA%97%E6%97%85%E5%AE%A2%E5%8F%AF%E5%85%8D%E8%B4%B9%E5%8F%96%E6%B6%88%23&Refer=top) `2.2M 🔥`
 1. [泡泡玛特向河南捐款500万](https://s.weibo.com/weibo?q=%23%E6%B3%A1%E6%B3%A1%E7%8E%9B%E7%89%B9%E5%90%91%E6%B2%B3%E5%8D%97%E6%8D%90%E6%AC%BE500%E4%B8%87%23&Refer=top) `2.2M 🔥`
+1. [吴亦凡工作室说明](https://s.weibo.com/weibo?q=%23%E5%90%B4%E4%BA%A6%E5%87%A1%E5%B7%A5%E4%BD%9C%E5%AE%A4%E8%AF%B4%E6%98%8E%23&Refer=top) `2.1M 🔥`
 1. [世界首富贝索斯上太空](https://s.weibo.com/weibo?q=%23%E4%B8%96%E7%95%8C%E9%A6%96%E5%AF%8C%E8%B4%9D%E7%B4%A2%E6%96%AF%E4%B8%8A%E5%A4%AA%E7%A9%BA%23&Refer=top) `2.1M 🔥`
 1. [康桥地产致歉](https://s.weibo.com/weibo?q=%23%E5%BA%B7%E6%A1%A5%E5%9C%B0%E4%BA%A7%E8%87%B4%E6%AD%89%23&Refer=top) `2.1M 🔥`
 1. [河南暴雨救援](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8D%97%E6%9A%B4%E9%9B%A8%E6%95%91%E6%8F%B4%23&Refer=top) `2.0M 🔥`
-1. [郑州地铁5号线一车厢多人被困](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E5%9C%B0%E9%93%815%E5%8F%B7%E7%BA%BF%E4%B8%80%E8%BD%A6%E5%8E%A2%E5%A4%9A%E4%BA%BA%E8%A2%AB%E5%9B%B0%23&Refer=top) `2.0M 🔥`
 
-数据更新于 2021-07-21 13:01:45
+数据更新于 2021-07-21 13:06:09
 
 <!-- END -->
 
