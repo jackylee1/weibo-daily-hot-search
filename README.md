@@ -57,7 +57,7 @@
 1. [南京已诊断出13例确诊](https://s.weibo.com/weibo?q=%E5%8D%97%E4%BA%AC%E5%B7%B2%E8%AF%8A%E6%96%AD%E5%87%BA13%E4%BE%8B%E7%A1%AE%E8%AF%8A&Refer=top) `2.0M 🔥`
 1. [K599次列车回撤途中再遇暴雨被困新乡](https://s.weibo.com/weibo?q=%23K599%E6%AC%A1%E5%88%97%E8%BD%A6%E5%9B%9E%E6%92%A4%E9%80%94%E4%B8%AD%E5%86%8D%E9%81%87%E6%9A%B4%E9%9B%A8%E8%A2%AB%E5%9B%B0%E6%96%B0%E4%B9%A1%23&Refer=top) `2.0M 🔥`
 
-数据更新于 2021-07-22 22:02:25
+数据更新于 2021-07-22 22:10:10
 
 <!-- END -->
 
