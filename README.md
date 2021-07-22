@@ -12,6 +12,7 @@
 1. [网友人均30元给河南捐出1亿](https://s.weibo.com/weibo?q=%23%E7%BD%91%E5%8F%8B%E4%BA%BA%E5%9D%8730%E5%85%83%E7%BB%99%E6%B2%B3%E5%8D%97%E6%8D%90%E5%87%BA1%E4%BA%BF%23&Refer=top) `6.9M 🔥`
 1. [徐才根去世](https://s.weibo.com/weibo?q=%23%E5%BE%90%E6%89%8D%E6%A0%B9%E5%8E%BB%E4%B8%96%23&Refer=top) `6.6M 🔥`
 1. [造假捐款要负什么法律责任](https://s.weibo.com/weibo?q=%23%E9%80%A0%E5%81%87%E6%8D%90%E6%AC%BE%E8%A6%81%E8%B4%9F%E4%BB%80%E4%B9%88%E6%B3%95%E5%BE%8B%E8%B4%A3%E4%BB%BB%23&Refer=top) `6.3M 🔥`
+1. [鸿星尔克的微博评论好心酸](https://s.weibo.com/weibo?q=%23%E9%B8%BF%E6%98%9F%E5%B0%94%E5%85%8B%E7%9A%84%E5%BE%AE%E5%8D%9A%E8%AF%84%E8%AE%BA%E5%A5%BD%E5%BF%83%E9%85%B8%23&Refer=top) `5.7M 🔥`
 1. [孩子王 造假捐款](https://s.weibo.com/weibo?q=%E5%AD%A9%E5%AD%90%E7%8E%8B%20%E9%80%A0%E5%81%87%E6%8D%90%E6%AC%BE&Refer=top) `5.7M 🔥`
 1. [中国不接受不尊重常识的溯源计划](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E4%B8%8D%E6%8E%A5%E5%8F%97%E4%B8%8D%E5%B0%8A%E9%87%8D%E5%B8%B8%E8%AF%86%E7%9A%84%E6%BA%AF%E6%BA%90%E8%AE%A1%E5%88%92%23&Refer=top) `5.6M 🔥`
 1. [东风标致承认救援河南工作存在不足](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E9%A3%8E%E6%A0%87%E8%87%B4%E6%89%BF%E8%AE%A4%E6%95%91%E6%8F%B4%E6%B2%B3%E5%8D%97%E5%B7%A5%E4%BD%9C%E5%AD%98%E5%9C%A8%E4%B8%8D%E8%B6%B3%23&Refer=top) `4.9M 🔥`
@@ -35,6 +36,7 @@
 1. [陕西发现1只纯白色小梅花鹿](https://s.weibo.com/weibo?q=%23%E9%99%95%E8%A5%BF%E5%8F%91%E7%8E%B01%E5%8F%AA%E7%BA%AF%E7%99%BD%E8%89%B2%E5%B0%8F%E6%A2%85%E8%8A%B1%E9%B9%BF%23&Refer=top) `2.7M 🔥`
 1. [郑州樱桃沟告急](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E6%A8%B1%E6%A1%83%E6%B2%9F%E5%91%8A%E6%80%A5%23&Refer=top) `2.7M 🔥`
 1. [郑州大妈吆喝被困群众过来吃饭](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E5%A4%A7%E5%A6%88%E5%90%86%E5%96%9D%E8%A2%AB%E5%9B%B0%E7%BE%A4%E4%BC%97%E8%BF%87%E6%9D%A5%E5%90%83%E9%A5%AD%23&Refer=top) `2.6M 🔥`
+1. [刘某迢](https://s.weibo.com/weibo?q=%E5%88%98%E6%9F%90%E8%BF%A2&Refer=top) `2.5M 🔥`
 1. [小朋友看到灾后场景流泪](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E6%9C%8B%E5%8F%8B%E7%9C%8B%E5%88%B0%E7%81%BE%E5%90%8E%E5%9C%BA%E6%99%AF%E6%B5%81%E6%B3%AA%23&Refer=top) `2.5M 🔥`
 1. [郑州地铁通报致12死事故原因](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E5%9C%B0%E9%93%81%E9%80%9A%E6%8A%A5%E8%87%B412%E6%AD%BB%E4%BA%8B%E6%95%85%E5%8E%9F%E5%9B%A0%23&Refer=top) `2.4M 🔥`
 1. [郑州暴雨后人间百态](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E6%9A%B4%E9%9B%A8%E5%90%8E%E4%BA%BA%E9%97%B4%E7%99%BE%E6%80%81%23&Refer=top) `2.4M 🔥`
@@ -54,10 +56,8 @@
 1. [河南暴雨车险损失近10亿元](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8D%97%E6%9A%B4%E9%9B%A8%E8%BD%A6%E9%99%A9%E6%8D%9F%E5%A4%B1%E8%BF%9110%E4%BA%BF%E5%85%83%23&Refer=top) `1.9M 🔥`
 1. [湘雅医院误切患者甲状腺遭索赔53万](https://s.weibo.com/weibo?q=%23%E6%B9%98%E9%9B%85%E5%8C%BB%E9%99%A2%E8%AF%AF%E5%88%87%E6%82%A3%E8%80%85%E7%94%B2%E7%8A%B6%E8%85%BA%E9%81%AD%E7%B4%A2%E8%B5%9453%E4%B8%87%23&Refer=top) `1.9M 🔥`
 1. [河南大姨霸总式给被困司机发方便面](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8D%97%E5%A4%A7%E5%A7%A8%E9%9C%B8%E6%80%BB%E5%BC%8F%E7%BB%99%E8%A2%AB%E5%9B%B0%E5%8F%B8%E6%9C%BA%E5%8F%91%E6%96%B9%E4%BE%BF%E9%9D%A2%23&Refer=top) `1.8M 🔥`
-1. [暴雨后救命文档创建者是河南籍大学生](https://s.weibo.com/weibo?q=%23%E6%9A%B4%E9%9B%A8%E5%90%8E%E6%95%91%E5%91%BD%E6%96%87%E6%A1%A3%E5%88%9B%E5%BB%BA%E8%80%85%E6%98%AF%E6%B2%B3%E5%8D%97%E7%B1%8D%E5%A4%A7%E5%AD%A6%E7%94%9F%23&Refer=top) `1.8M 🔥`
-1. [普京就河南强降雨致慰问电](https://s.weibo.com/weibo?q=%23%E6%99%AE%E4%BA%AC%E5%B0%B1%E6%B2%B3%E5%8D%97%E5%BC%BA%E9%99%8D%E9%9B%A8%E8%87%B4%E6%85%B0%E9%97%AE%E7%94%B5%23&Refer=top) `1.8M 🔥`
 
-数据更新于 2021-07-22 20:44:14
+数据更新于 2021-07-22 21:06:18
 
 <!-- END -->
 
