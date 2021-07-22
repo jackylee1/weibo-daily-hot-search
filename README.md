@@ -7,7 +7,7 @@
 <!-- BEGIN -->
 
 1. [北京警方通报吴亦凡事件](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E8%AD%A6%E6%96%B9%E9%80%9A%E6%8A%A5%E5%90%B4%E4%BA%A6%E5%87%A1%E4%BA%8B%E4%BB%B6%23&Refer=top) `26.2M 🔥`
-1. [都美竹 我尽力了](https://s.weibo.com/weibo?q=%E9%83%BD%E7%BE%8E%E7%AB%B9%20%E6%88%91%E5%B0%BD%E5%8A%9B%E4%BA%86&Refer=top) `22.7M 🔥`
+1. [都美竹 我尽力了](https://s.weibo.com/weibo?q=%E9%83%BD%E7%BE%8E%E7%AB%B9%20%E6%88%91%E5%B0%BD%E5%8A%9B%E4%BA%86&Refer=top) `23.5M 🔥`
 1. [鸿星尔克的微博评论好心酸](https://s.weibo.com/weibo?q=%23%E9%B8%BF%E6%98%9F%E5%B0%94%E5%85%8B%E7%9A%84%E5%BE%AE%E5%8D%9A%E8%AF%84%E8%AE%BA%E5%A5%BD%E5%BF%83%E9%85%B8%23&Refer=top) `20.6M 🔥`
 1. [武大教授周玄毅被校方处分](https://s.weibo.com/weibo?q=%23%E6%AD%A6%E5%A4%A7%E6%95%99%E6%8E%88%E5%91%A8%E7%8E%84%E6%AF%85%E8%A2%AB%E6%A0%A1%E6%96%B9%E5%A4%84%E5%88%86%23&Refer=top) `10.2M 🔥`
 1. [吴亦凡经纪人](https://s.weibo.com/weibo?q=%23%E5%90%B4%E4%BA%A6%E5%87%A1%E7%BB%8F%E7%BA%AA%E4%BA%BA%23&Refer=top) `10.1M 🔥`
@@ -57,7 +57,7 @@
 1. [新乡人刘国梁为河南加油](https://s.weibo.com/weibo?q=%23%E6%96%B0%E4%B9%A1%E4%BA%BA%E5%88%98%E5%9B%BD%E6%A2%81%E4%B8%BA%E6%B2%B3%E5%8D%97%E5%8A%A0%E6%B2%B9%23&Refer=top) `2.0M 🔥`
 1. [孩子王 希望大家不要放弃我](https://s.weibo.com/weibo?q=%E5%AD%A9%E5%AD%90%E7%8E%8B%20%E5%B8%8C%E6%9C%9B%E5%A4%A7%E5%AE%B6%E4%B8%8D%E8%A6%81%E6%94%BE%E5%BC%83%E6%88%91&Refer=top) `2.0M 🔥`
 
-数据更新于 2021-07-22 22:49:29
+数据更新于 2021-07-22 22:55:56
 
 <!-- END -->
 
