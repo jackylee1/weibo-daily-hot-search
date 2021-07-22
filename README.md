@@ -10,6 +10,7 @@
 1. [河南严禁瞒报重要灾情信息](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8D%97%E4%B8%A5%E7%A6%81%E7%9E%92%E6%8A%A5%E9%87%8D%E8%A6%81%E7%81%BE%E6%83%85%E4%BF%A1%E6%81%AF%23&Refer=top) `7.0M 🔥`
 1. [孩子王 造假捐款](https://s.weibo.com/weibo?q=%E5%AD%A9%E5%AD%90%E7%8E%8B%20%E9%80%A0%E5%81%87%E6%8D%90%E6%AC%BE&Refer=top) `5.7M 🔥`
 1. [中国不接受不尊重常识的溯源计划](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E4%B8%8D%E6%8E%A5%E5%8F%97%E4%B8%8D%E5%B0%8A%E9%87%8D%E5%B8%B8%E8%AF%86%E7%9A%84%E6%BA%AF%E6%BA%90%E8%AE%A1%E5%88%92%23&Refer=top) `5.6M 🔥`
+1. [徐才根去世](https://s.weibo.com/weibo?q=%23%E5%BE%90%E6%89%8D%E6%A0%B9%E5%8E%BB%E4%B8%96%23&Refer=top) `5.2M 🔥`
 1. [东风标致承认救援河南工作存在不足](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E9%A3%8E%E6%A0%87%E8%87%B4%E6%89%BF%E8%AE%A4%E6%95%91%E6%8F%B4%E6%B2%B3%E5%8D%97%E5%B7%A5%E4%BD%9C%E5%AD%98%E5%9C%A8%E4%B8%8D%E8%B6%B3%23&Refer=top) `4.9M 🔥`
 1. [希岸酒店道歉](https://s.weibo.com/weibo?q=%23%E5%B8%8C%E5%B2%B8%E9%85%92%E5%BA%97%E9%81%93%E6%AD%89%23&Refer=top) `4.0M 🔥`
 1. [新冠病毒或2019年10月即在欧洲传播](https://s.weibo.com/weibo?q=%23%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E6%88%962019%E5%B9%B410%E6%9C%88%E5%8D%B3%E5%9C%A8%E6%AC%A7%E6%B4%B2%E4%BC%A0%E6%92%AD%23&Refer=top) `3.6M 🔥`
@@ -55,9 +56,8 @@
 1. [中国现存KTV企业不及七年前一半](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E7%8E%B0%E5%AD%98KTV%E4%BC%81%E4%B8%9A%E4%B8%8D%E5%8F%8A%E4%B8%83%E5%B9%B4%E5%89%8D%E4%B8%80%E5%8D%8A%23&Refer=top) `1.4M 🔥`
 1. [郑州邮政凌晨救出138名农民工兄弟](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E9%82%AE%E6%94%BF%E5%87%8C%E6%99%A8%E6%95%91%E5%87%BA138%E5%90%8D%E5%86%9C%E6%B0%91%E5%B7%A5%E5%85%84%E5%BC%9F%23&Refer=top) `1.4M 🔥`
 1. [昨晚的微博评论太好哭了](https://s.weibo.com/weibo?q=%23%E6%98%A8%E6%99%9A%E7%9A%84%E5%BE%AE%E5%8D%9A%E8%AF%84%E8%AE%BA%E5%A4%AA%E5%A5%BD%E5%93%AD%E4%BA%86%23&Refer=top) `1.4M 🔥`
-1. [杭州援助2000万驰援郑州](https://s.weibo.com/weibo?q=%23%E6%9D%AD%E5%B7%9E%E6%8F%B4%E5%8A%A92000%E4%B8%87%E9%A9%B0%E6%8F%B4%E9%83%91%E5%B7%9E%23&Refer=top) `1.4M 🔥`
 
-数据更新于 2021-07-22 16:05:35
+数据更新于 2021-07-22 16:26:35
 
 <!-- END -->
 
