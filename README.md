@@ -6,7 +6,7 @@
 
 <!-- BEGIN -->
 
-1. [东京奥运开幕式](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E4%BA%AC%E5%A5%A5%E8%BF%90%E5%BC%80%E5%B9%95%E5%BC%8F%23&Refer=top) `20.5M 🔥`
+1. [东京奥运开幕式](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E4%BA%AC%E5%A5%A5%E8%BF%90%E5%BC%80%E5%B9%95%E5%BC%8F%23&Refer=top) `25.4M 🔥`
 1. [东京奥运会今天开幕](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E4%BA%AC%E5%A5%A5%E8%BF%90%E4%BC%9A%E4%BB%8A%E5%A4%A9%E5%BC%80%E5%B9%95%23&Refer=top) `8.0M 🔥`
 1. [齐齐哈尔洪水](https://s.weibo.com/weibo?q=%23%E9%BD%90%E9%BD%90%E5%93%88%E5%B0%94%E6%B4%AA%E6%B0%B4%23&Refer=top) `7.6M 🔥`
 1. [日本基因突变双头龟](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E5%9F%BA%E5%9B%A0%E7%AA%81%E5%8F%98%E5%8F%8C%E5%A4%B4%E9%BE%9F%23&Refer=top) `6.1M 🔥`
@@ -57,7 +57,7 @@
 1. [郑州地铁急需龙吸水设备](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E5%9C%B0%E9%93%81%E6%80%A5%E9%9C%80%E9%BE%99%E5%90%B8%E6%B0%B4%E8%AE%BE%E5%A4%87%23&Refer=top) `1.7M 🔥`
 1. [北京研发全球首个14价HPV疫苗](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E7%A0%94%E5%8F%91%E5%85%A8%E7%90%83%E9%A6%96%E4%B8%AA14%E4%BB%B7HPV%E7%96%AB%E8%8B%97%23&Refer=top) `1.7M 🔥`
 
-数据更新于 2021-07-23 19:27:17
+数据更新于 2021-07-23 19:33:44
 
 <!-- END -->
 
