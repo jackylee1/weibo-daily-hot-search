@@ -24,6 +24,7 @@
 1. [中国红yyds](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E7%BA%A2yyds%23&Refer=top) `1.2M 🔥`
 1. [黄码](https://s.weibo.com/weibo?q=%E9%BB%84%E7%A0%81&Refer=top) `1.2M 🔥`
 1. [郑州暴雨冲出汉代古墓](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E6%9A%B4%E9%9B%A8%E5%86%B2%E5%87%BA%E6%B1%89%E4%BB%A3%E5%8F%A4%E5%A2%93%23&Refer=top) `1.2M 🔥`
+1. [朱婷连头绳都是红色的](https://s.weibo.com/weibo?q=%23%E6%9C%B1%E5%A9%B7%E8%BF%9E%E5%A4%B4%E7%BB%B3%E9%83%BD%E6%98%AF%E7%BA%A2%E8%89%B2%E7%9A%84%23&Refer=top) `1.1M 🔥`
 1. [美国代表团](https://s.weibo.com/weibo?q=%E7%BE%8E%E5%9B%BD%E4%BB%A3%E8%A1%A8%E5%9B%A2&Refer=top) `1.1M 🔥`
 1. [奥运会真的好出神颜啊](https://s.weibo.com/weibo?q=%23%E5%A5%A5%E8%BF%90%E4%BC%9A%E7%9C%9F%E7%9A%84%E5%A5%BD%E5%87%BA%E7%A5%9E%E9%A2%9C%E5%95%8A%23&Refer=top) `1.1M 🔥`
 1. [郑州暴雨造成直接经济损失655亿元](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E6%9A%B4%E9%9B%A8%E9%80%A0%E6%88%90%E7%9B%B4%E6%8E%A5%E7%BB%8F%E6%B5%8E%E6%8D%9F%E5%A4%B1655%E4%BA%BF%E5%85%83%23&Refer=top) `1.1M 🔥`
@@ -44,8 +45,8 @@
 1. [超级变变变演绎奥运图标](https://s.weibo.com/weibo?q=%23%E8%B6%85%E7%BA%A7%E5%8F%98%E5%8F%98%E5%8F%98%E6%BC%94%E7%BB%8E%E5%A5%A5%E8%BF%90%E5%9B%BE%E6%A0%87%23&Refer=top) `688.8K 🔥`
 1. [怎么没有任天堂](https://s.weibo.com/weibo?q=%E6%80%8E%E4%B9%88%E6%B2%A1%E6%9C%89%E4%BB%BB%E5%A4%A9%E5%A0%82&Refer=top) `685.3K 🔥`
 1. [杭州台风](https://s.weibo.com/weibo?q=%E6%9D%AD%E5%B7%9E%E5%8F%B0%E9%A3%8E&Refer=top) `662.7K 🔥`
+1. [我住在广州最大烂尾楼里23年](https://s.weibo.com/weibo?q=%23%E6%88%91%E4%BD%8F%E5%9C%A8%E5%B9%BF%E5%B7%9E%E6%9C%80%E5%A4%A7%E7%83%82%E5%B0%BE%E6%A5%BC%E9%87%8C23%E5%B9%B4%23&Refer=top) `655.4K 🔥`
 1. [中国台北](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%8F%B0%E5%8C%97%23&Refer=top) `638.5K 🔥`
-1. [我住在广州最大烂尾楼里23年](https://s.weibo.com/weibo?q=%23%E6%88%91%E4%BD%8F%E5%9C%A8%E5%B9%BF%E5%B7%9E%E6%9C%80%E5%A4%A7%E7%83%82%E5%B0%BE%E6%A5%BC%E9%87%8C23%E5%B9%B4%23&Refer=top) `635.0K 🔥`
 1. [维他奶](https://s.weibo.com/weibo?q=%E7%BB%B4%E4%BB%96%E5%A5%B6&Refer=top) `623.5K 🔥`
 1. [奥运段子大赛](https://s.weibo.com/weibo?q=%23%E5%A5%A5%E8%BF%90%E6%AE%B5%E5%AD%90%E5%A4%A7%E8%B5%9B%23&Refer=top) `613.0K 🔥`
 1. [新乡30座水库有29座蓄满溢洪](https://s.weibo.com/weibo?q=%23%E6%96%B0%E4%B9%A130%E5%BA%A7%E6%B0%B4%E5%BA%93%E6%9C%8929%E5%BA%A7%E8%93%84%E6%BB%A1%E6%BA%A2%E6%B4%AA%23&Refer=top) `603.4K 🔥`
@@ -55,9 +56,8 @@
 1. [河南被困男子见到消防员哭了](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8D%97%E8%A2%AB%E5%9B%B0%E7%94%B7%E5%AD%90%E8%A7%81%E5%88%B0%E6%B6%88%E9%98%B2%E5%91%98%E5%93%AD%E4%BA%86%23&Refer=top) `579.1K 🔥`
 1. [东京奥运会开幕式吐槽大会](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E4%BA%AC%E5%A5%A5%E8%BF%90%E4%BC%9A%E5%BC%80%E5%B9%95%E5%BC%8F%E5%90%90%E6%A7%BD%E5%A4%A7%E4%BC%9A%23&Refer=top) `561.2K 🔥`
 1. [郑州一男子隧道涨水前吼出车主](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E4%B8%80%E7%94%B7%E5%AD%90%E9%9A%A7%E9%81%93%E6%B6%A8%E6%B0%B4%E5%89%8D%E5%90%BC%E5%87%BA%E8%BD%A6%E4%B8%BB%23&Refer=top) `543.8K 🔥`
-1. [暴雨中狗狗躲在树后艰难求生](https://s.weibo.com/weibo?q=%E6%9A%B4%E9%9B%A8%E4%B8%AD%E7%8B%97%E7%8B%97%E8%BA%B2%E5%9C%A8%E6%A0%91%E5%90%8E%E8%89%B0%E9%9A%BE%E6%B1%82%E7%94%9F&Refer=top) `542.3K 🔥`
 
-数据更新于 2021-07-24 01:22:24
+数据更新于 2021-07-24 01:39:23
 
 <!-- END -->
 
