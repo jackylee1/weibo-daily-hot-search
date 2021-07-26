@@ -23,14 +23,15 @@
 1. [李冰洁获女子400米自由泳铜牌](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E5%86%B0%E6%B4%81%E8%8E%B7%E5%A5%B3%E5%AD%90400%E7%B1%B3%E8%87%AA%E7%94%B1%E6%B3%B3%E9%93%9C%E7%89%8C%23&Refer=top) `3.4M 🔥`
 1. [南京2例确诊病例轻型转重型](https://s.weibo.com/weibo?q=%23%E5%8D%97%E4%BA%AC2%E4%BE%8B%E7%A1%AE%E8%AF%8A%E7%97%85%E4%BE%8B%E8%BD%BB%E5%9E%8B%E8%BD%AC%E9%87%8D%E5%9E%8B%23&Refer=top) `3.3M 🔥`
 1. [陈艾森用毛巾挡着](https://s.weibo.com/weibo?q=%23%E9%99%88%E8%89%BE%E6%A3%AE%E7%94%A8%E6%AF%9B%E5%B7%BE%E6%8C%A1%E7%9D%80%23&Refer=top) `3.2M 🔥`
+1. [台风烟花](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E9%A3%8E%E7%83%9F%E8%8A%B1%23&Refer=top) `3.2M 🔥`
 1. [举重比赛裁判改判](https://s.weibo.com/weibo?q=%23%E4%B8%BE%E9%87%8D%E6%AF%94%E8%B5%9B%E8%A3%81%E5%88%A4%E6%94%B9%E5%88%A4%23&Refer=top) `3.1M 🔥`
 1. [上海已有36.2万人成功转移](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E5%B7%B2%E6%9C%8936.2%E4%B8%87%E4%BA%BA%E6%88%90%E5%8A%9F%E8%BD%AC%E7%A7%BB%23&Refer=top) `3.1M 🔥`
 1. [沙葱卖50一斤仍供不应求](https://s.weibo.com/weibo?q=%23%E6%B2%99%E8%91%B1%E5%8D%9650%E4%B8%80%E6%96%A4%E4%BB%8D%E4%BE%9B%E4%B8%8D%E5%BA%94%E6%B1%82%23&Refer=top) `3.0M 🔥`
 1. [王嘉尔的纹身](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E5%98%89%E5%B0%94%E7%9A%84%E7%BA%B9%E8%BA%AB%23&Refer=top) `3.0M 🔥`
 1. [王丽丽好强](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E4%B8%BD%E4%B8%BD%E5%A5%BD%E5%BC%BA%23&Refer=top) `2.9M 🔥`
-1. [台风烟花](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E9%A3%8E%E7%83%9F%E8%8A%B1%23&Refer=top) `2.9M 🔥`
 1. [卫辉内涝](https://s.weibo.com/weibo?q=%23%E5%8D%AB%E8%BE%89%E5%86%85%E6%B6%9D%23&Refer=top) `2.9M 🔥`
 1. [蔡卓宜坐王大陆大腿](https://s.weibo.com/weibo?q=%23%E8%94%A1%E5%8D%93%E5%AE%9C%E5%9D%90%E7%8E%8B%E5%A4%A7%E9%99%86%E5%A4%A7%E8%85%BF%23&Refer=top) `2.9M 🔥`
+1. [郭晶晶为小师妹奥运夺金高兴](https://s.weibo.com/weibo?q=%23%E9%83%AD%E6%99%B6%E6%99%B6%E4%B8%BA%E5%B0%8F%E5%B8%88%E5%A6%B9%E5%A5%A5%E8%BF%90%E5%A4%BA%E9%87%91%E9%AB%98%E5%85%B4%23&Refer=top) `2.8M 🔥`
 1. [邮递员给儿子送北大录取通知书](https://s.weibo.com/weibo?q=%E9%82%AE%E9%80%92%E5%91%98%E7%BB%99%E5%84%BF%E5%AD%90%E9%80%81%E5%8C%97%E5%A4%A7%E5%BD%95%E5%8F%96%E9%80%9A%E7%9F%A5%E4%B9%A6&Refer=top) `2.8M 🔥`
 1. [余姚暴雨](https://s.weibo.com/weibo?q=%23%E4%BD%99%E5%A7%9A%E6%9A%B4%E9%9B%A8%23&Refer=top) `2.8M 🔥`
 1. [陈艾森第一次上跳台是被教练踹下去的](https://s.weibo.com/weibo?q=%23%E9%99%88%E8%89%BE%E6%A3%AE%E7%AC%AC%E4%B8%80%E6%AC%A1%E4%B8%8A%E8%B7%B3%E5%8F%B0%E6%98%AF%E8%A2%AB%E6%95%99%E7%BB%83%E8%B8%B9%E4%B8%8B%E5%8E%BB%E7%9A%84%23&Refer=top) `2.7M 🔥`
@@ -39,6 +40,8 @@
 1. [郭晶晶在看台唱国歌](https://s.weibo.com/weibo?q=%23%E9%83%AD%E6%99%B6%E6%99%B6%E5%9C%A8%E7%9C%8B%E5%8F%B0%E5%94%B1%E5%9B%BD%E6%AD%8C%23&Refer=top) `2.6M 🔥`
 1. [王嘉尔金属创口贴](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E5%98%89%E5%B0%94%E9%87%91%E5%B1%9E%E5%88%9B%E5%8F%A3%E8%B4%B4%23&Refer=top) `2.5M 🔥`
 1. [魏萌获女子双向飞碟铜牌](https://s.weibo.com/weibo?q=%23%E9%AD%8F%E8%90%8C%E8%8E%B7%E5%A5%B3%E5%AD%90%E5%8F%8C%E5%90%91%E9%A3%9E%E7%A2%9F%E9%93%9C%E7%89%8C%23&Refer=top) `2.5M 🔥`
+1. [超30%英国人删掉新冠追踪App](https://s.weibo.com/weibo?q=%23%E8%B6%8530%25%E8%8B%B1%E5%9B%BD%E4%BA%BA%E5%88%A0%E6%8E%89%E6%96%B0%E5%86%A0%E8%BF%BD%E8%B8%AAApp%23&Refer=top) `2.4M 🔥`
+1. [姚景元选择复读一年](https://s.weibo.com/weibo?q=%23%E5%A7%9A%E6%99%AF%E5%85%83%E9%80%89%E6%8B%A9%E5%A4%8D%E8%AF%BB%E4%B8%80%E5%B9%B4%23&Refer=top) `2.3M 🔥`
 1. [杭州杀妻案一审宣判](https://s.weibo.com/weibo?q=%23%E6%9D%AD%E5%B7%9E%E6%9D%80%E5%A6%BB%E6%A1%88%E4%B8%80%E5%AE%A1%E5%AE%A3%E5%88%A4%23&Refer=top) `2.3M 🔥`
 1. [扛起孙一文就跑的光头教练真面目](https://s.weibo.com/weibo?q=%23%E6%89%9B%E8%B5%B7%E5%AD%99%E4%B8%80%E6%96%87%E5%B0%B1%E8%B7%91%E7%9A%84%E5%85%89%E5%A4%B4%E6%95%99%E7%BB%83%E7%9C%9F%E9%9D%A2%E7%9B%AE%23&Refer=top) `2.3M 🔥`
 1. [奥运乒乓球史上年纪最大的参赛者](https://s.weibo.com/weibo?q=%23%E5%A5%A5%E8%BF%90%E4%B9%92%E4%B9%93%E7%90%83%E5%8F%B2%E4%B8%8A%E5%B9%B4%E7%BA%AA%E6%9C%80%E5%A4%A7%E7%9A%84%E5%8F%82%E8%B5%9B%E8%80%85%23&Refer=top) `2.3M 🔥`
@@ -53,11 +56,8 @@
 1. [这届奥运被中国网友的留言戳到了](https://s.weibo.com/weibo?q=%23%E8%BF%99%E5%B1%8A%E5%A5%A5%E8%BF%90%E8%A2%AB%E4%B8%AD%E5%9B%BD%E7%BD%91%E5%8F%8B%E7%9A%84%E7%95%99%E8%A8%80%E6%88%B3%E5%88%B0%E4%BA%86%23&Refer=top) `2.0M 🔥`
 1. [近千人70小时封堵卫河决口](https://s.weibo.com/weibo?q=%23%E8%BF%91%E5%8D%83%E4%BA%BA70%E5%B0%8F%E6%97%B6%E5%B0%81%E5%A0%B5%E5%8D%AB%E6%B2%B3%E5%86%B3%E5%8F%A3%23&Refer=top) `2.0M 🔥`
 1. [衡水中学回应在美上市](https://s.weibo.com/weibo?q=%23%E8%A1%A1%E6%B0%B4%E4%B8%AD%E5%AD%A6%E5%9B%9E%E5%BA%94%E5%9C%A8%E7%BE%8E%E4%B8%8A%E5%B8%82%23&Refer=top) `1.9M 🔥`
-1. [戴利第一枚奥运金牌](https://s.weibo.com/weibo?q=%23%E6%88%B4%E5%88%A9%E7%AC%AC%E4%B8%80%E6%9E%9A%E5%A5%A5%E8%BF%90%E9%87%91%E7%89%8C%23&Refer=top) `1.9M 🔥`
-1. [意大利举重小哥Zanni好帅](https://s.weibo.com/weibo?q=%23%E6%84%8F%E5%A4%A7%E5%88%A9%E4%B8%BE%E9%87%8D%E5%B0%8F%E5%93%A5Zanni%E5%A5%BD%E5%B8%85%23&Refer=top) `1.9M 🔥`
-1. [东京奥运收视率创33年最低](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E4%BA%AC%E5%A5%A5%E8%BF%90%E6%94%B6%E8%A7%86%E7%8E%87%E5%88%9B33%E5%B9%B4%E6%9C%80%E4%BD%8E%23&Refer=top) `1.9M 🔥`
 
-数据更新于 2021-07-26 17:03:07
+数据更新于 2021-07-26 17:23:49
 
 <!-- END -->
 
