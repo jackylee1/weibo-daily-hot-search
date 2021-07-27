@@ -15,10 +15,10 @@
 1. [马龙 不能吹球就吹手](https://s.weibo.com/weibo?q=%E9%A9%AC%E9%BE%99%20%E4%B8%8D%E8%83%BD%E5%90%B9%E7%90%83%E5%B0%B1%E5%90%B9%E6%89%8B&Refer=top) `6.1M 🔥`
 1. [大坂直美被淘汰](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%9D%82%E7%9B%B4%E7%BE%8E%E8%A2%AB%E6%B7%98%E6%B1%B0%23&Refer=top) `5.2M 🔥`
 1. [许昕说没给自己一个好的结局](https://s.weibo.com/weibo?q=%23%E8%AE%B8%E6%98%95%E8%AF%B4%E6%B2%A1%E7%BB%99%E8%87%AA%E5%B7%B1%E4%B8%80%E4%B8%AA%E5%A5%BD%E7%9A%84%E7%BB%93%E5%B1%80%23&Refer=top) `5.1M 🔥`
+1. [孙一文受伤](https://s.weibo.com/weibo?q=%23%E5%AD%99%E4%B8%80%E6%96%87%E5%8F%97%E4%BC%A4%23&Refer=top) `4.9M 🔥`
 1. [微信终于支持多设备同时在线](https://s.weibo.com/weibo?q=%23%E5%BE%AE%E4%BF%A1%E7%BB%88%E4%BA%8E%E6%94%AF%E6%8C%81%E5%A4%9A%E8%AE%BE%E5%A4%87%E5%90%8C%E6%97%B6%E5%9C%A8%E7%BA%BF%23&Refer=top) `4.8M 🔥`
 1. [击剑教练赛后向女徒弟求婚成功](https://s.weibo.com/weibo?q=%23%E5%87%BB%E5%89%91%E6%95%99%E7%BB%83%E8%B5%9B%E5%90%8E%E5%90%91%E5%A5%B3%E5%BE%92%E5%BC%9F%E6%B1%82%E5%A9%9A%E6%88%90%E5%8A%9F%23&Refer=top) `4.7M 🔥`
 1. [中国女排第一局暂时落后](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E5%A5%B3%E6%8E%92%E7%AC%AC%E4%B8%80%E5%B1%80%E6%9A%82%E6%97%B6%E8%90%BD%E5%90%8E&Refer=top) `4.7M 🔥`
-1. [孙一文受伤](https://s.weibo.com/weibo?q=%E5%AD%99%E4%B8%80%E6%96%87%E5%8F%97%E4%BC%A4&Refer=top) `4.6M 🔥`
 1. [金靖舒奕橙恋情](https://s.weibo.com/weibo?q=%23%E9%87%91%E9%9D%96%E8%88%92%E5%A5%95%E6%A9%99%E6%81%8B%E6%83%85%23&Refer=top) `4.5M 🔥`
 1. [水谷隼吹球](https://s.weibo.com/weibo?q=%23%E6%B0%B4%E8%B0%B7%E9%9A%BC%E5%90%B9%E7%90%83%23&Refer=top) `3.9M 🔥`
 1. [南京疫情毒株为德尔塔毒株](https://s.weibo.com/weibo?q=%23%E5%8D%97%E4%BA%AC%E7%96%AB%E6%83%85%E6%AF%92%E6%A0%AA%E4%B8%BA%E5%BE%B7%E5%B0%94%E5%A1%94%E6%AF%92%E6%A0%AA%23&Refer=top) `3.6M 🔥`
@@ -57,7 +57,7 @@
 1. [吉克隽逸 银牌同样沉甸甸](https://s.weibo.com/weibo?q=%E5%90%89%E5%85%8B%E9%9A%BD%E9%80%B8%20%E9%93%B6%E7%89%8C%E5%90%8C%E6%A0%B7%E6%B2%89%E7%94%B8%E7%94%B8&Refer=top) `1.6M 🔥`
 1. [庞伟 我队友太厉害了](https://s.weibo.com/weibo?q=%E5%BA%9E%E4%BC%9F%20%E6%88%91%E9%98%9F%E5%8F%8B%E5%A4%AA%E5%8E%89%E5%AE%B3%E4%BA%86&Refer=top) `1.6M 🔥`
 
-数据更新于 2021-07-27 14:00:03
+数据更新于 2021-07-27 14:02:35
 
 <!-- END -->
 
