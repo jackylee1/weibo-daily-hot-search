@@ -29,6 +29,7 @@
 1. [原来日本和美国不住奥运村](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E6%97%A5%E6%9C%AC%E5%92%8C%E7%BE%8E%E5%9B%BD%E4%B8%8D%E4%BD%8F%E5%A5%A5%E8%BF%90%E6%9D%91%23&Refer=top) `4.7M 🔥`
 1. [肖若腾被扣0.3分是因为没向裁判致意](https://s.weibo.com/weibo?q=%23%E8%82%96%E8%8B%A5%E8%85%BE%E8%A2%AB%E6%89%A30.3%E5%88%86%E6%98%AF%E5%9B%A0%E4%B8%BA%E6%B2%A1%E5%90%91%E8%A3%81%E5%88%A4%E8%87%B4%E6%84%8F%23&Refer=top) `4.6M 🔥`
 1. [黄子韬 这都什么玩意儿选择性眼瞎](https://s.weibo.com/weibo?q=%E9%BB%84%E5%AD%90%E9%9F%AC%20%E8%BF%99%E9%83%BD%E4%BB%80%E4%B9%88%E7%8E%A9%E6%84%8F%E5%84%BF%E9%80%89%E6%8B%A9%E6%80%A7%E7%9C%BC%E7%9E%8E&Refer=top) `4.5M 🔥`
+1. [樊振东晋级乒乓男单决赛](https://s.weibo.com/weibo?q=%23%E6%A8%8A%E6%8C%AF%E4%B8%9C%E6%99%8B%E7%BA%A7%E4%B9%92%E4%B9%93%E7%94%B7%E5%8D%95%E5%86%B3%E8%B5%9B%23&Refer=top) `4.5M 🔥`
 1. [孙颖莎说赢了伊藤美诚过瘾](https://s.weibo.com/weibo?q=%23%E5%AD%99%E9%A2%96%E8%8E%8E%E8%AF%B4%E8%B5%A2%E4%BA%86%E4%BC%8A%E8%97%A4%E7%BE%8E%E8%AF%9A%E8%BF%87%E7%98%BE%23&Refer=top) `4.4M 🔥`
 1. [乒乓球女单半决赛](https://s.weibo.com/weibo?q=%23%E4%B9%92%E4%B9%93%E7%90%83%E5%A5%B3%E5%8D%95%E5%8D%8A%E5%86%B3%E8%B5%9B%23&Refer=top) `4.1M 🔥`
 1. [文淇 你是真正的冠军](https://s.weibo.com/weibo?q=%E6%96%87%E6%B7%87%20%E4%BD%A0%E6%98%AF%E7%9C%9F%E6%AD%A3%E7%9A%84%E5%86%A0%E5%86%9B&Refer=top) `4.1M 🔥`
@@ -55,9 +56,8 @@
 1. [王源MV女主角有脸了](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E6%BA%90MV%E5%A5%B3%E4%B8%BB%E8%A7%92%E6%9C%89%E8%84%B8%E4%BA%86%23&Refer=top) `2.5M 🔥`
 1. [日本选手压在中国选手身上游](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E9%80%89%E6%89%8B%E5%8E%8B%E5%9C%A8%E4%B8%AD%E5%9B%BD%E9%80%89%E6%89%8B%E8%BA%AB%E4%B8%8A%E6%B8%B8%23&Refer=top) `2.4M 🔥`
 1. [杨倩小黄鸭发卡半天卖上万件](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E5%80%A9%E5%B0%8F%E9%BB%84%E9%B8%AD%E5%8F%91%E5%8D%A1%E5%8D%8A%E5%A4%A9%E5%8D%96%E4%B8%8A%E4%B8%87%E4%BB%B6%23&Refer=top) `2.4M 🔥`
-1. [伊藤美诚表情](https://s.weibo.com/weibo?q=%23%E4%BC%8A%E8%97%A4%E7%BE%8E%E8%AF%9A%E8%A1%A8%E6%83%85%23&Refer=top) `2.4M 🔥`
 
-数据更新于 2021-07-29 15:49:00
+数据更新于 2021-07-29 15:55:37
 
 <!-- END -->
 
