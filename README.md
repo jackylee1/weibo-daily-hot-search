@@ -12,7 +12,7 @@
 1. [陈雨菲 我预判了你的预判](https://s.weibo.com/weibo?q=%E9%99%88%E9%9B%A8%E8%8F%B2%20%E6%88%91%E9%A2%84%E5%88%A4%E4%BA%86%E4%BD%A0%E7%9A%84%E9%A2%84%E5%88%A4&Refer=top) `15.7M 🔥`
 1. [朱雪莹蹦床夺金](https://s.weibo.com/weibo?q=%23%E6%9C%B1%E9%9B%AA%E8%8E%B9%E8%B9%A6%E5%BA%8A%E5%A4%BA%E9%87%91%23&Refer=top) `13.9M 🔥`
 1. [奥恰洛夫哭了](https://s.weibo.com/weibo?q=%23%E5%A5%A5%E6%81%B0%E6%B4%9B%E5%A4%AB%E5%93%AD%E4%BA%86%23&Refer=top) `12.2M 🔥`
-1. [马龙成首位奥运男单双冠王](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E9%BE%99%E6%88%90%E9%A6%96%E4%BD%8D%E5%A5%A5%E8%BF%90%E7%94%B7%E5%8D%95%E5%8F%8C%E5%86%A0%E7%8E%8B%23&Refer=top) `9.4M 🔥`
+1. [马龙成首位奥运男单双冠王](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E9%BE%99%E6%88%90%E9%A6%96%E4%BD%8D%E5%A5%A5%E8%BF%90%E7%94%B7%E5%8D%95%E5%8F%8C%E5%86%A0%E7%8E%8B%23&Refer=top) `11.2M 🔥`
 1. [樊振东夺乒乓球男单银牌](https://s.weibo.com/weibo?q=%23%E6%A8%8A%E6%8C%AF%E4%B8%9C%E5%A4%BA%E4%B9%92%E4%B9%93%E7%90%83%E7%94%B7%E5%8D%95%E9%93%B6%E7%89%8C%23&Refer=top) `9.2M 🔥`
 1. [奥运史上最心酸的一块金牌](https://s.weibo.com/weibo?q=%23%E5%A5%A5%E8%BF%90%E5%8F%B2%E4%B8%8A%E6%9C%80%E5%BF%83%E9%85%B8%E7%9A%84%E4%B8%80%E5%9D%97%E9%87%91%E7%89%8C%23&Refer=top) `9.2M 🔥`
 1. [刘国梁马琳轻松观战](https://s.weibo.com/weibo?q=%23%E5%88%98%E5%9B%BD%E6%A2%81%E9%A9%AC%E7%90%B3%E8%BD%BB%E6%9D%BE%E8%A7%82%E6%88%98%23&Refer=top) `8.3M 🔥`
@@ -30,10 +30,10 @@
 1. [刘国梁称国乒要有英雄站出来](https://s.weibo.com/weibo?q=%23%E5%88%98%E5%9B%BD%E6%A2%81%E7%A7%B0%E5%9B%BD%E4%B9%92%E8%A6%81%E6%9C%89%E8%8B%B1%E9%9B%84%E7%AB%99%E5%87%BA%E6%9D%A5%23&Refer=top) `4.9M 🔥`
 1. [肖若腾说不恨日本选手](https://s.weibo.com/weibo?q=%23%E8%82%96%E8%8B%A5%E8%85%BE%E8%AF%B4%E4%B8%8D%E6%81%A8%E6%97%A5%E6%9C%AC%E9%80%89%E6%89%8B%23&Refer=top) `4.9M 🔥`
 1. [刘国梁赛后称脑梗都打出来了](https://s.weibo.com/weibo?q=%23%E5%88%98%E5%9B%BD%E6%A2%81%E8%B5%9B%E5%90%8E%E7%A7%B0%E8%84%91%E6%A2%97%E9%83%BD%E6%89%93%E5%87%BA%E6%9D%A5%E4%BA%86%23&Refer=top) `4.8M 🔥`
+1. [马龙出发奥运会前打了封闭](https://s.weibo.com/weibo?q=%E9%A9%AC%E9%BE%99%E5%87%BA%E5%8F%91%E5%A5%A5%E8%BF%90%E4%BC%9A%E5%89%8D%E6%89%93%E4%BA%86%E5%B0%81%E9%97%AD&Refer=top) `4.8M 🔥`
 1. [日本柔道已获九枚金牌](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E6%9F%94%E9%81%93%E5%B7%B2%E8%8E%B7%E4%B9%9D%E6%9E%9A%E9%87%91%E7%89%8C%23&Refer=top) `4.5M 🔥`
 1. [中国女篮挺进奥运8强](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E5%A5%B3%E7%AF%AE%E6%8C%BA%E8%BF%9B%E5%A5%A5%E8%BF%908%E5%BC%BA&Refer=top) `4.5M 🔥`
 1. [奥运冠军杨倩乘机回国](https://s.weibo.com/weibo?q=%23%E5%A5%A5%E8%BF%90%E5%86%A0%E5%86%9B%E6%9D%A8%E5%80%A9%E4%B9%98%E6%9C%BA%E5%9B%9E%E5%9B%BD%23&Refer=top) `4.5M 🔥`
-1. [马龙出发奥运会前打了封闭](https://s.weibo.com/weibo?q=%E9%A9%AC%E9%BE%99%E5%87%BA%E5%8F%91%E5%A5%A5%E8%BF%90%E4%BC%9A%E5%89%8D%E6%89%93%E4%BA%86%E5%B0%81%E9%97%AD&Refer=top) `4.4M 🔥`
 1. [奥运会金牌只有6克黄金](https://s.weibo.com/weibo?q=%23%E5%A5%A5%E8%BF%90%E4%BC%9A%E9%87%91%E7%89%8C%E5%8F%AA%E6%9C%896%E5%85%8B%E9%BB%84%E9%87%91%23&Refer=top) `4.3M 🔥`
 1. [被张家界闭园海报破防了](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E5%BC%A0%E5%AE%B6%E7%95%8C%E9%97%AD%E5%9B%AD%E6%B5%B7%E6%8A%A5%E7%A0%B4%E9%98%B2%E4%BA%86%23&Refer=top) `4.1M 🔥`
 1. [今日稳拿两枚金牌](https://s.weibo.com/weibo?q=%23%E4%BB%8A%E6%97%A5%E7%A8%B3%E6%8B%BF%E4%B8%A4%E6%9E%9A%E9%87%91%E7%89%8C%23&Refer=top) `4.0M 🔥`
@@ -57,7 +57,7 @@
 1. [李小鹏复盘男子全能决赛](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E5%B0%8F%E9%B9%8F%E5%A4%8D%E7%9B%98%E7%94%B7%E5%AD%90%E5%85%A8%E8%83%BD%E5%86%B3%E8%B5%9B%23&Refer=top) `2.9M 🔥`
 1. [马龙奥恰洛夫合影方式](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E9%BE%99%E5%A5%A5%E6%81%B0%E6%B4%9B%E5%A4%AB%E5%90%88%E5%BD%B1%E6%96%B9%E5%BC%8F%23&Refer=top) `2.9M 🔥`
 
-数据更新于 2021-07-30 22:02:26
+数据更新于 2021-07-30 22:07:24
 
 <!-- END -->
 
