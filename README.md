@@ -6,9 +6,9 @@
 
 <!-- BEGIN -->
 
+1. [马龙夺乒乓球男单金牌](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E9%BE%99%E5%A4%BA%E4%B9%92%E4%B9%93%E7%90%83%E7%94%B7%E5%8D%95%E9%87%91%E7%89%8C%23&Refer=top) `27.7M 🔥`
 1. [马龙VS樊振东](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E9%BE%99VS%E6%A8%8A%E6%8C%AF%E4%B8%9C%23&Refer=top) `20.7M 🔥`
 1. [汪顺男子200米混合泳夺金](https://s.weibo.com/weibo?q=%23%E6%B1%AA%E9%A1%BA%E7%94%B7%E5%AD%90200%E7%B1%B3%E6%B7%B7%E5%90%88%E6%B3%B3%E5%A4%BA%E9%87%91%23&Refer=top) `19.1M 🔥`
-1. [马龙夺乒乓球男单金牌](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E9%BE%99%E5%A4%BA%E4%B9%92%E4%B9%93%E7%90%83%E7%94%B7%E5%8D%95%E9%87%91%E7%89%8C%23&Refer=top) `18.1M 🔥`
 1. [陈雨菲 我预判了你的预判](https://s.weibo.com/weibo?q=%E9%99%88%E9%9B%A8%E8%8F%B2%20%E6%88%91%E9%A2%84%E5%88%A4%E4%BA%86%E4%BD%A0%E7%9A%84%E9%A2%84%E5%88%A4&Refer=top) `15.7M 🔥`
 1. [朱雪莹蹦床夺金](https://s.weibo.com/weibo?q=%23%E6%9C%B1%E9%9B%AA%E8%8E%B9%E8%B9%A6%E5%BA%8A%E5%A4%BA%E9%87%91%23&Refer=top) `13.9M 🔥`
 1. [奥恰洛夫哭了](https://s.weibo.com/weibo?q=%23%E5%A5%A5%E6%81%B0%E6%B4%9B%E5%A4%AB%E5%93%AD%E4%BA%86%23&Refer=top) `12.2M 🔥`
@@ -25,6 +25,7 @@
 1. [马龙扇自己VS许昕扇自己](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E9%BE%99%E6%89%87%E8%87%AA%E5%B7%B1VS%E8%AE%B8%E6%98%95%E6%89%87%E8%87%AA%E5%B7%B1%23&Refer=top) `5.9M 🔥`
 1. [朱婷为备战东京奥运放弃手术](https://s.weibo.com/weibo?q=%23%E6%9C%B1%E5%A9%B7%E4%B8%BA%E5%A4%87%E6%88%98%E4%B8%9C%E4%BA%AC%E5%A5%A5%E8%BF%90%E6%94%BE%E5%BC%83%E6%89%8B%E6%9C%AF%23&Refer=top) `5.8M 🔥`
 1. [女子蹦床](https://s.weibo.com/weibo?q=%E5%A5%B3%E5%AD%90%E8%B9%A6%E5%BA%8A&Refer=top) `5.5M 🔥`
+1. [马龙成首位奥运男单双冠王](https://s.weibo.com/weibo?q=%E9%A9%AC%E9%BE%99%E6%88%90%E9%A6%96%E4%BD%8D%E5%A5%A5%E8%BF%90%E7%94%B7%E5%8D%95%E5%8F%8C%E5%86%A0%E7%8E%8B&Refer=top) `5.5M 🔥`
 1. [林昀儒VS奥恰洛夫](https://s.weibo.com/weibo?q=%23%E6%9E%97%E6%98%80%E5%84%92VS%E5%A5%A5%E6%81%B0%E6%B4%9B%E5%A4%AB%23&Refer=top) `5.2M 🔥`
 1. [刘国梁称国乒要有英雄站出来](https://s.weibo.com/weibo?q=%23%E5%88%98%E5%9B%BD%E6%A2%81%E7%A7%B0%E5%9B%BD%E4%B9%92%E8%A6%81%E6%9C%89%E8%8B%B1%E9%9B%84%E7%AB%99%E5%87%BA%E6%9D%A5%23&Refer=top) `4.9M 🔥`
 1. [肖若腾说不恨日本选手](https://s.weibo.com/weibo?q=%23%E8%82%96%E8%8B%A5%E8%85%BE%E8%AF%B4%E4%B8%8D%E6%81%A8%E6%97%A5%E6%9C%AC%E9%80%89%E6%89%8B%23&Refer=top) `4.9M 🔥`
@@ -48,16 +49,15 @@
 1. [王懿律黄东萍羽毛球混双金牌](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E6%87%BF%E5%BE%8B%E9%BB%84%E4%B8%9C%E8%90%8D%E7%BE%BD%E6%AF%9B%E7%90%83%E6%B7%B7%E5%8F%8C%E9%87%91%E7%89%8C%23&Refer=top) `3.2M 🔥`
 1. [武汉一家6姐弟连生11个男孩](https://s.weibo.com/weibo?q=%23%E6%AD%A6%E6%B1%89%E4%B8%80%E5%AE%B66%E5%A7%90%E5%BC%9F%E8%BF%9E%E7%94%9F11%E4%B8%AA%E7%94%B7%E5%AD%A9%23&Refer=top) `3.2M 🔥`
 1. [王思雨受伤](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E6%80%9D%E9%9B%A8%E5%8F%97%E4%BC%A4%23&Refer=top) `3.1M 🔥`
+1. [马龙出发奥运会前打了封闭](https://s.weibo.com/weibo?q=%E9%A9%AC%E9%BE%99%E5%87%BA%E5%8F%91%E5%A5%A5%E8%BF%90%E4%BC%9A%E5%89%8D%E6%89%93%E4%BA%86%E5%B0%81%E9%97%AD&Refer=top) `3.0M 🔥`
 1. [本轮疫情或已形成南京张家界传播双中心](https://s.weibo.com/weibo?q=%23%E6%9C%AC%E8%BD%AE%E7%96%AB%E6%83%85%E6%88%96%E5%B7%B2%E5%BD%A2%E6%88%90%E5%8D%97%E4%BA%AC%E5%BC%A0%E5%AE%B6%E7%95%8C%E4%BC%A0%E6%92%AD%E5%8F%8C%E4%B8%AD%E5%BF%83%23&Refer=top) `3.0M 🔥`
 1. [马龙提裤子表情](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E9%BE%99%E6%8F%90%E8%A3%A4%E5%AD%90%E8%A1%A8%E6%83%85%23&Refer=top) `3.0M 🔥`
+1. [马龙自言自语](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E9%BE%99%E8%87%AA%E8%A8%80%E8%87%AA%E8%AF%AD%23&Refer=top) `2.9M 🔥`
 1. [李小鹏复盘男子全能决赛](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E5%B0%8F%E9%B9%8F%E5%A4%8D%E7%9B%98%E7%94%B7%E5%AD%90%E5%85%A8%E8%83%BD%E5%86%B3%E8%B5%9B%23&Refer=top) `2.9M 🔥`
 1. [马龙奥恰洛夫合影方式](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E9%BE%99%E5%A5%A5%E6%81%B0%E6%B4%9B%E5%A4%AB%E5%90%88%E5%BD%B1%E6%96%B9%E5%BC%8F%23&Refer=top) `2.9M 🔥`
 1. [德尔塔毒株无接触14秒即可感染](https://s.weibo.com/weibo?q=%23%E5%BE%B7%E5%B0%94%E5%A1%94%E6%AF%92%E6%A0%AA%E6%97%A0%E6%8E%A5%E8%A7%A614%E7%A7%92%E5%8D%B3%E5%8F%AF%E6%84%9F%E6%9F%93%23&Refer=top) `2.9M 🔥`
-1. [陈梦父亲安排蒜蓉大虾犒劳女儿](https://s.weibo.com/weibo?q=%23%E9%99%88%E6%A2%A6%E7%88%B6%E4%BA%B2%E5%AE%89%E6%8E%92%E8%92%9C%E8%93%89%E5%A4%A7%E8%99%BE%E7%8A%92%E5%8A%B3%E5%A5%B3%E5%84%BF%23&Refer=top) `2.9M 🔥`
-1. [马琳哭了](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E7%90%B3%E5%93%AD%E4%BA%86%23&Refer=top) `2.8M 🔥`
-1. [肖嘉芮萱获25米手枪铜牌](https://s.weibo.com/weibo?q=%23%E8%82%96%E5%98%89%E8%8A%AE%E8%90%B1%E8%8E%B725%E7%B1%B3%E6%89%8B%E6%9E%AA%E9%93%9C%E7%89%8C%23&Refer=top) `2.8M 🔥`
 
-数据更新于 2021-07-30 21:49:58
+数据更新于 2021-07-30 21:56:28
 
 <!-- END -->
 
