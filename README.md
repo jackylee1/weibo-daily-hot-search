@@ -6,7 +6,7 @@
 
 <!-- BEGIN -->
 
-1. [马龙VS樊振东](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E9%BE%99VS%E6%A8%8A%E6%8C%AF%E4%B8%9C%23&Refer=top) `19.3M 🔥`
+1. [马龙VS樊振东](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E9%BE%99VS%E6%A8%8A%E6%8C%AF%E4%B8%9C%23&Refer=top) `20.4M 🔥`
 1. [汪顺男子200米混合泳夺金](https://s.weibo.com/weibo?q=%23%E6%B1%AA%E9%A1%BA%E7%94%B7%E5%AD%90200%E7%B1%B3%E6%B7%B7%E5%90%88%E6%B3%B3%E5%A4%BA%E9%87%91%23&Refer=top) `19.1M 🔥`
 1. [陈雨菲 我预判了你的预判](https://s.weibo.com/weibo?q=%E9%99%88%E9%9B%A8%E8%8F%B2%20%E6%88%91%E9%A2%84%E5%88%A4%E4%BA%86%E4%BD%A0%E7%9A%84%E9%A2%84%E5%88%A4&Refer=top) `15.7M 🔥`
 1. [朱雪莹蹦床夺金](https://s.weibo.com/weibo?q=%23%E6%9C%B1%E9%9B%AA%E8%8E%B9%E8%B9%A6%E5%BA%8A%E5%A4%BA%E9%87%91%23&Refer=top) `13.9M 🔥`
@@ -57,7 +57,7 @@
 1. [南京8例确诊到过同一个棋牌室](https://s.weibo.com/weibo?q=%23%E5%8D%97%E4%BA%AC8%E4%BE%8B%E7%A1%AE%E8%AF%8A%E5%88%B0%E8%BF%87%E5%90%8C%E4%B8%80%E4%B8%AA%E6%A3%8B%E7%89%8C%E5%AE%A4%23&Refer=top) `2.4M 🔥`
 1. [樊振东恩师透露小胖昵称由来](https://s.weibo.com/weibo?q=%23%E6%A8%8A%E6%8C%AF%E4%B8%9C%E6%81%A9%E5%B8%88%E9%80%8F%E9%9C%B2%E5%B0%8F%E8%83%96%E6%98%B5%E7%A7%B0%E7%94%B1%E6%9D%A5%23&Refer=top) `2.4M 🔥`
 
-数据更新于 2021-07-30 21:04:32
+数据更新于 2021-07-30 21:12:17
 
 <!-- END -->
 
