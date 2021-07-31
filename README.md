@@ -8,7 +8,7 @@
 
 1. [中国队获4X100米男女混合泳接力银牌](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E9%98%9F%E8%8E%B74X100%E7%B1%B3%E7%94%B7%E5%A5%B3%E6%B7%B7%E5%90%88%E6%B3%B3%E6%8E%A5%E5%8A%9B%E9%93%B6%E7%89%8C%23&Refer=top) `14.5M 🔥`
 1. [周扬青承认与罗昊的恋情](https://s.weibo.com/weibo?q=%23%E5%91%A8%E6%89%AC%E9%9D%92%E6%89%BF%E8%AE%A4%E4%B8%8E%E7%BD%97%E6%98%8A%E7%9A%84%E6%81%8B%E6%83%85%23&Refer=top) `13.7M 🔥`
-1. [东京奥运出现首例兴奋剂事件](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E4%BA%AC%E5%A5%A5%E8%BF%90%E5%87%BA%E7%8E%B0%E9%A6%96%E4%BE%8B%E5%85%B4%E5%A5%8B%E5%89%82%E4%BA%8B%E4%BB%B6%23&Refer=top) `8.8M 🔥`
+1. [东京奥运出现首例兴奋剂事件](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E4%BA%AC%E5%A5%A5%E8%BF%90%E5%87%BA%E7%8E%B0%E9%A6%96%E4%BE%8B%E5%85%B4%E5%A5%8B%E5%89%82%E4%BA%8B%E4%BB%B6%23&Refer=top) `10.9M 🔥`
 1. [张继科说这届奥运会很不一样](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E7%BB%A7%E7%A7%91%E8%AF%B4%E8%BF%99%E5%B1%8A%E5%A5%A5%E8%BF%90%E4%BC%9A%E5%BE%88%E4%B8%8D%E4%B8%80%E6%A0%B7%23&Refer=top) `7.1M 🔥`
 1. [卢云秀女子帆板夺金](https://s.weibo.com/weibo?q=%23%E5%8D%A2%E4%BA%91%E7%A7%80%E5%A5%B3%E5%AD%90%E5%B8%86%E6%9D%BF%E5%A4%BA%E9%87%91%23&Refer=top) `7.0M 🔥`
 1. [德尔塔毒株或导致更严重疾病](https://s.weibo.com/weibo?q=%23%E5%BE%B7%E5%B0%94%E5%A1%94%E6%AF%92%E6%A0%AA%E6%88%96%E5%AF%BC%E8%87%B4%E6%9B%B4%E4%B8%A5%E9%87%8D%E7%96%BE%E7%97%85%23&Refer=top) `6.9M 🔥`
@@ -36,9 +36,9 @@
 1. [郑州发现多例疑似病例](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E5%8F%91%E7%8E%B0%E5%A4%9A%E4%BE%8B%E7%96%91%E4%BC%BC%E7%97%85%E4%BE%8B%23&Refer=top) `3.0M 🔥`
 1. [张雨霏已经拿了4枚奖牌](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E9%9B%A8%E9%9C%8F%E5%B7%B2%E7%BB%8F%E6%8B%BF%E4%BA%864%E6%9E%9A%E5%A5%96%E7%89%8C%23&Refer=top) `2.7M 🔥`
 1. [董栋获蹦床银牌](https://s.weibo.com/weibo?q=%23%E8%91%A3%E6%A0%8B%E8%8E%B7%E8%B9%A6%E5%BA%8A%E9%93%B6%E7%89%8C%23&Refer=top) `2.7M 🔥`
+1. [吕小军刷新奥运纪录](https://s.weibo.com/weibo?q=%23%E5%90%95%E5%B0%8F%E5%86%9B%E5%88%B7%E6%96%B0%E5%A5%A5%E8%BF%90%E7%BA%AA%E5%BD%95%23&Refer=top) `2.7M 🔥`
 1. [日本蹦床男队失误](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E8%B9%A6%E5%BA%8A%E7%94%B7%E9%98%9F%E5%A4%B1%E8%AF%AF%23&Refer=top) `2.7M 🔥`
 1. [美国游泳选手泳镜游掉了](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E6%B8%B8%E6%B3%B3%E9%80%89%E6%89%8B%E6%B3%B3%E9%95%9C%E6%B8%B8%E6%8E%89%E4%BA%86%23&Refer=top) `2.6M 🔥`
-1. [吕小军刷新奥运纪录](https://s.weibo.com/weibo?q=%23%E5%90%95%E5%B0%8F%E5%86%9B%E5%88%B7%E6%96%B0%E5%A5%A5%E8%BF%90%E7%BA%AA%E5%BD%95%23&Refer=top) `2.6M 🔥`
 1. [高磊曾经把蹦床弹簧跳断](https://s.weibo.com/weibo?q=%23%E9%AB%98%E7%A3%8A%E6%9B%BE%E7%BB%8F%E6%8A%8A%E8%B9%A6%E5%BA%8A%E5%BC%B9%E7%B0%A7%E8%B7%B3%E6%96%AD%23&Refer=top) `2.5M 🔥`
 1. [原来樊振东也有腰窝](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E6%A8%8A%E6%8C%AF%E4%B8%9C%E4%B9%9F%E6%9C%89%E8%85%B0%E7%AA%9D%23&Refer=top) `2.4M 🔥`
 1. [宁静 我对房车没什么好印象](https://s.weibo.com/weibo?q=%E5%AE%81%E9%9D%99%20%E6%88%91%E5%AF%B9%E6%88%BF%E8%BD%A6%E6%B2%A1%E4%BB%80%E4%B9%88%E5%A5%BD%E5%8D%B0%E8%B1%A1&Refer=top) `2.3M 🔥`
@@ -57,7 +57,7 @@
 1. [宁静 有一期中餐厅我觉得不好看](https://s.weibo.com/weibo?q=%E5%AE%81%E9%9D%99%20%E6%9C%89%E4%B8%80%E6%9C%9F%E4%B8%AD%E9%A4%90%E5%8E%85%E6%88%91%E8%A7%89%E5%BE%97%E4%B8%8D%E5%A5%BD%E7%9C%8B&Refer=top) `1.8M 🔥`
 1. [跳水女子3米板半决赛](https://s.weibo.com/weibo?q=%E8%B7%B3%E6%B0%B4%E5%A5%B3%E5%AD%903%E7%B1%B3%E6%9D%BF%E5%8D%8A%E5%86%B3%E8%B5%9B&Refer=top) `1.8M 🔥`
 
-数据更新于 2021-07-31 16:46:03
+数据更新于 2021-07-31 16:52:14
 
 <!-- END -->
 
