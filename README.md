@@ -23,8 +23,8 @@
 1. [汪顺微信头像](https://s.weibo.com/weibo?q=%23%E6%B1%AA%E9%A1%BA%E5%BE%AE%E4%BF%A1%E5%A4%B4%E5%83%8F%23&Refer=top) `4.9M 🔥`
 1. [马薇薇道歉](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E8%96%87%E8%96%87%E9%81%93%E6%AD%89%23&Refer=top) `4.5M 🔥`
 1. [杨旭文](https://s.weibo.com/weibo?q=%E6%9D%A8%E6%97%AD%E6%96%87&Refer=top) `4.3M 🔥`
+1. [陈飞宇方否认将换脸吴亦凡](https://s.weibo.com/weibo?q=%23%E9%99%88%E9%A3%9E%E5%AE%87%E6%96%B9%E5%90%A6%E8%AE%A4%E5%B0%86%E6%8D%A2%E8%84%B8%E5%90%B4%E4%BA%A6%E5%87%A1%23&Refer=top) `4.0M 🔥`
 1. [为什么卢云秀第三个过线却拿了金牌](https://s.weibo.com/weibo?q=%23%E4%B8%BA%E4%BB%80%E4%B9%88%E5%8D%A2%E4%BA%91%E7%A7%80%E7%AC%AC%E4%B8%89%E4%B8%AA%E8%BF%87%E7%BA%BF%E5%8D%B4%E6%8B%BF%E4%BA%86%E9%87%91%E7%89%8C%23&Refer=top) `3.9M 🔥`
-1. [陈飞宇方否认将换脸吴亦凡](https://s.weibo.com/weibo?q=%23%E9%99%88%E9%A3%9E%E5%AE%87%E6%96%B9%E5%90%A6%E8%AE%A4%E5%B0%86%E6%8D%A2%E8%84%B8%E5%90%B4%E4%BA%A6%E5%87%A1%23&Refer=top) `3.9M 🔥`
 1. [青簪行](https://s.weibo.com/weibo?q=%E9%9D%92%E7%B0%AA%E8%A1%8C&Refer=top) `3.9M 🔥`
 1. [张玉环无罪归来一周年](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E7%8E%89%E7%8E%AF%E6%97%A0%E7%BD%AA%E5%BD%92%E6%9D%A5%E4%B8%80%E5%91%A8%E5%B9%B4%23&Refer=top) `3.7M 🔥`
 1. [上海杜莎夫人蜡像馆已撤去吴亦凡蜡像](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E6%9D%9C%E8%8E%8E%E5%A4%AB%E4%BA%BA%E8%9C%A1%E5%83%8F%E9%A6%86%E5%B7%B2%E6%92%A4%E5%8E%BB%E5%90%B4%E4%BA%A6%E5%87%A1%E8%9C%A1%E5%83%8F%23&Refer=top) `3.7M 🔥`
@@ -57,7 +57,7 @@
 1. [希腊举重选手宣布因贫穷退役](https://s.weibo.com/weibo?q=%23%E5%B8%8C%E8%85%8A%E4%B8%BE%E9%87%8D%E9%80%89%E6%89%8B%E5%AE%A3%E5%B8%83%E5%9B%A0%E8%B4%AB%E7%A9%B7%E9%80%80%E5%BD%B9%23&Refer=top) `1.9M 🔥`
 1. [一人感染德尔塔可传染八人](https://s.weibo.com/weibo?q=%23%E4%B8%80%E4%BA%BA%E6%84%9F%E6%9F%93%E5%BE%B7%E5%B0%94%E5%A1%94%E5%8F%AF%E4%BC%A0%E6%9F%93%E5%85%AB%E4%BA%BA%23&Refer=top) `1.8M 🔥`
 
-数据更新于 2021-08-02 15:48:55
+数据更新于 2021-08-02 15:55:10
 
 <!-- END -->
 
