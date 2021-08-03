@@ -23,6 +23,7 @@
 1. [EXO参与录制的四期快本被下架](https://s.weibo.com/weibo?q=%23EXO%E5%8F%82%E4%B8%8E%E5%BD%95%E5%88%B6%E7%9A%84%E5%9B%9B%E6%9C%9F%E5%BF%AB%E6%9C%AC%E8%A2%AB%E4%B8%8B%E6%9E%B6%23&Refer=top) `5.1M 🔥`
 1. [李雯雯说在奥运村都睡地上](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E9%9B%AF%E9%9B%AF%E8%AF%B4%E5%9C%A8%E5%A5%A5%E8%BF%90%E6%9D%91%E9%83%BD%E7%9D%A1%E5%9C%B0%E4%B8%8A%23&Refer=top) `5.1M 🔥`
 1. [小S回应ins风波](https://s.weibo.com/weibo?q=%23%E5%B0%8FS%E5%9B%9E%E5%BA%94ins%E9%A3%8E%E6%B3%A2%23&Refer=top) `4.9M 🔥`
+1. [新发现中药连花清瘟对德尔塔病毒有效](https://s.weibo.com/weibo?q=%23%E6%96%B0%E5%8F%91%E7%8E%B0%E4%B8%AD%E8%8D%AF%E8%BF%9E%E8%8A%B1%E6%B8%85%E7%98%9F%E5%AF%B9%E5%BE%B7%E5%B0%94%E5%A1%94%E7%97%85%E6%AF%92%E6%9C%89%E6%95%88%23&Refer=top) `4.8M 🔥`
 1. [一不小心被哄成了奥运冠军](https://s.weibo.com/weibo?q=%23%E4%B8%80%E4%B8%8D%E5%B0%8F%E5%BF%83%E8%A2%AB%E5%93%84%E6%88%90%E4%BA%86%E5%A5%A5%E8%BF%90%E5%86%A0%E5%86%9B%23&Refer=top) `4.6M 🔥`
 1. [苏炳添跟夫人从校服到婚纱](https://s.weibo.com/weibo?q=%23%E8%8B%8F%E7%82%B3%E6%B7%BB%E8%B7%9F%E5%A4%AB%E4%BA%BA%E4%BB%8E%E6%A0%A1%E6%9C%8D%E5%88%B0%E5%A9%9A%E7%BA%B1%23&Refer=top) `4.6M 🔥`
 1. [林俊杰方再发律师声明](https://s.weibo.com/weibo?q=%23%E6%9E%97%E4%BF%8A%E6%9D%B0%E6%96%B9%E5%86%8D%E5%8F%91%E5%BE%8B%E5%B8%88%E5%A3%B0%E6%98%8E%23&Refer=top) `4.6M 🔥`
@@ -48,7 +49,6 @@
 1. [扬州确诊病例曾去鸿星尔克专卖店](https://s.weibo.com/weibo?q=%23%E6%89%AC%E5%B7%9E%E7%A1%AE%E8%AF%8A%E7%97%85%E4%BE%8B%E6%9B%BE%E5%8E%BB%E9%B8%BF%E6%98%9F%E5%B0%94%E5%85%8B%E4%B8%93%E5%8D%96%E5%BA%97%23&Refer=top) `3.2M 🔥`
 1. [取消诱导粉丝应援打榜的产品功能](https://s.weibo.com/weibo?q=%23%E5%8F%96%E6%B6%88%E8%AF%B1%E5%AF%BC%E7%B2%89%E4%B8%9D%E5%BA%94%E6%8F%B4%E6%89%93%E6%A6%9C%E7%9A%84%E4%BA%A7%E5%93%81%E5%8A%9F%E8%83%BD%23&Refer=top) `3.1M 🔥`
 1. [女子喝冰箱剩鸡汤感染脑膜炎](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E5%96%9D%E5%86%B0%E7%AE%B1%E5%89%A9%E9%B8%A1%E6%B1%A4%E6%84%9F%E6%9F%93%E8%84%91%E8%86%9C%E7%82%8E%23&Refer=top) `3.1M 🔥`
-1. [新发现中药连花清瘟对德尔塔病毒有效](https://s.weibo.com/weibo?q=%23%E6%96%B0%E5%8F%91%E7%8E%B0%E4%B8%AD%E8%8D%AF%E8%BF%9E%E8%8A%B1%E6%B8%85%E7%98%9F%E5%AF%B9%E5%BE%B7%E5%B0%94%E5%A1%94%E7%97%85%E6%AF%92%E6%9C%89%E6%95%88%23&Refer=top) `3.1M 🔥`
 1. [中国包揽女子平衡木金银牌](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%8C%85%E6%8F%BD%E5%A5%B3%E5%AD%90%E5%B9%B3%E8%A1%A1%E6%9C%A8%E9%87%91%E9%93%B6%E7%89%8C%23&Refer=top) `3.1M 🔥`
 1. [苏炳添说特别想找巩立姣借金牌拍个照](https://s.weibo.com/weibo?q=%23%E8%8B%8F%E7%82%B3%E6%B7%BB%E8%AF%B4%E7%89%B9%E5%88%AB%E6%83%B3%E6%89%BE%E5%B7%A9%E7%AB%8B%E5%A7%A3%E5%80%9F%E9%87%91%E7%89%8C%E6%8B%8D%E4%B8%AA%E7%85%A7%23&Refer=top) `2.9M 🔥`
 1. [澳门宣布进入即时预防状态](https://s.weibo.com/weibo?q=%23%E6%BE%B3%E9%97%A8%E5%AE%A3%E5%B8%83%E8%BF%9B%E5%85%A5%E5%8D%B3%E6%97%B6%E9%A2%84%E9%98%B2%E7%8A%B6%E6%80%81%23&Refer=top) `2.7M 🔥`
@@ -57,7 +57,7 @@
 1. [六边形战士唯一弱点找到了](https://s.weibo.com/weibo?q=%23%E5%85%AD%E8%BE%B9%E5%BD%A2%E6%88%98%E5%A3%AB%E5%94%AF%E4%B8%80%E5%BC%B1%E7%82%B9%E6%89%BE%E5%88%B0%E4%BA%86%23&Refer=top) `2.6M 🔥`
 1. [钟楚曦奶奶去世](https://s.weibo.com/weibo?q=%23%E9%92%9F%E6%A5%9A%E6%9B%A6%E5%A5%B6%E5%A5%B6%E5%8E%BB%E4%B8%96%23&Refer=top) `2.6M 🔥`
 
-数据更新于 2021-08-03 23:41:56
+数据更新于 2021-08-03 23:52:53
 
 <!-- END -->
 
