@@ -24,6 +24,7 @@
 1. [国乒男团VS德国男团](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E4%B9%92%E7%94%B7%E5%9B%A2VS%E5%BE%B7%E5%9B%BD%E7%94%B7%E5%9B%A2%23&Refer=top) `4.9M 🔥`
 1. [福原爱谈自己对中国的感情](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%8E%9F%E7%88%B1%E8%B0%88%E8%87%AA%E5%B7%B1%E5%AF%B9%E4%B8%AD%E5%9B%BD%E7%9A%84%E6%84%9F%E6%83%85%23&Refer=top) `4.7M 🔥`
 1. [罪犯在监狱不听话怎么办](https://s.weibo.com/weibo?q=%23%E7%BD%AA%E7%8A%AF%E5%9C%A8%E7%9B%91%E7%8B%B1%E4%B8%8D%E5%90%AC%E8%AF%9D%E6%80%8E%E4%B9%88%E5%8A%9E%23&Refer=top) `4.6M 🔥`
+1. [女子4×100米接力决赛](https://s.weibo.com/weibo?q=%E5%A5%B3%E5%AD%904%C3%97100%E7%B1%B3%E6%8E%A5%E5%8A%9B%E5%86%B3%E8%B5%9B&Refer=top) `4.4M 🔥`
 1. [尹笑言空手道夺银](https://s.weibo.com/weibo?q=%23%E5%B0%B9%E7%AC%91%E8%A8%80%E7%A9%BA%E6%89%8B%E9%81%93%E5%A4%BA%E9%93%B6%23&Refer=top) `4.3M 🔥`
 1. [霍启刚分享郭晶晶东京奥运生活](https://s.weibo.com/weibo?q=%23%E9%9C%8D%E5%90%AF%E5%88%9A%E5%88%86%E4%BA%AB%E9%83%AD%E6%99%B6%E6%99%B6%E4%B8%9C%E4%BA%AC%E5%A5%A5%E8%BF%90%E7%94%9F%E6%B4%BB%23&Refer=top) `4.3M 🔥`
 1. [女儿在检测现场认出6天没回家的妈妈](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%84%BF%E5%9C%A8%E6%A3%80%E6%B5%8B%E7%8E%B0%E5%9C%BA%E8%AE%A4%E5%87%BA6%E5%A4%A9%E6%B2%A1%E5%9B%9E%E5%AE%B6%E7%9A%84%E5%A6%88%E5%A6%88%23&Refer=top) `4.3M 🔥`
@@ -34,7 +35,7 @@
 1. [泰国男星Toytoy杀死女友](https://s.weibo.com/weibo?q=%23%E6%B3%B0%E5%9B%BD%E7%94%B7%E6%98%9FToytoy%E6%9D%80%E6%AD%BB%E5%A5%B3%E5%8F%8B%23&Refer=top) `3.6M 🔥`
 1. [顺丰回应玉石保价4000破损赔偿600](https://s.weibo.com/weibo?q=%23%E9%A1%BA%E4%B8%B0%E5%9B%9E%E5%BA%94%E7%8E%89%E7%9F%B3%E4%BF%9D%E4%BB%B74000%E7%A0%B4%E6%8D%9F%E8%B5%94%E5%81%BF600%23&Refer=top) `3.6M 🔥`
 1. [全季酒店男子夜半赤身闯入顾客房间](https://s.weibo.com/weibo?q=%23%E5%85%A8%E5%AD%A3%E9%85%92%E5%BA%97%E7%94%B7%E5%AD%90%E5%A4%9C%E5%8D%8A%E8%B5%A4%E8%BA%AB%E9%97%AF%E5%85%A5%E9%A1%BE%E5%AE%A2%E6%88%BF%E9%97%B4%23&Refer=top) `3.2M 🔥`
-1. [女子4×100米接力决赛](https://s.weibo.com/weibo?q=%E5%A5%B3%E5%AD%904%C3%97100%E7%B1%B3%E6%8E%A5%E5%8A%9B%E5%86%B3%E8%B5%9B&Refer=top) `2.9M 🔥`
+1. [美国金牌](https://s.weibo.com/weibo?q=%E7%BE%8E%E5%9B%BD%E9%87%91%E7%89%8C&Refer=top) `3.1M 🔥`
 1. [中国队夺女子乒乓团体赛金牌](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E9%98%9F%E5%A4%BA%E5%A5%B3%E5%AD%90%E4%B9%92%E4%B9%93%E5%9B%A2%E4%BD%93%E8%B5%9B%E9%87%91%E7%89%8C%23&Refer=top) `2.8M 🔥`
 1. [34岁清华博士当选河北怀来县县长](https://s.weibo.com/weibo?q=%2334%E5%B2%81%E6%B8%85%E5%8D%8E%E5%8D%9A%E5%A3%AB%E5%BD%93%E9%80%89%E6%B2%B3%E5%8C%97%E6%80%80%E6%9D%A5%E5%8E%BF%E5%8E%BF%E9%95%BF%23&Refer=top) `2.8M 🔥`
 1. [许昕状态](https://s.weibo.com/weibo?q=%E8%AE%B8%E6%98%95%E7%8A%B6%E6%80%81&Refer=top) `2.8M 🔥`
@@ -55,9 +56,8 @@
 1. [全红婵被旅游圈狠狠宠了](https://s.weibo.com/weibo?q=%23%E5%85%A8%E7%BA%A2%E5%A9%B5%E8%A2%AB%E6%97%85%E6%B8%B8%E5%9C%88%E7%8B%A0%E7%8B%A0%E5%AE%A0%E4%BA%86%23&Refer=top) `2.3M 🔥`
 1. [马龙熟悉的躲避姿势](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E9%BE%99%E7%86%9F%E6%82%89%E7%9A%84%E8%BA%B2%E9%81%BF%E5%A7%BF%E5%8A%BF%23&Refer=top) `2.3M 🔥`
 1. [全季酒店致歉](https://s.weibo.com/weibo?q=%23%E5%85%A8%E5%AD%A3%E9%85%92%E5%BA%97%E8%87%B4%E6%AD%89%23&Refer=top) `2.2M 🔥`
-1. [中国男女4×100米接力队先后亮相决赛](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E7%94%B7%E5%A5%B34%C3%97100%E7%B1%B3%E6%8E%A5%E5%8A%9B%E9%98%9F%E5%85%88%E5%90%8E%E4%BA%AE%E7%9B%B8%E5%86%B3%E8%B5%9B%23&Refer=top) `2.2M 🔥`
 
-数据更新于 2021-08-06 21:57:46
+数据更新于 2021-08-06 22:02:48
 
 <!-- END -->
 
