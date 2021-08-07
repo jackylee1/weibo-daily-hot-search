@@ -20,8 +20,8 @@
 1. [奥恰洛夫对中国队表达敬意](https://s.weibo.com/weibo?q=%23%E5%A5%A5%E6%81%B0%E6%B4%9B%E5%A4%AB%E5%AF%B9%E4%B8%AD%E5%9B%BD%E9%98%9F%E8%A1%A8%E8%BE%BE%E6%95%AC%E6%84%8F%23&Refer=top) `4.2M 🔥`
 1. [中国获花样游泳团体银牌](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E8%8E%B7%E8%8A%B1%E6%A0%B7%E6%B8%B8%E6%B3%B3%E5%9B%A2%E4%BD%93%E9%93%B6%E7%89%8C%23&Refer=top) `4.1M 🔥`
 1. [杨洋方否认恋情](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E6%B4%8B%E6%96%B9%E5%90%A6%E8%AE%A4%E6%81%8B%E6%83%85%23&Refer=top) `3.8M 🔥`
+1. [江苏核酸检测价格调整为65元](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%8B%8F%E6%A0%B8%E9%85%B8%E6%A3%80%E6%B5%8B%E4%BB%B7%E6%A0%BC%E8%B0%83%E6%95%B4%E4%B8%BA65%E5%85%83%23&Refer=top) `3.7M 🔥`
 1. [苏炳添因比赛错过孩子出生](https://s.weibo.com/weibo?q=%23%E8%8B%8F%E7%82%B3%E6%B7%BB%E5%9B%A0%E6%AF%94%E8%B5%9B%E9%94%99%E8%BF%87%E5%AD%A9%E5%AD%90%E5%87%BA%E7%94%9F%23&Refer=top) `3.7M 🔥`
-1. [江苏核酸检测价格调整为65元](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%8B%8F%E6%A0%B8%E9%85%B8%E6%A3%80%E6%B5%8B%E4%BB%B7%E6%A0%BC%E8%B0%83%E6%95%B4%E4%B8%BA65%E5%85%83%23&Refer=top) `3.6M 🔥`
 1. [儿子考上清华妈妈凡尔赛发言](https://s.weibo.com/weibo?q=%23%E5%84%BF%E5%AD%90%E8%80%83%E4%B8%8A%E6%B8%85%E5%8D%8E%E5%A6%88%E5%A6%88%E5%87%A1%E5%B0%94%E8%B5%9B%E5%8F%91%E8%A8%80%23&Refer=top) `3.4M 🔥`
 1. [全红婵的体重浮动要控制在1斤](https://s.weibo.com/weibo?q=%23%E5%85%A8%E7%BA%A2%E5%A9%B5%E7%9A%84%E4%BD%93%E9%87%8D%E6%B5%AE%E5%8A%A8%E8%A6%81%E6%8E%A7%E5%88%B6%E5%9C%A81%E6%96%A4%23&Refer=top) `3.4M 🔥`
 1. [南京第1例重型患者出院](https://s.weibo.com/weibo?q=%23%E5%8D%97%E4%BA%AC%E7%AC%AC1%E4%BE%8B%E9%87%8D%E5%9E%8B%E6%82%A3%E8%80%85%E5%87%BA%E9%99%A2%23&Refer=top) `3.4M 🔥`
@@ -57,7 +57,7 @@
 1. [奥运上未被打破的中国记录](https://s.weibo.com/weibo?q=%23%E5%A5%A5%E8%BF%90%E4%B8%8A%E6%9C%AA%E8%A2%AB%E6%89%93%E7%A0%B4%E7%9A%84%E4%B8%AD%E5%9B%BD%E8%AE%B0%E5%BD%95%23&Refer=top) `2.1M 🔥`
 1. [夺金点](https://s.weibo.com/weibo?q=%E5%A4%BA%E9%87%91%E7%82%B9&Refer=top) `2.1M 🔥`
 
-数据更新于 2021-08-07 21:36:14
+数据更新于 2021-08-07 21:40:12
 
 <!-- END -->
 
