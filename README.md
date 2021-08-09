@@ -30,6 +30,7 @@
 1. [为什么跳绳不能进奥运](https://s.weibo.com/weibo?q=%23%E4%B8%BA%E4%BB%80%E4%B9%88%E8%B7%B3%E7%BB%B3%E4%B8%8D%E8%83%BD%E8%BF%9B%E5%A5%A5%E8%BF%90%23&Refer=top) `2.1M 🔥`
 1. [瘦了15斤的李云迪](https://s.weibo.com/weibo?q=%23%E7%98%A6%E4%BA%8615%E6%96%A4%E7%9A%84%E6%9D%8E%E4%BA%91%E8%BF%AA%23&Refer=top) `2.1M 🔥`
 1. [洗衣液里加84几乎没有消毒效果](https://s.weibo.com/weibo?q=%23%E6%B4%97%E8%A1%A3%E6%B6%B2%E9%87%8C%E5%8A%A084%E5%87%A0%E4%B9%8E%E6%B2%A1%E6%9C%89%E6%B6%88%E6%AF%92%E6%95%88%E6%9E%9C%23&Refer=top) `2.1M 🔥`
+1. [女店员烤鱿鱼添加酒精引起爆燃](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%BA%97%E5%91%98%E7%83%A4%E9%B1%BF%E9%B1%BC%E6%B7%BB%E5%8A%A0%E9%85%92%E7%B2%BE%E5%BC%95%E8%B5%B7%E7%88%86%E7%87%83%23&Refer=top) `2.0M 🔥`
 1. [遭遇性侵如何第一时间取证](https://s.weibo.com/weibo?q=%23%E9%81%AD%E9%81%87%E6%80%A7%E4%BE%B5%E5%A6%82%E4%BD%95%E7%AC%AC%E4%B8%80%E6%97%B6%E9%97%B4%E5%8F%96%E8%AF%81%23&Refer=top) `2.0M 🔥`
 1. [12岁叙利亚乒乓女孩想来中国训练](https://s.weibo.com/weibo?q=%2312%E5%B2%81%E5%8F%99%E5%88%A9%E4%BA%9A%E4%B9%92%E4%B9%93%E5%A5%B3%E5%AD%A9%E6%83%B3%E6%9D%A5%E4%B8%AD%E5%9B%BD%E8%AE%AD%E7%BB%83%23&Refer=top) `2.0M 🔥`
 1. [东京奥运会闭幕式](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E4%BA%AC%E5%A5%A5%E8%BF%90%E4%BC%9A%E9%97%AD%E5%B9%95%E5%BC%8F%23&Refer=top) `2.0M 🔥`
@@ -37,6 +38,7 @@
 1. [虞书欣红色露背泳装](https://s.weibo.com/weibo?q=%23%E8%99%9E%E4%B9%A6%E6%AC%A3%E7%BA%A2%E8%89%B2%E9%9C%B2%E8%83%8C%E6%B3%B3%E8%A3%85%23&Refer=top) `1.9M 🔥`
 1. [微信表情都戴医用口罩了](https://s.weibo.com/weibo?q=%23%E5%BE%AE%E4%BF%A1%E8%A1%A8%E6%83%85%E9%83%BD%E6%88%B4%E5%8C%BB%E7%94%A8%E5%8F%A3%E7%BD%A9%E4%BA%86%23&Refer=top) `1.8M 🔥`
 1. [滴滴前员工自述遭客户强制猥亵](https://s.weibo.com/weibo?q=%23%E6%BB%B4%E6%BB%B4%E5%89%8D%E5%91%98%E5%B7%A5%E8%87%AA%E8%BF%B0%E9%81%AD%E5%AE%A2%E6%88%B7%E5%BC%BA%E5%88%B6%E7%8C%A5%E4%BA%B5%23&Refer=top) `1.7M 🔥`
+1. [永辉超市违规收取1元包装费被罚](https://s.weibo.com/weibo?q=%23%E6%B0%B8%E8%BE%89%E8%B6%85%E5%B8%82%E8%BF%9D%E8%A7%84%E6%94%B6%E5%8F%961%E5%85%83%E5%8C%85%E8%A3%85%E8%B4%B9%E8%A2%AB%E7%BD%9A%23&Refer=top) `1.7M 🔥`
 1. [阿里涉侵犯男员工曾到字节面试](https://s.weibo.com/weibo?q=%23%E9%98%BF%E9%87%8C%E6%B6%89%E4%BE%B5%E7%8A%AF%E7%94%B7%E5%91%98%E5%B7%A5%E6%9B%BE%E5%88%B0%E5%AD%97%E8%8A%82%E9%9D%A2%E8%AF%95%23&Refer=top) `1.7M 🔥`
 1. [巴黎八分钟](https://s.weibo.com/weibo?q=%23%E5%B7%B4%E9%BB%8E%E5%85%AB%E5%88%86%E9%92%9F%23&Refer=top) `1.7M 🔥`
 1. [美国已有1060例拉姆达毒株感染病例](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E5%B7%B2%E6%9C%891060%E4%BE%8B%E6%8B%89%E5%A7%86%E8%BE%BE%E6%AF%92%E6%A0%AA%E6%84%9F%E6%9F%93%E7%97%85%E4%BE%8B%23&Refer=top) `1.6M 🔥`
@@ -54,10 +56,8 @@
 1. [人接种疫苗后仍能传播德尔塔病毒](https://s.weibo.com/weibo?q=%23%E4%BA%BA%E6%8E%A5%E7%A7%8D%E7%96%AB%E8%8B%97%E5%90%8E%E4%BB%8D%E8%83%BD%E4%BC%A0%E6%92%AD%E5%BE%B7%E5%B0%94%E5%A1%94%E7%97%85%E6%AF%92%23&Refer=top) `1.1M 🔥`
 1. [警方通报残疾乞讨者伸手猥亵女孩](https://s.weibo.com/weibo?q=%23%E8%AD%A6%E6%96%B9%E9%80%9A%E6%8A%A5%E6%AE%8B%E7%96%BE%E4%B9%9E%E8%AE%A8%E8%80%85%E4%BC%B8%E6%89%8B%E7%8C%A5%E4%BA%B5%E5%A5%B3%E5%AD%A9%23&Refer=top) `1.1M 🔥`
 1. [奥运会正式进入巴黎时间](https://s.weibo.com/weibo?q=%E5%A5%A5%E8%BF%90%E4%BC%9A%E6%AD%A3%E5%BC%8F%E8%BF%9B%E5%85%A5%E5%B7%B4%E9%BB%8E%E6%97%B6%E9%97%B4&Refer=top) `1.1M 🔥`
-1. [180天后北京见](https://s.weibo.com/weibo?q=%23180%E5%A4%A9%E5%90%8E%E5%8C%97%E4%BA%AC%E8%A7%81%23&Refer=top) `1.1M 🔥`
-1. [北京冬奥会场馆有多好看](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E5%86%AC%E5%A5%A5%E4%BC%9A%E5%9C%BA%E9%A6%86%E6%9C%89%E5%A4%9A%E5%A5%BD%E7%9C%8B%23&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-08-09 16:24:18
+数据更新于 2021-08-09 16:37:03
 
 <!-- END -->
 
