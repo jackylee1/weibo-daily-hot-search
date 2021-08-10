@@ -36,6 +36,7 @@
 1. [瑞士一强奸犯获减刑引发抗议](https://s.weibo.com/weibo?q=%23%E7%91%9E%E5%A3%AB%E4%B8%80%E5%BC%BA%E5%A5%B8%E7%8A%AF%E8%8E%B7%E5%87%8F%E5%88%91%E5%BC%95%E5%8F%91%E6%8A%97%E8%AE%AE%23&Refer=top) `2.2M 🔥`
 1. [郑州暂停全市新冠病毒疫苗接种](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E6%9A%82%E5%81%9C%E5%85%A8%E5%B8%82%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E7%96%AB%E8%8B%97%E6%8E%A5%E7%A7%8D%23&Refer=top) `2.2M 🔥`
 1. [店员称阿里事件七八人喝了四五瓶白酒](https://s.weibo.com/weibo?q=%23%E5%BA%97%E5%91%98%E7%A7%B0%E9%98%BF%E9%87%8C%E4%BA%8B%E4%BB%B6%E4%B8%83%E5%85%AB%E4%BA%BA%E5%96%9D%E4%BA%86%E5%9B%9B%E4%BA%94%E7%93%B6%E7%99%BD%E9%85%92%23&Refer=top) `2.1M 🔥`
+1. [雷军删掉所有炒股软件](https://s.weibo.com/weibo?q=%23%E9%9B%B7%E5%86%9B%E5%88%A0%E6%8E%89%E6%89%80%E6%9C%89%E7%82%92%E8%82%A1%E8%BD%AF%E4%BB%B6%23&Refer=top) `2.0M 🔥`
 1. [哇唧唧哇 demo泄露](https://s.weibo.com/weibo?q=%E5%93%87%E5%94%A7%E5%94%A7%E5%93%87%20demo%E6%B3%84%E9%9C%B2&Refer=top) `2.0M 🔥`
 1. [苏炳添上课的画风](https://s.weibo.com/weibo?q=%23%E8%8B%8F%E7%82%B3%E6%B7%BB%E4%B8%8A%E8%AF%BE%E7%9A%84%E7%94%BB%E9%A3%8E%23&Refer=top) `2.0M 🔥`
 1. [去郑州六院上厕所被隔离的男子找到了](https://s.weibo.com/weibo?q=%23%E5%8E%BB%E9%83%91%E5%B7%9E%E5%85%AD%E9%99%A2%E4%B8%8A%E5%8E%95%E6%89%80%E8%A2%AB%E9%9A%94%E7%A6%BB%E7%9A%84%E7%94%B7%E5%AD%90%E6%89%BE%E5%88%B0%E4%BA%86%23&Refer=top) `2.0M 🔥`
@@ -45,19 +46,18 @@
 1. [高尔夫球场偶遇张继科](https://s.weibo.com/weibo?q=%23%E9%AB%98%E5%B0%94%E5%A4%AB%E7%90%83%E5%9C%BA%E5%81%B6%E9%81%87%E5%BC%A0%E7%BB%A7%E7%A7%91%23&Refer=top) `1.9M 🔥`
 1. [阿迪达斯在华收入下跌16%](https://s.weibo.com/weibo?q=%23%E9%98%BF%E8%BF%AA%E8%BE%BE%E6%96%AF%E5%9C%A8%E5%8D%8E%E6%94%B6%E5%85%A5%E4%B8%8B%E8%B7%8C16%25%23&Refer=top) `1.9M 🔥`
 1. [傻狗使人快乐](https://s.weibo.com/weibo?q=%23%E5%82%BB%E7%8B%97%E4%BD%BF%E4%BA%BA%E5%BF%AB%E4%B9%90%23&Refer=top) `1.8M 🔥`
+1. [梅西加盟巴黎圣日耳曼](https://s.weibo.com/weibo?q=%23%E6%A2%85%E8%A5%BF%E5%8A%A0%E7%9B%9F%E5%B7%B4%E9%BB%8E%E5%9C%A3%E6%97%A5%E8%80%B3%E6%9B%BC%23&Refer=top) `1.7M 🔥`
 1. [鸡蛋批发价一斤涨一元](https://s.weibo.com/weibo?q=%23%E9%B8%A1%E8%9B%8B%E6%89%B9%E5%8F%91%E4%BB%B7%E4%B8%80%E6%96%A4%E6%B6%A8%E4%B8%80%E5%85%83%23&Refer=top) `1.7M 🔥`
 1. [女孩自驾西藏一夜遭野熊闯营3次](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%A9%E8%87%AA%E9%A9%BE%E8%A5%BF%E8%97%8F%E4%B8%80%E5%A4%9C%E9%81%AD%E9%87%8E%E7%86%8A%E9%97%AF%E8%90%A53%E6%AC%A1%23&Refer=top) `1.6M 🔥`
 1. [普通医用口罩可防德尔塔变异株](https://s.weibo.com/weibo?q=%23%E6%99%AE%E9%80%9A%E5%8C%BB%E7%94%A8%E5%8F%A3%E7%BD%A9%E5%8F%AF%E9%98%B2%E5%BE%B7%E5%B0%94%E5%A1%94%E5%8F%98%E5%BC%82%E6%A0%AA%23&Refer=top) `1.6M 🔥`
-1. [梅西加盟巴黎圣日耳曼](https://s.weibo.com/weibo?q=%23%E6%A2%85%E8%A5%BF%E5%8A%A0%E7%9B%9F%E5%B7%B4%E9%BB%8E%E5%9C%A3%E6%97%A5%E8%80%B3%E6%9B%BC%23&Refer=top) `1.6M 🔥`
 1. [子女去世要瞒住老人吗](https://s.weibo.com/weibo?q=%23%E5%AD%90%E5%A5%B3%E5%8E%BB%E4%B8%96%E8%A6%81%E7%9E%92%E4%BD%8F%E8%80%81%E4%BA%BA%E5%90%97%23&Refer=top) `1.6M 🔥`
 1. [男子冒充被救女孩哥哥直播](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E5%86%92%E5%85%85%E8%A2%AB%E6%95%91%E5%A5%B3%E5%AD%A9%E5%93%A5%E5%93%A5%E7%9B%B4%E6%92%AD%23&Refer=top) `1.6M 🔥`
 1. [We the 通道 future to now](https://s.weibo.com/weibo?q=We%20the%20%E9%80%9A%E9%81%93%20future%20to%20now&Refer=top) `1.6M 🔥`
 1. [美国抗疫八个全球第一](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E6%8A%97%E7%96%AB%E5%85%AB%E4%B8%AA%E5%85%A8%E7%90%83%E7%AC%AC%E4%B8%80%23&Refer=top) `1.6M 🔥`
 1. [上海1航班查出3起藏毒案](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B71%E8%88%AA%E7%8F%AD%E6%9F%A5%E5%87%BA3%E8%B5%B7%E8%97%8F%E6%AF%92%E6%A1%88%23&Refer=top) `1.6M 🔥`
 1. [应采儿脑补陈小春张智霖](https://s.weibo.com/weibo?q=%23%E5%BA%94%E9%87%87%E5%84%BF%E8%84%91%E8%A1%A5%E9%99%88%E5%B0%8F%E6%98%A5%E5%BC%A0%E6%99%BA%E9%9C%96%23&Refer=top) `1.5M 🔥`
-1. [比亚迪被曝4个月无法提车定金不给退](https://s.weibo.com/weibo?q=%23%E6%AF%94%E4%BA%9A%E8%BF%AA%E8%A2%AB%E6%9B%9D4%E4%B8%AA%E6%9C%88%E6%97%A0%E6%B3%95%E6%8F%90%E8%BD%A6%E5%AE%9A%E9%87%91%E4%B8%8D%E7%BB%99%E9%80%80%23&Refer=top) `1.5M 🔥`
 
-数据更新于 2021-08-10 22:02:19
+数据更新于 2021-08-10 22:05:41
 
 <!-- END -->
 
