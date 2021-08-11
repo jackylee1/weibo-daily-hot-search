@@ -20,8 +20,8 @@
 1. [全红婵想开一家大超市](https://s.weibo.com/weibo?q=%23%E5%85%A8%E7%BA%A2%E5%A9%B5%E6%83%B3%E5%BC%80%E4%B8%80%E5%AE%B6%E5%A4%A7%E8%B6%85%E5%B8%82%23&Refer=top) `3.7M 🔥`
 1. [郭子凡 不坚持了随便吧](https://s.weibo.com/weibo?q=%E9%83%AD%E5%AD%90%E5%87%A1%20%E4%B8%8D%E5%9D%9A%E6%8C%81%E4%BA%86%E9%9A%8F%E4%BE%BF%E5%90%A7&Refer=top) `3.7M 🔥`
 1. [你算什么男人](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E7%AE%97%E4%BB%80%E4%B9%88%E7%94%B7%E4%BA%BA%23&Refer=top) `3.7M 🔥`
+1. [警方通报女子被丈夫剃光头拍照发网上](https://s.weibo.com/weibo?q=%23%E8%AD%A6%E6%96%B9%E9%80%9A%E6%8A%A5%E5%A5%B3%E5%AD%90%E8%A2%AB%E4%B8%88%E5%A4%AB%E5%89%83%E5%85%89%E5%A4%B4%E6%8B%8D%E7%85%A7%E5%8F%91%E7%BD%91%E4%B8%8A%23&Refer=top) `2.9M 🔥`
 1. [陈露好友王萌发文](https://s.weibo.com/weibo?q=%E9%99%88%E9%9C%B2%E5%A5%BD%E5%8F%8B%E7%8E%8B%E8%90%8C%E5%8F%91%E6%96%87&Refer=top) `2.9M 🔥`
-1. [警方通报女子被丈夫剃光头拍照发网上](https://s.weibo.com/weibo?q=%23%E8%AD%A6%E6%96%B9%E9%80%9A%E6%8A%A5%E5%A5%B3%E5%AD%90%E8%A2%AB%E4%B8%88%E5%A4%AB%E5%89%83%E5%85%89%E5%A4%B4%E6%8B%8D%E7%85%A7%E5%8F%91%E7%BD%91%E4%B8%8A%23&Refer=top) `2.7M 🔥`
 1. [李鸣岩去世](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E9%B8%A3%E5%B2%A9%E5%8E%BB%E4%B8%96%23&Refer=top) `2.6M 🔥`
 1. [于月仙车祸地时有发生交通事故](https://s.weibo.com/weibo?q=%23%E4%BA%8E%E6%9C%88%E4%BB%99%E8%BD%A6%E7%A5%B8%E5%9C%B0%E6%97%B6%E6%9C%89%E5%8F%91%E7%94%9F%E4%BA%A4%E9%80%9A%E4%BA%8B%E6%95%85%23&Refer=top) `2.6M 🔥`
 1. [警方通报女孩跪地被扇耳光](https://s.weibo.com/weibo?q=%23%E8%AD%A6%E6%96%B9%E9%80%9A%E6%8A%A5%E5%A5%B3%E5%AD%A9%E8%B7%AA%E5%9C%B0%E8%A2%AB%E6%89%87%E8%80%B3%E5%85%89%23&Refer=top) `2.5M 🔥`
@@ -34,6 +34,7 @@
 1. [武汉军运会期间美国四大反常举动](https://s.weibo.com/weibo?q=%23%E6%AD%A6%E6%B1%89%E5%86%9B%E8%BF%90%E4%BC%9A%E6%9C%9F%E9%97%B4%E7%BE%8E%E5%9B%BD%E5%9B%9B%E5%A4%A7%E5%8F%8D%E5%B8%B8%E4%B8%BE%E5%8A%A8%23&Refer=top) `1.7M 🔥`
 1. [王一博swag挑眉杀](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E4%B8%80%E5%8D%9Aswag%E6%8C%91%E7%9C%89%E6%9D%80%23&Refer=top) `1.7M 🔥`
 1. [阿里女员工醉酒饭店店员发声](https://s.weibo.com/weibo?q=%23%E9%98%BF%E9%87%8C%E5%A5%B3%E5%91%98%E5%B7%A5%E9%86%89%E9%85%92%E9%A5%AD%E5%BA%97%E5%BA%97%E5%91%98%E5%8F%91%E5%A3%B0%23&Refer=top) `1.6M 🔥`
+1. [女子拍闪电拍到闪电劈向自己](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E6%8B%8D%E9%97%AA%E7%94%B5%E6%8B%8D%E5%88%B0%E9%97%AA%E7%94%B5%E5%8A%88%E5%90%91%E8%87%AA%E5%B7%B1%23&Refer=top) `1.5M 🔥`
 1. [游客减少导致企鹅出现心理问题](https://s.weibo.com/weibo?q=%23%E6%B8%B8%E5%AE%A2%E5%87%8F%E5%B0%91%E5%AF%BC%E8%87%B4%E4%BC%81%E9%B9%85%E5%87%BA%E7%8E%B0%E5%BF%83%E7%90%86%E9%97%AE%E9%A2%98%23&Refer=top) `1.5M 🔥`
 1. [杨洋 拍荣耀记忆力锻炼得特别好](https://s.weibo.com/weibo?q=%E6%9D%A8%E6%B4%8B%20%E6%8B%8D%E8%8D%A3%E8%80%80%E8%AE%B0%E5%BF%86%E5%8A%9B%E9%94%BB%E7%82%BC%E5%BE%97%E7%89%B9%E5%88%AB%E5%A5%BD&Refer=top) `1.5M 🔥`
 1. [几乎所有美国人都处于新冠病毒高传播地区](https://s.weibo.com/weibo?q=%23%E5%87%A0%E4%B9%8E%E6%89%80%E6%9C%89%E7%BE%8E%E5%9B%BD%E4%BA%BA%E9%83%BD%E5%A4%84%E4%BA%8E%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E9%AB%98%E4%BC%A0%E6%92%AD%E5%9C%B0%E5%8C%BA%23&Refer=top) `1.5M 🔥`
@@ -51,13 +52,12 @@
 1. [梅西年薪为3500万欧元](https://s.weibo.com/weibo?q=%E6%A2%85%E8%A5%BF%E5%B9%B4%E8%96%AA%E4%B8%BA3500%E4%B8%87%E6%AC%A7%E5%85%83&Refer=top) `1.3M 🔥`
 1. [扬州疫情集中在两条传播链](https://s.weibo.com/weibo?q=%23%E6%89%AC%E5%B7%9E%E7%96%AB%E6%83%85%E9%9B%86%E4%B8%AD%E5%9C%A8%E4%B8%A4%E6%9D%A1%E4%BC%A0%E6%92%AD%E9%93%BE%23&Refer=top) `1.2M 🔥`
 1. [国务院发文明确双减半月通报制度](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E5%8A%A1%E9%99%A2%E5%8F%91%E6%96%87%E6%98%8E%E7%A1%AE%E5%8F%8C%E5%87%8F%E5%8D%8A%E6%9C%88%E9%80%9A%E6%8A%A5%E5%88%B6%E5%BA%A6%23&Refer=top) `1.2M 🔥`
-1. [女子拍闪电拍到闪电劈向自己](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E6%8B%8D%E9%97%AA%E7%94%B5%E6%8B%8D%E5%88%B0%E9%97%AA%E7%94%B5%E5%8A%88%E5%90%91%E8%87%AA%E5%B7%B1%23&Refer=top) `1.2M 🔥`
 1. [马思唯 尚气](https://s.weibo.com/weibo?q=%E9%A9%AC%E6%80%9D%E5%94%AF%20%E5%B0%9A%E6%B0%94&Refer=top) `1.2M 🔥`
 1. [苏炳添旅游计划被内蒙古文旅厅接收到了](https://s.weibo.com/weibo?q=%E8%8B%8F%E7%82%B3%E6%B7%BB%E6%97%85%E6%B8%B8%E8%AE%A1%E5%88%92%E8%A2%AB%E5%86%85%E8%92%99%E5%8F%A4%E6%96%87%E6%97%85%E5%8E%85%E6%8E%A5%E6%94%B6%E5%88%B0%E4%BA%86&Refer=top) `1.2M 🔥`
 1. [起底南京禄口机场保洁公司](https://s.weibo.com/weibo?q=%23%E8%B5%B7%E5%BA%95%E5%8D%97%E4%BA%AC%E7%A6%84%E5%8F%A3%E6%9C%BA%E5%9C%BA%E4%BF%9D%E6%B4%81%E5%85%AC%E5%8F%B8%23&Refer=top) `1.2M 🔥`
 1. [日本现首例拉姆达毒株感染病例](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E7%8E%B0%E9%A6%96%E4%BE%8B%E6%8B%89%E5%A7%86%E8%BE%BE%E6%AF%92%E6%A0%AA%E6%84%9F%E6%9F%93%E7%97%85%E4%BE%8B%23&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-08-11 16:58:33
+数据更新于 2021-08-11 17:02:38
 
 <!-- END -->
 
