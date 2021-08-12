@@ -8,8 +8,8 @@
 
 1. [霍尊镜头还在](https://s.weibo.com/weibo?q=%23%E9%9C%8D%E5%B0%8A%E9%95%9C%E5%A4%B4%E8%BF%98%E5%9C%A8%23&Refer=top) `8.7M 🔥`
 1. [胜利被判刑3年](https://s.weibo.com/weibo?q=%23%E8%83%9C%E5%88%A9%E8%A2%AB%E5%88%A4%E5%88%913%E5%B9%B4%23&Refer=top) `6.0M 🔥`
+1. [披荆斩棘的哥哥](https://s.weibo.com/weibo?q=%E6%8A%AB%E8%8D%86%E6%96%A9%E6%A3%98%E7%9A%84%E5%93%A5%E5%93%A5&Refer=top) `5.7M 🔥`
 1. [张哲瀚妈妈 艺考考官](https://s.weibo.com/weibo?q=%E5%BC%A0%E5%93%B2%E7%80%9A%E5%A6%88%E5%A6%88%20%E8%89%BA%E8%80%83%E8%80%83%E5%AE%98&Refer=top) `5.5M 🔥`
-1. [披荆斩棘的哥哥](https://s.weibo.com/weibo?q=%E6%8A%AB%E8%8D%86%E6%96%A9%E6%A3%98%E7%9A%84%E5%93%A5%E5%93%A5&Refer=top) `5.5M 🔥`
 1. [南京所有成人确诊病例都用了中药治疗](https://s.weibo.com/weibo?q=%23%E5%8D%97%E4%BA%AC%E6%89%80%E6%9C%89%E6%88%90%E4%BA%BA%E7%A1%AE%E8%AF%8A%E7%97%85%E4%BE%8B%E9%83%BD%E7%94%A8%E4%BA%86%E4%B8%AD%E8%8D%AF%E6%B2%BB%E7%96%97%23&Refer=top) `5.5M 🔥`
 1. [操场埋尸案改编电影未获被害人家属授权](https://s.weibo.com/weibo?q=%23%E6%93%8D%E5%9C%BA%E5%9F%8B%E5%B0%B8%E6%A1%88%E6%94%B9%E7%BC%96%E7%94%B5%E5%BD%B1%E6%9C%AA%E8%8E%B7%E8%A2%AB%E5%AE%B3%E4%BA%BA%E5%AE%B6%E5%B1%9E%E6%8E%88%E6%9D%83%23&Refer=top) `4.7M 🔥`
 1. [黑龙江20岁女生减肥营中猝死](https://s.weibo.com/weibo?q=%23%E9%BB%91%E9%BE%99%E6%B1%9F20%E5%B2%81%E5%A5%B3%E7%94%9F%E5%87%8F%E8%82%A5%E8%90%A5%E4%B8%AD%E7%8C%9D%E6%AD%BB%23&Refer=top) `4.5M 🔥`
@@ -57,7 +57,7 @@
 1. [天龙八部定档](https://s.weibo.com/weibo?q=%23%E5%A4%A9%E9%BE%99%E5%85%AB%E9%83%A8%E5%AE%9A%E6%A1%A3%23&Refer=top) `1.2M 🔥`
 1. [于途 允许我的基因影响你的基因吗](https://s.weibo.com/weibo?q=%E4%BA%8E%E9%80%94%20%E5%85%81%E8%AE%B8%E6%88%91%E7%9A%84%E5%9F%BA%E5%9B%A0%E5%BD%B1%E5%93%8D%E4%BD%A0%E7%9A%84%E5%9F%BA%E5%9B%A0%E5%90%97&Refer=top) `1.2M 🔥`
 
-数据更新于 2021-08-12 17:23:30
+数据更新于 2021-08-12 17:35:46
 
 <!-- END -->
 
