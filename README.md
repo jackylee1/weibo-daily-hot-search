@@ -16,12 +16,12 @@
 1. [长期张嘴呼吸易致面容变丑](https://s.weibo.com/weibo?q=%23%E9%95%BF%E6%9C%9F%E5%BC%A0%E5%98%B4%E5%91%BC%E5%90%B8%E6%98%93%E8%87%B4%E9%9D%A2%E5%AE%B9%E5%8F%98%E4%B8%91%23&Refer=top) `1.9M 🔥`
 1. [国防部回应日本防卫大臣参拜靖国神社](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E9%98%B2%E9%83%A8%E5%9B%9E%E5%BA%94%E6%97%A5%E6%9C%AC%E9%98%B2%E5%8D%AB%E5%A4%A7%E8%87%A3%E5%8F%82%E6%8B%9C%E9%9D%96%E5%9B%BD%E7%A5%9E%E7%A4%BE%23&Refer=top) `1.9M 🔥`
 1. [情头](https://s.weibo.com/weibo?q=%E6%83%85%E5%A4%B4&Refer=top) `1.9M 🔥`
+1. [妮维雅客服](https://s.weibo.com/weibo?q=%E5%A6%AE%E7%BB%B4%E9%9B%85%E5%AE%A2%E6%9C%8D&Refer=top) `1.6M 🔥`
 1. [方博陈梦直播好甜](https://s.weibo.com/weibo?q=%23%E6%96%B9%E5%8D%9A%E9%99%88%E6%A2%A6%E7%9B%B4%E6%92%AD%E5%A5%BD%E7%94%9C%23&Refer=top) `1.5M 🔥`
 1. [姚安娜像极了过年时见亲戚的我](https://s.weibo.com/weibo?q=%23%E5%A7%9A%E5%AE%89%E5%A8%9C%E5%83%8F%E6%9E%81%E4%BA%86%E8%BF%87%E5%B9%B4%E6%97%B6%E8%A7%81%E4%BA%B2%E6%88%9A%E7%9A%84%E6%88%91%23&Refer=top) `1.5M 🔥`
 1. [龚俊自称龙虾王子](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E8%87%AA%E7%A7%B0%E9%BE%99%E8%99%BE%E7%8E%8B%E5%AD%90%23&Refer=top) `1.5M 🔥`
 1. [当马龙化妆后](https://s.weibo.com/weibo?q=%23%E5%BD%93%E9%A9%AC%E9%BE%99%E5%8C%96%E5%A6%86%E5%90%8E%23&Refer=top) `1.4M 🔥`
 1. [郭美美泪洒庭审现场](https://s.weibo.com/weibo?q=%23%E9%83%AD%E7%BE%8E%E7%BE%8E%E6%B3%AA%E6%B4%92%E5%BA%AD%E5%AE%A1%E7%8E%B0%E5%9C%BA%23&Refer=top) `1.3M 🔥`
-1. [妮维雅客服](https://s.weibo.com/weibo?q=%E5%A6%AE%E7%BB%B4%E9%9B%85%E5%AE%A2%E6%9C%8D&Refer=top) `1.2M 🔥`
 1. [可口可乐雅顿一叶子终止与张哲瀚合作](https://s.weibo.com/weibo?q=%E5%8F%AF%E5%8F%A3%E5%8F%AF%E4%B9%90%E9%9B%85%E9%A1%BF%E4%B8%80%E5%8F%B6%E5%AD%90%E7%BB%88%E6%AD%A2%E4%B8%8E%E5%BC%A0%E5%93%B2%E7%80%9A%E5%90%88%E4%BD%9C&Refer=top) `1.1M 🔥`
 1. [PDD和BLACKPINK吃鸡](https://s.weibo.com/weibo?q=%23PDD%E5%92%8CBLACKPINK%E5%90%83%E9%B8%A1%23&Refer=top) `1.1M 🔥`
 1. [隐秘的角落](https://s.weibo.com/weibo?q=%E9%9A%90%E7%A7%98%E7%9A%84%E8%A7%92%E8%90%BD&Refer=top) `1.1M 🔥`
@@ -55,9 +55,9 @@
 1. [教育部门秋季返校最新要求](https://s.weibo.com/weibo?q=%23%E6%95%99%E8%82%B2%E9%83%A8%E9%97%A8%E7%A7%8B%E5%AD%A3%E8%BF%94%E6%A0%A1%E6%9C%80%E6%96%B0%E8%A6%81%E6%B1%82%23&Refer=top) `445.9K 🔥`
 1. [七夕文案](https://s.weibo.com/weibo?q=%23%E4%B8%83%E5%A4%95%E6%96%87%E6%A1%88%23&Refer=top) `445.3K 🔥`
 1. [工作人员七夕送陈若轩一对象](https://s.weibo.com/weibo?q=%23%E5%B7%A5%E4%BD%9C%E4%BA%BA%E5%91%98%E4%B8%83%E5%A4%95%E9%80%81%E9%99%88%E8%8B%A5%E8%BD%A9%E4%B8%80%E5%AF%B9%E8%B1%A1%23&Refer=top) `444.7K 🔥`
-1. [顶楼](https://s.weibo.com/weibo?q=%E9%A1%B6%E6%A5%BC&Refer=top) `439.8K 🔥`
+1. [阿怀 抄袭](https://s.weibo.com/weibo?q=%E9%98%BF%E6%80%80%20%E6%8A%84%E8%A2%AD&Refer=top) `442.6K 🔥`
 
-数据更新于 2021-08-14 01:11:01
+数据更新于 2021-08-14 01:30:42
 
 <!-- END -->
 
