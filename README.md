@@ -41,6 +41,7 @@
 1. [李雯雯的奶奶想用金牌打个镯子](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E9%9B%AF%E9%9B%AF%E7%9A%84%E5%A5%B6%E5%A5%B6%E6%83%B3%E7%94%A8%E9%87%91%E7%89%8C%E6%89%93%E4%B8%AA%E9%95%AF%E5%AD%90%23&Refer=top) `2.1M 🔥`
 1. [妮维雅客服](https://s.weibo.com/weibo?q=%E5%A6%AE%E7%BB%B4%E9%9B%85%E5%AE%A2%E6%9C%8D&Refer=top) `2.1M 🔥`
 1. [00后情侣发现7颗超新星](https://s.weibo.com/weibo?q=%2300%E5%90%8E%E6%83%85%E4%BE%A3%E5%8F%91%E7%8E%B07%E9%A2%97%E8%B6%85%E6%96%B0%E6%98%9F%23&Refer=top) `2.1M 🔥`
+1. [张杰送谢娜玫瑰花](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%9D%B0%E9%80%81%E8%B0%A2%E5%A8%9C%E7%8E%AB%E7%91%B0%E8%8A%B1%23&Refer=top) `2.1M 🔥`
 1. [泰国女子故意感染新冠骗保](https://s.weibo.com/weibo?q=%23%E6%B3%B0%E5%9B%BD%E5%A5%B3%E5%AD%90%E6%95%85%E6%84%8F%E6%84%9F%E6%9F%93%E6%96%B0%E5%86%A0%E9%AA%97%E4%BF%9D%23&Refer=top) `2.0M 🔥`
 1. [顾医生好温柔](https://s.weibo.com/weibo?q=%23%E9%A1%BE%E5%8C%BB%E7%94%9F%E5%A5%BD%E6%B8%A9%E6%9F%94%23&Refer=top) `2.0M 🔥`
 1. [男孩失恋喝24瓶啤酒晕倒](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%A9%E5%A4%B1%E6%81%8B%E5%96%9D24%E7%93%B6%E5%95%A4%E9%85%92%E6%99%95%E5%80%92%23&Refer=top) `2.0M 🔥`
@@ -55,9 +56,8 @@
 1. [杨幂陈伟霆七夕海报](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E5%B9%82%E9%99%88%E4%BC%9F%E9%9C%86%E4%B8%83%E5%A4%95%E6%B5%B7%E6%8A%A5%23&Refer=top) `1.7M 🔥`
 1. [汪峰定律](https://s.weibo.com/weibo?q=%23%E6%B1%AA%E5%B3%B0%E5%AE%9A%E5%BE%8B%23&Refer=top) `1.7M 🔥`
 1. [康辉连说3遍戴口罩](https://s.weibo.com/weibo?q=%23%E5%BA%B7%E8%BE%89%E8%BF%9E%E8%AF%B43%E9%81%8D%E6%88%B4%E5%8F%A3%E7%BD%A9%23&Refer=top) `1.6M 🔥`
-1. [方博陈梦直播好甜](https://s.weibo.com/weibo?q=%23%E6%96%B9%E5%8D%9A%E9%99%88%E6%A2%A6%E7%9B%B4%E6%92%AD%E5%A5%BD%E7%94%9C%23&Refer=top) `1.5M 🔥`
 
-数据更新于 2021-08-14 19:33:37
+数据更新于 2021-08-14 19:39:54
 
 <!-- END -->
 
