@@ -49,15 +49,15 @@
 1. [河南卫视yyds](https://s.weibo.com/weibo?q=%E6%B2%B3%E5%8D%97%E5%8D%AB%E8%A7%86yyds&Refer=top) `1.7M 🔥`
 1. [杨幂陈伟霆七夕海报](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E5%B9%82%E9%99%88%E4%BC%9F%E9%9C%86%E4%B8%83%E5%A4%95%E6%B5%B7%E6%8A%A5%23&Refer=top) `1.7M 🔥`
 1. [汪峰定律](https://s.weibo.com/weibo?q=%23%E6%B1%AA%E5%B3%B0%E5%AE%9A%E5%BE%8B%23&Refer=top) `1.7M 🔥`
+1. [韩国农心方便面检出致癌物](https://s.weibo.com/weibo?q=%23%E9%9F%A9%E5%9B%BD%E5%86%9C%E5%BF%83%E6%96%B9%E4%BE%BF%E9%9D%A2%E6%A3%80%E5%87%BA%E8%87%B4%E7%99%8C%E7%89%A9%23&Refer=top) `1.6M 🔥`
 1. [康辉连说3遍戴口罩](https://s.weibo.com/weibo?q=%23%E5%BA%B7%E8%BE%89%E8%BF%9E%E8%AF%B43%E9%81%8D%E6%88%B4%E5%8F%A3%E7%BD%A9%23&Refer=top) `1.6M 🔥`
 1. [方博陈梦直播好甜](https://s.weibo.com/weibo?q=%23%E6%96%B9%E5%8D%9A%E9%99%88%E6%A2%A6%E7%9B%B4%E6%92%AD%E5%A5%BD%E7%94%9C%23&Refer=top) `1.5M 🔥`
 1. [姚安娜像极了过年时见亲戚的我](https://s.weibo.com/weibo?q=%23%E5%A7%9A%E5%AE%89%E5%A8%9C%E5%83%8F%E6%9E%81%E4%BA%86%E8%BF%87%E5%B9%B4%E6%97%B6%E8%A7%81%E4%BA%B2%E6%88%9A%E7%9A%84%E6%88%91%23&Refer=top) `1.5M 🔥`
 1. [龚俊自称龙虾王子](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E8%87%AA%E7%A7%B0%E9%BE%99%E8%99%BE%E7%8E%8B%E5%AD%90%23&Refer=top) `1.5M 🔥`
 1. [今天七夕](https://s.weibo.com/weibo?q=%23%E4%BB%8A%E5%A4%A9%E4%B8%83%E5%A4%95%23&Refer=top) `1.4M 🔥`
 1. [5名男子看不惯情侣秀恩爱实施抢劫](https://s.weibo.com/weibo?q=%235%E5%90%8D%E7%94%B7%E5%AD%90%E7%9C%8B%E4%B8%8D%E6%83%AF%E6%83%85%E4%BE%A3%E7%A7%80%E6%81%A9%E7%88%B1%E5%AE%9E%E6%96%BD%E6%8A%A2%E5%8A%AB%23&Refer=top) `1.4M 🔥`
-1. [当马龙化妆后](https://s.weibo.com/weibo?q=%23%E5%BD%93%E9%A9%AC%E9%BE%99%E5%8C%96%E5%A6%86%E5%90%8E%23&Refer=top) `1.4M 🔥`
 
-数据更新于 2021-08-14 17:50:15
+数据更新于 2021-08-14 17:56:40
 
 <!-- END -->
 
