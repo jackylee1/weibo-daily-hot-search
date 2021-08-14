@@ -17,6 +17,7 @@
 1. [猝死女生减肥训练营已人去院空](https://s.weibo.com/weibo?q=%23%E7%8C%9D%E6%AD%BB%E5%A5%B3%E7%94%9F%E5%87%8F%E8%82%A5%E8%AE%AD%E7%BB%83%E8%90%A5%E5%B7%B2%E4%BA%BA%E5%8E%BB%E9%99%A2%E7%A9%BA%23&Refer=top) `5.0M 🔥`
 1. [男子乘坐滴滴被收4元空调费](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E4%B9%98%E5%9D%90%E6%BB%B4%E6%BB%B4%E8%A2%AB%E6%94%B64%E5%85%83%E7%A9%BA%E8%B0%83%E8%B4%B9%23&Refer=top) `4.4M 🔥`
 1. [徐穗珍退队](https://s.weibo.com/weibo?q=%E5%BE%90%E7%A9%97%E7%8F%8D%E9%80%80%E9%98%9F&Refer=top) `4.3M 🔥`
+1. [郭美美所售70元一粒减肥糖成本仅5毛](https://s.weibo.com/weibo?q=%23%E9%83%AD%E7%BE%8E%E7%BE%8E%E6%89%80%E5%94%AE70%E5%85%83%E4%B8%80%E7%B2%92%E5%87%8F%E8%82%A5%E7%B3%96%E6%88%90%E6%9C%AC%E4%BB%855%E6%AF%9B%23&Refer=top) `4.0M 🔥`
 1. [央视评艺人必须知荣辱](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E8%AF%84%E8%89%BA%E4%BA%BA%E5%BF%85%E9%A1%BB%E7%9F%A5%E8%8D%A3%E8%BE%B1%23&Refer=top) `3.9M 🔥`
 1. [魏晨婚纱照](https://s.weibo.com/weibo?q=%E9%AD%8F%E6%99%A8%E5%A9%9A%E7%BA%B1%E7%85%A7&Refer=top) `3.9M 🔥`
 1. [李佳琦公司因涉虚假宣传被罚30万](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E4%BD%B3%E7%90%A6%E5%85%AC%E5%8F%B8%E5%9B%A0%E6%B6%89%E8%99%9A%E5%81%87%E5%AE%A3%E4%BC%A0%E8%A2%AB%E7%BD%9A30%E4%B8%87%23&Refer=top) `3.6M 🔥`
@@ -27,7 +28,6 @@
 1. [阚清子 我最不能接受妈宝男](https://s.weibo.com/weibo?q=%E9%98%9A%E6%B8%85%E5%AD%90%20%E6%88%91%E6%9C%80%E4%B8%8D%E8%83%BD%E6%8E%A5%E5%8F%97%E5%A6%88%E5%AE%9D%E7%94%B7&Refer=top) `3.2M 🔥`
 1. [迪士尼公司宣布不再和斯嘉丽约翰逊合作](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E5%A3%AB%E5%B0%BC%E5%85%AC%E5%8F%B8%E5%AE%A3%E5%B8%83%E4%B8%8D%E5%86%8D%E5%92%8C%E6%96%AF%E5%98%89%E4%B8%BD%E7%BA%A6%E7%BF%B0%E9%80%8A%E5%90%88%E4%BD%9C%23&Refer=top) `3.0M 🔥`
 1. [侵害阿里女员工嫌疑人涉嫌强制猥亵](https://s.weibo.com/weibo?q=%23%E4%BE%B5%E5%AE%B3%E9%98%BF%E9%87%8C%E5%A5%B3%E5%91%98%E5%B7%A5%E5%AB%8C%E7%96%91%E4%BA%BA%E6%B6%89%E5%AB%8C%E5%BC%BA%E5%88%B6%E7%8C%A5%E4%BA%B5%23&Refer=top) `3.0M 🔥`
-1. [郭美美所售70元一粒减肥糖成本仅5毛](https://s.weibo.com/weibo?q=%23%E9%83%AD%E7%BE%8E%E7%BE%8E%E6%89%80%E5%94%AE70%E5%85%83%E4%B8%80%E7%B2%92%E5%87%8F%E8%82%A5%E7%B3%96%E6%88%90%E6%9C%AC%E4%BB%855%E6%AF%9B%23&Refer=top) `2.9M 🔥`
 1. [杨洋迪丽热巴 迪士尼](https://s.weibo.com/weibo?q=%E6%9D%A8%E6%B4%8B%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%20%E8%BF%AA%E5%A3%AB%E5%B0%BC&Refer=top) `2.7M 🔥`
 1. [迪丽热巴口红涂歪了](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E5%8F%A3%E7%BA%A2%E6%B6%82%E6%AD%AA%E4%BA%86%23&Refer=top) `2.7M 🔥`
 1. [张杰送谢娜玫瑰花](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%9D%B0%E9%80%81%E8%B0%A2%E5%A8%9C%E7%8E%AB%E7%91%B0%E8%8A%B1%23&Refer=top) `2.6M 🔥`
@@ -57,7 +57,7 @@
 1. [情头](https://s.weibo.com/weibo?q=%E6%83%85%E5%A4%B4&Refer=top) `1.9M 🔥`
 1. [七夕收到礼物反而很生气系列](https://s.weibo.com/weibo?q=%23%E4%B8%83%E5%A4%95%E6%94%B6%E5%88%B0%E7%A4%BC%E7%89%A9%E5%8F%8D%E8%80%8C%E5%BE%88%E7%94%9F%E6%B0%94%E7%B3%BB%E5%88%97%23&Refer=top) `1.9M 🔥`
 
-数据更新于 2021-08-14 21:46:15
+数据更新于 2021-08-14 21:52:27
 
 <!-- END -->
 
