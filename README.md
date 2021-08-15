@@ -52,12 +52,12 @@
 1. [兔子暴力](https://s.weibo.com/weibo?q=%E5%85%94%E5%AD%90%E6%9A%B4%E5%8A%9B&Refer=top) `1.7M 🔥`
 1. [冰冻2.8万年幼狮仍栩栩如生](https://s.weibo.com/weibo?q=%23%E5%86%B0%E5%86%BB2.8%E4%B8%87%E5%B9%B4%E5%B9%BC%E7%8B%AE%E4%BB%8D%E6%A0%A9%E6%A0%A9%E5%A6%82%E7%94%9F%23&Refer=top) `1.7M 🔥`
 1. [上海男子修剪自买的香樟树被罚14万](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E7%94%B7%E5%AD%90%E4%BF%AE%E5%89%AA%E8%87%AA%E4%B9%B0%E7%9A%84%E9%A6%99%E6%A8%9F%E6%A0%91%E8%A2%AB%E7%BD%9A14%E4%B8%87%23&Refer=top) `1.7M 🔥`
+1. [越南一家8口感染新冠同日离世](https://s.weibo.com/weibo?q=%E8%B6%8A%E5%8D%97%E4%B8%80%E5%AE%B68%E5%8F%A3%E6%84%9F%E6%9F%93%E6%96%B0%E5%86%A0%E5%90%8C%E6%97%A5%E7%A6%BB%E4%B8%96&Refer=top) `1.7M 🔥`
 1. [施廷懋说梦之队平时训练也炸鱼](https://s.weibo.com/weibo?q=%23%E6%96%BD%E5%BB%B7%E6%87%8B%E8%AF%B4%E6%A2%A6%E4%B9%8B%E9%98%9F%E5%B9%B3%E6%97%B6%E8%AE%AD%E7%BB%83%E4%B9%9F%E7%82%B8%E9%B1%BC%23&Refer=top) `1.6M 🔥`
 1. [广西北海退房潮损失达1548万](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E8%A5%BF%E5%8C%97%E6%B5%B7%E9%80%80%E6%88%BF%E6%BD%AE%E6%8D%9F%E5%A4%B1%E8%BE%BE1548%E4%B8%87%23&Refer=top) `1.6M 🔥`
 1. [男子因焦虑过度碱中毒](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E5%9B%A0%E7%84%A6%E8%99%91%E8%BF%87%E5%BA%A6%E7%A2%B1%E4%B8%AD%E6%AF%92%23&Refer=top) `1.6M 🔥`
-1. [张哲瀚微博和张哲瀚工作室被禁言](https://s.weibo.com/weibo?q=%E5%BC%A0%E5%93%B2%E7%80%9A%E5%BE%AE%E5%8D%9A%E5%92%8C%E5%BC%A0%E5%93%B2%E7%80%9A%E5%B7%A5%E4%BD%9C%E5%AE%A4%E8%A2%AB%E7%A6%81%E8%A8%80&Refer=top) `1.6M 🔥`
 
-数据更新于 2021-08-15 21:52:18
+数据更新于 2021-08-15 21:58:35
 
 <!-- END -->
 
