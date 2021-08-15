@@ -40,6 +40,7 @@
 1. [老人穿马路致3车追尾还回头看热闹](https://s.weibo.com/weibo?q=%23%E8%80%81%E4%BA%BA%E7%A9%BF%E9%A9%AC%E8%B7%AF%E8%87%B43%E8%BD%A6%E8%BF%BD%E5%B0%BE%E8%BF%98%E5%9B%9E%E5%A4%B4%E7%9C%8B%E7%83%AD%E9%97%B9%23&Refer=top) `479.3K 🔥`
 1. [85岁奶奶深夜卖煎饼15年](https://s.weibo.com/weibo?q=%2385%E5%B2%81%E5%A5%B6%E5%A5%B6%E6%B7%B1%E5%A4%9C%E5%8D%96%E7%85%8E%E9%A5%BC15%E5%B9%B4%23&Refer=top) `476.8K 🔥`
 1. [家长要不要干预孩子的朋友圈](https://s.weibo.com/weibo?q=%23%E5%AE%B6%E9%95%BF%E8%A6%81%E4%B8%8D%E8%A6%81%E5%B9%B2%E9%A2%84%E5%AD%A9%E5%AD%90%E7%9A%84%E6%9C%8B%E5%8F%8B%E5%9C%88%23&Refer=top) `448.1K 🔥`
+1. [海地地震死亡人数升至1297人](https://s.weibo.com/weibo?q=%23%E6%B5%B7%E5%9C%B0%E5%9C%B0%E9%9C%87%E6%AD%BB%E4%BA%A1%E4%BA%BA%E6%95%B0%E5%8D%87%E8%87%B31297%E4%BA%BA%23&Refer=top) `430.0K 🔥`
 1. [央视曝光便携风扇使用风险](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E6%9B%9D%E5%85%89%E4%BE%BF%E6%90%BA%E9%A3%8E%E6%89%87%E4%BD%BF%E7%94%A8%E9%A3%8E%E9%99%A9%23&Refer=top) `424.4K 🔥`
 1. [驻阿富汗大使馆提醒中国公民加强安全防护](https://s.weibo.com/weibo?q=%23%E9%A9%BB%E9%98%BF%E5%AF%8C%E6%B1%97%E5%A4%A7%E4%BD%BF%E9%A6%86%E6%8F%90%E9%86%92%E4%B8%AD%E5%9B%BD%E5%85%AC%E6%B0%91%E5%8A%A0%E5%BC%BA%E5%AE%89%E5%85%A8%E9%98%B2%E6%8A%A4%23&Refer=top) `410.6K 🔥`
 1. [严浩翔](https://s.weibo.com/weibo?q=%E4%B8%A5%E6%B5%A9%E7%BF%94&Refer=top) `396.0K 🔥`
@@ -54,10 +55,9 @@
 1. [邓紫棋工作室生日周边价格](https://s.weibo.com/weibo?q=%E9%82%93%E7%B4%AB%E6%A3%8B%E5%B7%A5%E4%BD%9C%E5%AE%A4%E7%94%9F%E6%97%A5%E5%91%A8%E8%BE%B9%E4%BB%B7%E6%A0%BC&Refer=top) `337.2K 🔥`
 1. [张艺兴中式盘扣流光外套](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%89%BA%E5%85%B4%E4%B8%AD%E5%BC%8F%E7%9B%98%E6%89%A3%E6%B5%81%E5%85%89%E5%A4%96%E5%A5%97%23&Refer=top) `326.5K 🔥`
 1. [扫黑风暴](https://s.weibo.com/weibo?q=%E6%89%AB%E9%BB%91%E9%A3%8E%E6%9A%B4&Refer=top) `309.0K 🔥`
-1. [老baby的七夕太上头了](https://s.weibo.com/weibo?q=%23%E8%80%81baby%E7%9A%84%E4%B8%83%E5%A4%95%E5%A4%AA%E4%B8%8A%E5%A4%B4%E4%BA%86%23&Refer=top) `297.4K 🔥`
-1. [被猫咪的背影萌到了](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E7%8C%AB%E5%92%AA%E7%9A%84%E8%83%8C%E5%BD%B1%E8%90%8C%E5%88%B0%E4%BA%86%23&Refer=top) `283.6K 🔥`
+1. [河南虞城8人防疫不力被处理](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8D%97%E8%99%9E%E5%9F%8E8%E4%BA%BA%E9%98%B2%E7%96%AB%E4%B8%8D%E5%8A%9B%E8%A2%AB%E5%A4%84%E7%90%86%23&Refer=top) `305.6K 🔥`
 
-数据更新于 2021-08-16 07:31:24
+数据更新于 2021-08-16 07:39:25
 
 <!-- END -->
 
