@@ -41,12 +41,13 @@
 1. [难听](https://s.weibo.com/weibo?q=%E9%9A%BE%E5%90%AC&Refer=top) `1.8M 🔥`
 1. [塔利班希望阿富汗逃亡民众留下来](https://s.weibo.com/weibo?q=%23%E5%A1%94%E5%88%A9%E7%8F%AD%E5%B8%8C%E6%9C%9B%E9%98%BF%E5%AF%8C%E6%B1%97%E9%80%83%E4%BA%A1%E6%B0%91%E4%BC%97%E7%95%99%E4%B8%8B%E6%9D%A5%23&Refer=top) `1.8M 🔥`
 1. [迪丽热巴说自己比乔晶晶成熟](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E8%AF%B4%E8%87%AA%E5%B7%B1%E6%AF%94%E4%B9%94%E6%99%B6%E6%99%B6%E6%88%90%E7%86%9F%23&Refer=top) `1.7M 🔥`
+1. [原来女娲真的会偏心](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E5%A5%B3%E5%A8%B2%E7%9C%9F%E7%9A%84%E4%BC%9A%E5%81%8F%E5%BF%83%23&Refer=top) `1.7M 🔥`
 1. [塔利班宣布攻占总统府](https://s.weibo.com/weibo?q=%E5%A1%94%E5%88%A9%E7%8F%AD%E5%AE%A3%E5%B8%83%E6%94%BB%E5%8D%A0%E6%80%BB%E7%BB%9F%E5%BA%9C&Refer=top) `1.7M 🔥`
 1. [目前未接到任何有关在阿中国公民伤亡报告](https://s.weibo.com/weibo?q=%23%E7%9B%AE%E5%89%8D%E6%9C%AA%E6%8E%A5%E5%88%B0%E4%BB%BB%E4%BD%95%E6%9C%89%E5%85%B3%E5%9C%A8%E9%98%BF%E4%B8%AD%E5%9B%BD%E5%85%AC%E6%B0%91%E4%BC%A4%E4%BA%A1%E6%8A%A5%E5%91%8A%23&Refer=top) `1.7M 🔥`
 1. [济南大润发发臭隔夜肉洗了再卖](https://s.weibo.com/weibo?q=%23%E6%B5%8E%E5%8D%97%E5%A4%A7%E6%B6%A6%E5%8F%91%E5%8F%91%E8%87%AD%E9%9A%94%E5%A4%9C%E8%82%89%E6%B4%97%E4%BA%86%E5%86%8D%E5%8D%96%23&Refer=top) `1.7M 🔥`
 1. [泫雅金晓钟将合体出道](https://s.weibo.com/weibo?q=%23%E6%B3%AB%E9%9B%85%E9%87%91%E6%99%93%E9%92%9F%E5%B0%86%E5%90%88%E4%BD%93%E5%87%BA%E9%81%93%23&Refer=top) `1.6M 🔥`
+1. [喀布尔机场至少5人死亡](https://s.weibo.com/weibo?q=%23%E5%96%80%E5%B8%83%E5%B0%94%E6%9C%BA%E5%9C%BA%E8%87%B3%E5%B0%915%E4%BA%BA%E6%AD%BB%E4%BA%A1%23&Refer=top) `1.6M 🔥`
 1. [阿里女员工被侵害案采取测谎辅助手段](https://s.weibo.com/weibo?q=%23%E9%98%BF%E9%87%8C%E5%A5%B3%E5%91%98%E5%B7%A5%E8%A2%AB%E4%BE%B5%E5%AE%B3%E6%A1%88%E9%87%87%E5%8F%96%E6%B5%8B%E8%B0%8E%E8%BE%85%E5%8A%A9%E6%89%8B%E6%AE%B5%23&Refer=top) `1.5M 🔥`
-1. [喀布尔机场至少5人死亡](https://s.weibo.com/weibo?q=%23%E5%96%80%E5%B8%83%E5%B0%94%E6%9C%BA%E5%9C%BA%E8%87%B3%E5%B0%915%E4%BA%BA%E6%AD%BB%E4%BA%A1%23&Refer=top) `1.5M 🔥`
 1. [全运会](https://s.weibo.com/weibo?q=%E5%85%A8%E8%BF%90%E4%BC%9A&Refer=top) `1.5M 🔥`
 1. [女子将10年校园欺凌经历做成桌游](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E5%B0%8610%E5%B9%B4%E6%A0%A1%E5%9B%AD%E6%AC%BA%E5%87%8C%E7%BB%8F%E5%8E%86%E5%81%9A%E6%88%90%E6%A1%8C%E6%B8%B8%23&Refer=top) `1.5M 🔥`
 1. [成都一共享单车坐垫被插针](https://s.weibo.com/weibo?q=%23%E6%88%90%E9%83%BD%E4%B8%80%E5%85%B1%E4%BA%AB%E5%8D%95%E8%BD%A6%E5%9D%90%E5%9E%AB%E8%A2%AB%E6%8F%92%E9%92%88%23&Refer=top) `1.4M 🔥`
@@ -55,9 +56,8 @@
 1. [赴美留学机场千米排长队十万票价再现](https://s.weibo.com/weibo?q=%23%E8%B5%B4%E7%BE%8E%E7%95%99%E5%AD%A6%E6%9C%BA%E5%9C%BA%E5%8D%83%E7%B1%B3%E6%8E%92%E9%95%BF%E9%98%9F%E5%8D%81%E4%B8%87%E7%A5%A8%E4%BB%B7%E5%86%8D%E7%8E%B0%23&Refer=top) `1.4M 🔥`
 1. [孙颖莎樊振东直播](https://s.weibo.com/weibo?q=%E5%AD%99%E9%A2%96%E8%8E%8E%E6%A8%8A%E6%8C%AF%E4%B8%9C%E7%9B%B4%E6%92%AD&Refer=top) `1.4M 🔥`
 1. [张彬彬从头到尾没信过郭京飞](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%BD%AC%E5%BD%AC%E4%BB%8E%E5%A4%B4%E5%88%B0%E5%B0%BE%E6%B2%A1%E4%BF%A1%E8%BF%87%E9%83%AD%E4%BA%AC%E9%A3%9E%23&Refer=top) `1.3M 🔥`
-1. [一部电视剧长达807集](https://s.weibo.com/weibo?q=%23%E4%B8%80%E9%83%A8%E7%94%B5%E8%A7%86%E5%89%A7%E9%95%BF%E8%BE%BE807%E9%9B%86%23&Refer=top) `1.3M 🔥`
 
-数据更新于 2021-08-16 19:03:49
+数据更新于 2021-08-16 19:25:57
 
 <!-- END -->
 
