@@ -9,10 +9,10 @@
 1. [艺人和经纪人参加的艺德培训班](https://s.weibo.com/weibo?q=%23%E8%89%BA%E4%BA%BA%E5%92%8C%E7%BB%8F%E7%BA%AA%E4%BA%BA%E5%8F%82%E5%8A%A0%E7%9A%84%E8%89%BA%E5%BE%B7%E5%9F%B9%E8%AE%AD%E7%8F%AD%23&Refer=top) `7.1M 🔥`
 1. [都美竹在粉丝群感谢朝阳公安和粉丝](https://s.weibo.com/weibo?q=%23%E9%83%BD%E7%BE%8E%E7%AB%B9%E5%9C%A8%E7%B2%89%E4%B8%9D%E7%BE%A4%E6%84%9F%E8%B0%A2%E6%9C%9D%E9%98%B3%E5%85%AC%E5%AE%89%E5%92%8C%E7%B2%89%E4%B8%9D%23&Refer=top) `5.9M 🔥`
 1. [吴亦凡被批捕](https://s.weibo.com/weibo?q=%23%E5%90%B4%E4%BA%A6%E5%87%A1%E8%A2%AB%E6%89%B9%E6%8D%95%23&Refer=top) `5.8M 🔥`
+1. [连买25件商品退回一个空包裹](https://s.weibo.com/weibo?q=%23%E8%BF%9E%E4%B9%B025%E4%BB%B6%E5%95%86%E5%93%81%E9%80%80%E5%9B%9E%E4%B8%80%E4%B8%AA%E7%A9%BA%E5%8C%85%E8%A3%B9%23&Refer=top) `5.4M 🔥`
 1. [29岁女生被诊断为爆发型糖尿病住ICU](https://s.weibo.com/weibo?q=%2329%E5%B2%81%E5%A5%B3%E7%94%9F%E8%A2%AB%E8%AF%8A%E6%96%AD%E4%B8%BA%E7%88%86%E5%8F%91%E5%9E%8B%E7%B3%96%E5%B0%BF%E7%97%85%E4%BD%8FICU%23&Refer=top) `5.2M 🔥`
 1. [孙兴赶紧被抓](https://s.weibo.com/weibo?q=%E5%AD%99%E5%85%B4%E8%B5%B6%E7%B4%A7%E8%A2%AB%E6%8A%93&Refer=top) `4.9M 🔥`
 1. [彭波被开除党籍](https://s.weibo.com/weibo?q=%23%E5%BD%AD%E6%B3%A2%E8%A2%AB%E5%BC%80%E9%99%A4%E5%85%9A%E7%B1%8D%23&Refer=top) `4.2M 🔥`
-1. [连买25件商品退回一个空包裹](https://s.weibo.com/weibo?q=%23%E8%BF%9E%E4%B9%B025%E4%BB%B6%E5%95%86%E5%93%81%E9%80%80%E5%9B%9E%E4%B8%80%E4%B8%AA%E7%A9%BA%E5%8C%85%E8%A3%B9%23&Refer=top) `4.2M 🔥`
 1. [杨倩说别把炒CP当真](https://s.weibo.com/weibo?q=%E6%9D%A8%E5%80%A9%E8%AF%B4%E5%88%AB%E6%8A%8A%E7%82%92CP%E5%BD%93%E7%9C%9F&Refer=top) `4.1M 🔥`
 1. [BOSS直聘宣布将取消大小周](https://s.weibo.com/weibo?q=%23BOSS%E7%9B%B4%E8%81%98%E5%AE%A3%E5%B8%83%E5%B0%86%E5%8F%96%E6%B6%88%E5%A4%A7%E5%B0%8F%E5%91%A8%23&Refer=top) `4.1M 🔥`
 1. [坦白嫖娼未获原谅竟撞车杀妻](https://s.weibo.com/weibo?q=%23%E5%9D%A6%E7%99%BD%E5%AB%96%E5%A8%BC%E6%9C%AA%E8%8E%B7%E5%8E%9F%E8%B0%85%E7%AB%9F%E6%92%9E%E8%BD%A6%E6%9D%80%E5%A6%BB%23&Refer=top) `3.8M 🔥`
@@ -54,10 +54,10 @@
 1. [老师猥亵学生长郡中学已报案](https://s.weibo.com/weibo?q=%23%E8%80%81%E5%B8%88%E7%8C%A5%E4%BA%B5%E5%AD%A6%E7%94%9F%E9%95%BF%E9%83%A1%E4%B8%AD%E5%AD%A6%E5%B7%B2%E6%8A%A5%E6%A1%88%23&Refer=top) `1.3M 🔥`
 1. [张起灵长白山](https://s.weibo.com/weibo?q=%E5%BC%A0%E8%B5%B7%E7%81%B5%E9%95%BF%E7%99%BD%E5%B1%B1&Refer=top) `1.3M 🔥`
 1. [药水哥 直播连线女主角](https://s.weibo.com/weibo?q=%E8%8D%AF%E6%B0%B4%E5%93%A5%20%E7%9B%B4%E6%92%AD%E8%BF%9E%E7%BA%BF%E5%A5%B3%E4%B8%BB%E8%A7%92&Refer=top) `1.3M 🔥`
+1. [原来尴尬才是人生常态](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E5%B0%B4%E5%B0%AC%E6%89%8D%E6%98%AF%E4%BA%BA%E7%94%9F%E5%B8%B8%E6%80%81%23&Refer=top) `1.3M 🔥`
 1. [香港中学开学第一课我是中国人](https://s.weibo.com/weibo?q=%23%E9%A6%99%E6%B8%AF%E4%B8%AD%E5%AD%A6%E5%BC%80%E5%AD%A6%E7%AC%AC%E4%B8%80%E8%AF%BE%E6%88%91%E6%98%AF%E4%B8%AD%E5%9B%BD%E4%BA%BA%23&Refer=top) `1.2M 🔥`
-1. [妈妈睡觉时被萌娃偷剃头](https://s.weibo.com/weibo?q=%23%E5%A6%88%E5%A6%88%E7%9D%A1%E8%A7%89%E6%97%B6%E8%A2%AB%E8%90%8C%E5%A8%83%E5%81%B7%E5%89%83%E5%A4%B4%23&Refer=top) `1.2M 🔥`
 
-数据更新于 2021-08-17 16:58:03
+数据更新于 2021-08-17 17:02:21
 
 <!-- END -->
 
