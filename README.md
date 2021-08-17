@@ -57,7 +57,7 @@
 1. [阿富汗首都市中心降下国旗](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E9%A6%96%E9%83%BD%E5%B8%82%E4%B8%AD%E5%BF%83%E9%99%8D%E4%B8%8B%E5%9B%BD%E6%97%97%23&Refer=top) `1.5M 🔥`
 1. [塔利班士兵在美使馆前说美国输了](https://s.weibo.com/weibo?q=%23%E5%A1%94%E5%88%A9%E7%8F%AD%E5%A3%AB%E5%85%B5%E5%9C%A8%E7%BE%8E%E4%BD%BF%E9%A6%86%E5%89%8D%E8%AF%B4%E7%BE%8E%E5%9B%BD%E8%BE%93%E4%BA%86%23&Refer=top) `1.5M 🔥`
 
-数据更新于 2021-08-17 23:02:28
+数据更新于 2021-08-17 23:08:59
 
 <!-- END -->
 
