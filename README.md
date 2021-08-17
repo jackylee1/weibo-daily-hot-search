@@ -51,13 +51,13 @@
 1. [人民日报谈饭圈乱象治理](https://s.weibo.com/weibo?q=%23%E4%BA%BA%E6%B0%91%E6%97%A5%E6%8A%A5%E8%B0%88%E9%A5%AD%E5%9C%88%E4%B9%B1%E8%B1%A1%E6%B2%BB%E7%90%86%23&Refer=top) `1.7M 🔥`
 1. [塔利班士兵在游乐场玩碰碰车](https://s.weibo.com/weibo?q=%23%E5%A1%94%E5%88%A9%E7%8F%AD%E5%A3%AB%E5%85%B5%E5%9C%A8%E6%B8%B8%E4%B9%90%E5%9C%BA%E7%8E%A9%E7%A2%B0%E7%A2%B0%E8%BD%A6%23&Refer=top) `1.7M 🔥`
 1. [12岁杨洋的高质量洗袜子诀窍](https://s.weibo.com/weibo?q=%2312%E5%B2%81%E6%9D%A8%E6%B4%8B%E7%9A%84%E9%AB%98%E8%B4%A8%E9%87%8F%E6%B4%97%E8%A2%9C%E5%AD%90%E8%AF%80%E7%AA%8D%23&Refer=top) `1.7M 🔥`
+1. [教育局通报小学校长猥亵学生事件](https://s.weibo.com/weibo?q=%23%E6%95%99%E8%82%B2%E5%B1%80%E9%80%9A%E6%8A%A5%E5%B0%8F%E5%AD%A6%E6%A0%A1%E9%95%BF%E7%8C%A5%E4%BA%B5%E5%AD%A6%E7%94%9F%E4%BA%8B%E4%BB%B6%23&Refer=top) `1.7M 🔥`
 1. [大妈拒扫健康码还一巴掌抡倒防疫人员](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%A6%88%E6%8B%92%E6%89%AB%E5%81%A5%E5%BA%B7%E7%A0%81%E8%BF%98%E4%B8%80%E5%B7%B4%E6%8E%8C%E6%8A%A1%E5%80%92%E9%98%B2%E7%96%AB%E4%BA%BA%E5%91%98%23&Refer=top) `1.5M 🔥`
 1. [阿富汗首都市中心降下国旗](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E9%A6%96%E9%83%BD%E5%B8%82%E4%B8%AD%E5%BF%83%E9%99%8D%E4%B8%8B%E5%9B%BD%E6%97%97%23&Refer=top) `1.5M 🔥`
 1. [塔利班士兵在美使馆前说美国输了](https://s.weibo.com/weibo?q=%23%E5%A1%94%E5%88%A9%E7%8F%AD%E5%A3%AB%E5%85%B5%E5%9C%A8%E7%BE%8E%E4%BD%BF%E9%A6%86%E5%89%8D%E8%AF%B4%E7%BE%8E%E5%9B%BD%E8%BE%93%E4%BA%86%23&Refer=top) `1.5M 🔥`
 1. [BBC女主播直播时接到塔利班电话](https://s.weibo.com/weibo?q=%23BBC%E5%A5%B3%E4%B8%BB%E6%92%AD%E7%9B%B4%E6%92%AD%E6%97%B6%E6%8E%A5%E5%88%B0%E5%A1%94%E5%88%A9%E7%8F%AD%E7%94%B5%E8%AF%9D%23&Refer=top) `1.5M 🔥`
-1. [腾讯回应微信刷掌支付](https://s.weibo.com/weibo?q=%23%E8%85%BE%E8%AE%AF%E5%9B%9E%E5%BA%94%E5%BE%AE%E4%BF%A1%E5%88%B7%E6%8E%8C%E6%94%AF%E4%BB%98%23&Refer=top) `1.5M 🔥`
 
-数据更新于 2021-08-17 22:30:27
+数据更新于 2021-08-17 22:37:33
 
 <!-- END -->
 
