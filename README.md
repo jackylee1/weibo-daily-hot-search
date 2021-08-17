@@ -57,7 +57,7 @@
 1. [塔利班士兵在美使馆前说美国输了](https://s.weibo.com/weibo?q=%23%E5%A1%94%E5%88%A9%E7%8F%AD%E5%A3%AB%E5%85%B5%E5%9C%A8%E7%BE%8E%E4%BD%BF%E9%A6%86%E5%89%8D%E8%AF%B4%E7%BE%8E%E5%9B%BD%E8%BE%93%E4%BA%86%23&Refer=top) `1.5M 🔥`
 1. [BBC女主播直播时接到塔利班电话](https://s.weibo.com/weibo?q=%23BBC%E5%A5%B3%E4%B8%BB%E6%92%AD%E7%9B%B4%E6%92%AD%E6%97%B6%E6%8E%A5%E5%88%B0%E5%A1%94%E5%88%A9%E7%8F%AD%E7%94%B5%E8%AF%9D%23&Refer=top) `1.5M 🔥`
 
-数据更新于 2021-08-17 22:43:47
+数据更新于 2021-08-17 22:50:00
 
 <!-- END -->
 
