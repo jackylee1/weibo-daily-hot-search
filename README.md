@@ -26,12 +26,12 @@
 1. [张杰吃鱼鱼骨卡在食道里](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%9D%B0%E5%90%83%E9%B1%BC%E9%B1%BC%E9%AA%A8%E5%8D%A1%E5%9C%A8%E9%A3%9F%E9%81%93%E9%87%8C%23&Refer=top) `2.2M 🔥`
 1. [阿富汗将停止生产毒品](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E5%B0%86%E5%81%9C%E6%AD%A2%E7%94%9F%E4%BA%A7%E6%AF%92%E5%93%81%23&Refer=top) `2.1M 🔥`
 1. [Siri主人用获赔款买2400斤狗粮捐出](https://s.weibo.com/weibo?q=%23Siri%E4%B8%BB%E4%BA%BA%E7%94%A8%E8%8E%B7%E8%B5%94%E6%AC%BE%E4%B9%B02400%E6%96%A4%E7%8B%97%E7%B2%AE%E6%8D%90%E5%87%BA%23&Refer=top) `2.0M 🔥`
+1. [阿富汗央行行长自述逃跑经过](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E5%A4%AE%E8%A1%8C%E8%A1%8C%E9%95%BF%E8%87%AA%E8%BF%B0%E9%80%83%E8%B7%91%E7%BB%8F%E8%BF%87%23&Refer=top) `2.0M 🔥`
 1. [中国政法大学原副校长于志刚被公诉](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E6%94%BF%E6%B3%95%E5%A4%A7%E5%AD%A6%E5%8E%9F%E5%89%AF%E6%A0%A1%E9%95%BF%E4%BA%8E%E5%BF%97%E5%88%9A%E8%A2%AB%E5%85%AC%E8%AF%89%23&Refer=top) `1.9M 🔥`
 1. [大妈捡废品当着狗的面拿走其铁饭碗](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%A6%88%E6%8D%A1%E5%BA%9F%E5%93%81%E5%BD%93%E7%9D%80%E7%8B%97%E7%9A%84%E9%9D%A2%E6%8B%BF%E8%B5%B0%E5%85%B6%E9%93%81%E9%A5%AD%E7%A2%97%23&Refer=top) `1.9M 🔥`
 1. [松江中心医院](https://s.weibo.com/weibo?q=%E6%9D%BE%E6%B1%9F%E4%B8%AD%E5%BF%83%E5%8C%BB%E9%99%A2&Refer=top) `1.9M 🔥`
 1. [卜凡工作室声明](https://s.weibo.com/weibo?q=%23%E5%8D%9C%E5%87%A1%E5%B7%A5%E4%BD%9C%E5%AE%A4%E5%A3%B0%E6%98%8E%23&Refer=top) `1.8M 🔥`
 1. [微信群聊天被骂群主不作为或担责](https://s.weibo.com/weibo?q=%23%E5%BE%AE%E4%BF%A1%E7%BE%A4%E8%81%8A%E5%A4%A9%E8%A2%AB%E9%AA%82%E7%BE%A4%E4%B8%BB%E4%B8%8D%E4%BD%9C%E4%B8%BA%E6%88%96%E6%8B%85%E8%B4%A3%23&Refer=top) `1.7M 🔥`
-1. [阿富汗央行行长自述逃跑经过](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E5%A4%AE%E8%A1%8C%E8%A1%8C%E9%95%BF%E8%87%AA%E8%BF%B0%E9%80%83%E8%B7%91%E7%BB%8F%E8%BF%87%23&Refer=top) `1.7M 🔥`
 1. [月薪4万是种什么体验](https://s.weibo.com/weibo?q=%23%E6%9C%88%E8%96%AA4%E4%B8%87%E6%98%AF%E7%A7%8D%E4%BB%80%E4%B9%88%E4%BD%93%E9%AA%8C%23&Refer=top) `1.6M 🔥`
 1. [黄晓明终究是被磨平了棱角](https://s.weibo.com/weibo?q=%23%E9%BB%84%E6%99%93%E6%98%8E%E7%BB%88%E7%A9%B6%E6%98%AF%E8%A2%AB%E7%A3%A8%E5%B9%B3%E4%BA%86%E6%A3%B1%E8%A7%92%23&Refer=top) `1.5M 🔥`
 1. [阿迪达斯被要求整改](https://s.weibo.com/weibo?q=%23%E9%98%BF%E8%BF%AA%E8%BE%BE%E6%96%AF%E8%A2%AB%E8%A6%81%E6%B1%82%E6%95%B4%E6%94%B9%23&Refer=top) `1.5M 🔥`
@@ -57,7 +57,7 @@
 1. [美国冻结阿富汗央行近95亿美元资产](https://s.weibo.com/weibo?q=%E7%BE%8E%E5%9B%BD%E5%86%BB%E7%BB%93%E9%98%BF%E5%AF%8C%E6%B1%97%E5%A4%AE%E8%A1%8C%E8%BF%9195%E4%BA%BF%E7%BE%8E%E5%85%83%E8%B5%84%E4%BA%A7&Refer=top) `1.1M 🔥`
 1. [两口子吵架孕妻被扔高速](https://s.weibo.com/weibo?q=%23%E4%B8%A4%E5%8F%A3%E5%AD%90%E5%90%B5%E6%9E%B6%E5%AD%95%E5%A6%BB%E8%A2%AB%E6%89%94%E9%AB%98%E9%80%9F%23&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-08-18 18:46:10
+数据更新于 2021-08-18 18:51:50
 
 <!-- END -->
 
