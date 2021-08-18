@@ -10,7 +10,7 @@
 1. [特朗普称中国正在笑话美国](https://s.weibo.com/weibo?q=%23%E7%89%B9%E6%9C%97%E6%99%AE%E7%A7%B0%E4%B8%AD%E5%9B%BD%E6%AD%A3%E5%9C%A8%E7%AC%91%E8%AF%9D%E7%BE%8E%E5%9B%BD%23&Refer=top) `6.4M 🔥`
 1. [李恩晒与都美竹刘美丽群聊记录](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E6%81%A9%E6%99%92%E4%B8%8E%E9%83%BD%E7%BE%8E%E7%AB%B9%E5%88%98%E7%BE%8E%E4%B8%BD%E7%BE%A4%E8%81%8A%E8%AE%B0%E5%BD%95%23&Refer=top) `6.1M 🔥`
 1. [阿富汗](https://s.weibo.com/weibo?q=%E9%98%BF%E5%AF%8C%E6%B1%97&Refer=top) `5.9M 🔥`
-1. [上海疫情](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E7%96%AB%E6%83%85%23&Refer=top) `5.1M 🔥`
+1. [上海疫情](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E7%96%AB%E6%83%85%23&Refer=top) `5.9M 🔥`
 1. [北京再次明确不发展共享电单车](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E5%86%8D%E6%AC%A1%E6%98%8E%E7%A1%AE%E4%B8%8D%E5%8F%91%E5%B1%95%E5%85%B1%E4%BA%AB%E7%94%B5%E5%8D%95%E8%BD%A6%23&Refer=top) `5.0M 🔥`
 1. [支付宝小鸡](https://s.weibo.com/weibo?q=%E6%94%AF%E4%BB%98%E5%AE%9D%E5%B0%8F%E9%B8%A1&Refer=top) `4.4M 🔥`
 1. [杨幂被路人搭讪](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E5%B9%82%E8%A2%AB%E8%B7%AF%E4%BA%BA%E6%90%AD%E8%AE%AA%23&Refer=top) `4.0M 🔥`
@@ -57,7 +57,7 @@
 1. [刘烨妻子原来这么厉害](https://s.weibo.com/weibo?q=%23%E5%88%98%E7%83%A8%E5%A6%BB%E5%AD%90%E5%8E%9F%E6%9D%A5%E8%BF%99%E4%B9%88%E5%8E%89%E5%AE%B3%23&Refer=top) `1.1M 🔥`
 1. [美国冻结阿富汗央行近95亿美元资产](https://s.weibo.com/weibo?q=%E7%BE%8E%E5%9B%BD%E5%86%BB%E7%BB%93%E9%98%BF%E5%AF%8C%E6%B1%97%E5%A4%AE%E8%A1%8C%E8%BF%9195%E4%BA%BF%E7%BE%8E%E5%85%83%E8%B5%84%E4%BA%A7&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-08-18 19:22:06
+数据更新于 2021-08-18 19:28:28
 
 <!-- END -->
 
