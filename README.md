@@ -57,7 +57,7 @@
 1. [美国冻结阿富汗央行近95亿美元资产](https://s.weibo.com/weibo?q=%E7%BE%8E%E5%9B%BD%E5%86%BB%E7%BB%93%E9%98%BF%E5%AF%8C%E6%B1%97%E5%A4%AE%E8%A1%8C%E8%BF%9195%E4%BA%BF%E7%BE%8E%E5%85%83%E8%B5%84%E4%BA%A7&Refer=top) `1.1M 🔥`
 1. [两口子吵架孕妻被扔高速](https://s.weibo.com/weibo?q=%23%E4%B8%A4%E5%8F%A3%E5%AD%90%E5%90%B5%E6%9E%B6%E5%AD%95%E5%A6%BB%E8%A2%AB%E6%89%94%E9%AB%98%E9%80%9F%23&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-08-18 18:58:15
+数据更新于 2021-08-18 19:02:01
 
 <!-- END -->
 
