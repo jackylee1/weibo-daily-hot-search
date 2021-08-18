@@ -14,6 +14,7 @@
 1. [上海疫情](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E7%96%AB%E6%83%85%23&Refer=top) `5.9M 🔥`
 1. [阿富汗央行行长自述逃跑经过](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E5%A4%AE%E8%A1%8C%E8%A1%8C%E9%95%BF%E8%87%AA%E8%BF%B0%E9%80%83%E8%B7%91%E7%BB%8F%E8%BF%87%23&Refer=top) `5.2M 🔥`
 1. [北京再次明确不发展共享电单车](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E5%86%8D%E6%AC%A1%E6%98%8E%E7%A1%AE%E4%B8%8D%E5%8F%91%E5%B1%95%E5%85%B1%E4%BA%AB%E7%94%B5%E5%8D%95%E8%BD%A6%23&Refer=top) `5.0M 🔥`
+1. [阿富汗7月大女婴因机场混乱与父母失散](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%977%E6%9C%88%E5%A4%A7%E5%A5%B3%E5%A9%B4%E5%9B%A0%E6%9C%BA%E5%9C%BA%E6%B7%B7%E4%B9%B1%E4%B8%8E%E7%88%B6%E6%AF%8D%E5%A4%B1%E6%95%A3%23&Refer=top) `4.7M 🔥`
 1. [支付宝小鸡](https://s.weibo.com/weibo?q=%E6%94%AF%E4%BB%98%E5%AE%9D%E5%B0%8F%E9%B8%A1&Refer=top) `4.4M 🔥`
 1. [杨幂被路人搭讪](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E5%B9%82%E8%A2%AB%E8%B7%AF%E4%BA%BA%E6%90%AD%E8%AE%AA%23&Refer=top) `4.0M 🔥`
 1. [杨迪 这是我录过最刺激的综艺](https://s.weibo.com/weibo?q=%E6%9D%A8%E8%BF%AA%20%E8%BF%99%E6%98%AF%E6%88%91%E5%BD%95%E8%BF%87%E6%9C%80%E5%88%BA%E6%BF%80%E7%9A%84%E7%BB%BC%E8%89%BA&Refer=top) `3.8M 🔥`
@@ -55,9 +56,8 @@
 1. [孙颖莎晒出奥运会上收集的徽章](https://s.weibo.com/weibo?q=%23%E5%AD%99%E9%A2%96%E8%8E%8E%E6%99%92%E5%87%BA%E5%A5%A5%E8%BF%90%E4%BC%9A%E4%B8%8A%E6%94%B6%E9%9B%86%E7%9A%84%E5%BE%BD%E7%AB%A0%23&Refer=top) `1.2M 🔥`
 1. [迪丽热巴迪士尼Plog](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E8%BF%AA%E5%A3%AB%E5%B0%BCPlog%23&Refer=top) `1.2M 🔥`
 1. [12岁杨洋的高质量洗袜子诀窍](https://s.weibo.com/weibo?q=%2312%E5%B2%81%E6%9D%A8%E6%B4%8B%E7%9A%84%E9%AB%98%E8%B4%A8%E9%87%8F%E6%B4%97%E8%A2%9C%E5%AD%90%E8%AF%80%E7%AA%8D%23&Refer=top) `1.2M 🔥`
-1. [阿富汗女导演街头疾呼逃离塔利班](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E5%A5%B3%E5%AF%BC%E6%BC%94%E8%A1%97%E5%A4%B4%E7%96%BE%E5%91%BC%E9%80%83%E7%A6%BB%E5%A1%94%E5%88%A9%E7%8F%AD%23&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-08-18 19:53:34
+数据更新于 2021-08-18 19:59:46
 
 <!-- END -->
 
