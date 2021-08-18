@@ -9,6 +9,7 @@
 1. [全网处理吴亦凡参演短视频190万条](https://s.weibo.com/weibo?q=%23%E5%85%A8%E7%BD%91%E5%A4%84%E7%90%86%E5%90%B4%E4%BA%A6%E5%87%A1%E5%8F%82%E6%BC%94%E7%9F%AD%E8%A7%86%E9%A2%91190%E4%B8%87%E6%9D%A1%23&Refer=top) `7.2M 🔥`
 1. [李恩晒与都美竹刘美丽群聊记录](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E6%81%A9%E6%99%92%E4%B8%8E%E9%83%BD%E7%BE%8E%E7%AB%B9%E5%88%98%E7%BE%8E%E4%B8%BD%E7%BE%A4%E8%81%8A%E8%AE%B0%E5%BD%95%23&Refer=top) `6.1M 🔥`
 1. [阿富汗](https://s.weibo.com/weibo?q=%E9%98%BF%E5%AF%8C%E6%B1%97&Refer=top) `5.9M 🔥`
+1. [特朗普称中国正在笑话美国](https://s.weibo.com/weibo?q=%23%E7%89%B9%E6%9C%97%E6%99%AE%E7%A7%B0%E4%B8%AD%E5%9B%BD%E6%AD%A3%E5%9C%A8%E7%AC%91%E8%AF%9D%E7%BE%8E%E5%9B%BD%23&Refer=top) `5.6M 🔥`
 1. [支付宝小鸡](https://s.weibo.com/weibo?q=%E6%94%AF%E4%BB%98%E5%AE%9D%E5%B0%8F%E9%B8%A1&Refer=top) `4.4M 🔥`
 1. [杨幂被路人搭讪](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E5%B9%82%E8%A2%AB%E8%B7%AF%E4%BA%BA%E6%90%AD%E8%AE%AA%23&Refer=top) `4.0M 🔥`
 1. [叫了只炸鸡门店发现老鼠屎和蜘蛛网](https://s.weibo.com/weibo?q=%23%E5%8F%AB%E4%BA%86%E5%8F%AA%E7%82%B8%E9%B8%A1%E9%97%A8%E5%BA%97%E5%8F%91%E7%8E%B0%E8%80%81%E9%BC%A0%E5%B1%8E%E5%92%8C%E8%9C%98%E8%9B%9B%E7%BD%91%23&Refer=top) `3.7M 🔥`
@@ -16,7 +17,6 @@
 1. [双汇](https://s.weibo.com/weibo?q=%E5%8F%8C%E6%B1%87&Refer=top) `3.1M 🔥`
 1. [白宫承认大量武器落入塔利班之手](https://s.weibo.com/weibo?q=%23%E7%99%BD%E5%AE%AB%E6%89%BF%E8%AE%A4%E5%A4%A7%E9%87%8F%E6%AD%A6%E5%99%A8%E8%90%BD%E5%85%A5%E5%A1%94%E5%88%A9%E7%8F%AD%E4%B9%8B%E6%89%8B%23&Refer=top) `3.0M 🔥`
 1. [腾讯视频起诉抖音侵权索赔1亿](https://s.weibo.com/weibo?q=%E8%85%BE%E8%AE%AF%E8%A7%86%E9%A2%91%E8%B5%B7%E8%AF%89%E6%8A%96%E9%9F%B3%E4%BE%B5%E6%9D%83%E7%B4%A2%E8%B5%941%E4%BA%BF&Refer=top) `2.4M 🔥`
-1. [特朗普称中国正在笑话美国](https://s.weibo.com/weibo?q=%23%E7%89%B9%E6%9C%97%E6%99%AE%E7%A7%B0%E4%B8%AD%E5%9B%BD%E6%AD%A3%E5%9C%A8%E7%AC%91%E8%AF%9D%E7%BE%8E%E5%9B%BD%23&Refer=top) `2.4M 🔥`
 1. [杨洋以前的微博也太好笑了](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E6%B4%8B%E4%BB%A5%E5%89%8D%E7%9A%84%E5%BE%AE%E5%8D%9A%E4%B9%9F%E5%A4%AA%E5%A5%BD%E7%AC%91%E4%BA%86%23&Refer=top) `2.3M 🔥`
 1. [2人同桌饮酒分开后警车内又碰面](https://s.weibo.com/weibo?q=%232%E4%BA%BA%E5%90%8C%E6%A1%8C%E9%A5%AE%E9%85%92%E5%88%86%E5%BC%80%E5%90%8E%E8%AD%A6%E8%BD%A6%E5%86%85%E5%8F%88%E7%A2%B0%E9%9D%A2%23&Refer=top) `2.2M 🔥`
 1. [阿富汗将停止生产毒品](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E5%B0%86%E5%81%9C%E6%AD%A2%E7%94%9F%E4%BA%A7%E6%AF%92%E5%93%81%23&Refer=top) `2.1M 🔥`
@@ -47,17 +47,17 @@
 1. [第一视角看阿富汗人扒美国飞机](https://s.weibo.com/weibo?q=%23%E7%AC%AC%E4%B8%80%E8%A7%86%E8%A7%92%E7%9C%8B%E9%98%BF%E5%AF%8C%E6%B1%97%E4%BA%BA%E6%89%92%E7%BE%8E%E5%9B%BD%E9%A3%9E%E6%9C%BA%23&Refer=top) `950.7K 🔥`
 1. [美国国防部回应喀布尔机场惨案](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E5%9B%BD%E9%98%B2%E9%83%A8%E5%9B%9E%E5%BA%94%E5%96%80%E5%B8%83%E5%B0%94%E6%9C%BA%E5%9C%BA%E6%83%A8%E6%A1%88%23&Refer=top) `926.6K 🔥`
 1. [湖南卫视818晚会彩排](https://s.weibo.com/weibo?q=%23%E6%B9%96%E5%8D%97%E5%8D%AB%E8%A7%86818%E6%99%9A%E4%BC%9A%E5%BD%A9%E6%8E%92%23&Refer=top) `922.4K 🔥`
+1. [被年轻时的刘国梁帅到](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E5%B9%B4%E8%BD%BB%E6%97%B6%E7%9A%84%E5%88%98%E5%9B%BD%E6%A2%81%E5%B8%85%E5%88%B0%23&Refer=top) `920.9K 🔥`
 1. [2022年全国全面推行电子驾驶证](https://s.weibo.com/weibo?q=%232022%E5%B9%B4%E5%85%A8%E5%9B%BD%E5%85%A8%E9%9D%A2%E6%8E%A8%E8%A1%8C%E7%94%B5%E5%AD%90%E9%A9%BE%E9%A9%B6%E8%AF%81%23&Refer=top) `906.4K 🔥`
+1. [卜凡和坤音娱乐合约还未解除](https://s.weibo.com/weibo?q=%E5%8D%9C%E5%87%A1%E5%92%8C%E5%9D%A4%E9%9F%B3%E5%A8%B1%E4%B9%90%E5%90%88%E7%BA%A6%E8%BF%98%E6%9C%AA%E8%A7%A3%E9%99%A4&Refer=top) `898.4K 🔥`
 1. [王源刘宪华好巧你也在HOME](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E6%BA%90%E5%88%98%E5%AE%AA%E5%8D%8E%E5%A5%BD%E5%B7%A7%E4%BD%A0%E4%B9%9F%E5%9C%A8HOME%23&Refer=top) `872.6K 🔥`
 1. [杨幂闺蜜](https://s.weibo.com/weibo?q=%E6%9D%A8%E5%B9%82%E9%97%BA%E8%9C%9C&Refer=top) `862.8K 🔥`
 1. [大妈拒扫健康码还一巴掌抡倒防疫人员](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%A6%88%E6%8B%92%E6%89%AB%E5%81%A5%E5%BA%B7%E7%A0%81%E8%BF%98%E4%B8%80%E5%B7%B4%E6%8E%8C%E6%8A%A1%E5%80%92%E9%98%B2%E7%96%AB%E4%BA%BA%E5%91%98%23&Refer=top) `841.3K 🔥`
 1. [诗幂](https://s.weibo.com/weibo?q=%E8%AF%97%E5%B9%82&Refer=top) `834.3K 🔥`
 1. [颜怡颜悦双胞胎吐槽夫妻相处](https://s.weibo.com/weibo?q=%23%E9%A2%9C%E6%80%A1%E9%A2%9C%E6%82%A6%E5%8F%8C%E8%83%9E%E8%83%8E%E5%90%90%E6%A7%BD%E5%A4%AB%E5%A6%BB%E7%9B%B8%E5%A4%84%23&Refer=top) `830.7K 🔥`
 1. [上海浦东机场回应留学生排长队值机](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E6%B5%A6%E4%B8%9C%E6%9C%BA%E5%9C%BA%E5%9B%9E%E5%BA%94%E7%95%99%E5%AD%A6%E7%94%9F%E6%8E%92%E9%95%BF%E9%98%9F%E5%80%BC%E6%9C%BA%23&Refer=top) `825.2K 🔥`
-1. [魏大勋感谢爸爸在自己要放弃时说坚持](https://s.weibo.com/weibo?q=%23%E9%AD%8F%E5%A4%A7%E5%8B%8B%E6%84%9F%E8%B0%A2%E7%88%B8%E7%88%B8%E5%9C%A8%E8%87%AA%E5%B7%B1%E8%A6%81%E6%94%BE%E5%BC%83%E6%97%B6%E8%AF%B4%E5%9D%9A%E6%8C%81%23&Refer=top) `818.1K 🔥`
-1. [北京义务教育阶段双减措施](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E4%B9%89%E5%8A%A1%E6%95%99%E8%82%B2%E9%98%B6%E6%AE%B5%E5%8F%8C%E5%87%8F%E6%8E%AA%E6%96%BD%23&Refer=top) `814.1K 🔥`
 
-数据更新于 2021-08-18 14:11:17
+数据更新于 2021-08-18 14:34:47
 
 <!-- END -->
 
