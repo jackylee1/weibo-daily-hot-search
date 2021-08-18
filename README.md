@@ -22,6 +22,7 @@
 1. [小伙嫌女友管太严故意醉驾想坐牢](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E4%BC%99%E5%AB%8C%E5%A5%B3%E5%8F%8B%E7%AE%A1%E5%A4%AA%E4%B8%A5%E6%95%85%E6%84%8F%E9%86%89%E9%A9%BE%E6%83%B3%E5%9D%90%E7%89%A2%23&Refer=top) `1.3M 🔥`
 1. [12岁杨洋的高质量洗袜子诀窍](https://s.weibo.com/weibo?q=%2312%E5%B2%81%E6%9D%A8%E6%B4%8B%E7%9A%84%E9%AB%98%E8%B4%A8%E9%87%8F%E6%B4%97%E8%A2%9C%E5%AD%90%E8%AF%80%E7%AA%8D%23&Refer=top) `1.2M 🔥`
 1. [阿富汗女导演街头疾呼逃离塔利班](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E5%A5%B3%E5%AF%BC%E6%BC%94%E8%A1%97%E5%A4%B4%E7%96%BE%E5%91%BC%E9%80%83%E7%A6%BB%E5%A1%94%E5%88%A9%E7%8F%AD%23&Refer=top) `1.1M 🔥`
+1. [美国冻结阿富汗央行近95亿美元资产](https://s.weibo.com/weibo?q=%E7%BE%8E%E5%9B%BD%E5%86%BB%E7%BB%93%E9%98%BF%E5%AF%8C%E6%B1%97%E5%A4%AE%E8%A1%8C%E8%BF%9195%E4%BA%BF%E7%BE%8E%E5%85%83%E8%B5%84%E4%BA%A7&Refer=top) `1.1M 🔥`
 1. [两口子吵架孕妻被扔高速](https://s.weibo.com/weibo?q=%23%E4%B8%A4%E5%8F%A3%E5%AD%90%E5%90%B5%E6%9E%B6%E5%AD%95%E5%A6%BB%E8%A2%AB%E6%89%94%E9%AB%98%E9%80%9F%23&Refer=top) `1.1M 🔥`
 1. [中国大使要求刚方全力搜救](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%A4%A7%E4%BD%BF%E8%A6%81%E6%B1%82%E5%88%9A%E6%96%B9%E5%85%A8%E5%8A%9B%E6%90%9C%E6%95%91%23&Refer=top) `1.1M 🔥`
 1. [苏炳添首度发隔离日记](https://s.weibo.com/weibo?q=%23%E8%8B%8F%E7%82%B3%E6%B7%BB%E9%A6%96%E5%BA%A6%E5%8F%91%E9%9A%94%E7%A6%BB%E6%97%A5%E8%AE%B0%23&Refer=top) `1.0M 🔥`
@@ -33,7 +34,6 @@
 1. [刘烨妻子原来这么厉害](https://s.weibo.com/weibo?q=%23%E5%88%98%E7%83%A8%E5%A6%BB%E5%AD%90%E5%8E%9F%E6%9D%A5%E8%BF%99%E4%B9%88%E5%8E%89%E5%AE%B3%23&Refer=top) `902.7K 🔥`
 1. [月薪4万是种什么体验](https://s.weibo.com/weibo?q=%23%E6%9C%88%E8%96%AA4%E4%B8%87%E6%98%AF%E7%A7%8D%E4%BB%80%E4%B9%88%E4%BD%93%E9%AA%8C%23&Refer=top) `877.1K 🔥`
 1. [王源刘宪华好巧你也在HOME](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E6%BA%90%E5%88%98%E5%AE%AA%E5%8D%8E%E5%A5%BD%E5%B7%A7%E4%BD%A0%E4%B9%9F%E5%9C%A8HOME%23&Refer=top) `872.6K 🔥`
-1. [美国冻结阿富汗央行近95亿美元资产](https://s.weibo.com/weibo?q=%E7%BE%8E%E5%9B%BD%E5%86%BB%E7%BB%93%E9%98%BF%E5%AF%8C%E6%B1%97%E5%A4%AE%E8%A1%8C%E8%BF%9195%E4%BA%BF%E7%BE%8E%E5%85%83%E8%B5%84%E4%BA%A7&Refer=top) `871.1K 🔥`
 1. [大妈拒扫健康码还一巴掌抡倒防疫人员](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%A6%88%E6%8B%92%E6%89%AB%E5%81%A5%E5%BA%B7%E7%A0%81%E8%BF%98%E4%B8%80%E5%B7%B4%E6%8E%8C%E6%8A%A1%E5%80%92%E9%98%B2%E7%96%AB%E4%BA%BA%E5%91%98%23&Refer=top) `841.3K 🔥`
 1. [诗幂](https://s.weibo.com/weibo?q=%E8%AF%97%E5%B9%82&Refer=top) `834.3K 🔥`
 1. [上海浦东机场回应留学生排长队值机](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E6%B5%A6%E4%B8%9C%E6%9C%BA%E5%9C%BA%E5%9B%9E%E5%BA%94%E7%95%99%E5%AD%A6%E7%94%9F%E6%8E%92%E9%95%BF%E9%98%9F%E5%80%BC%E6%9C%BA%23&Refer=top) `825.2K 🔥`
@@ -51,13 +51,13 @@
 1. [航天员一周前已开始训练准备出舱](https://s.weibo.com/weibo?q=%23%E8%88%AA%E5%A4%A9%E5%91%98%E4%B8%80%E5%91%A8%E5%89%8D%E5%B7%B2%E5%BC%80%E5%A7%8B%E8%AE%AD%E7%BB%83%E5%87%86%E5%A4%87%E5%87%BA%E8%88%B1%23&Refer=top) `711.2K 🔥`
 1. [许昕马龙最近在看叛逆者](https://s.weibo.com/weibo?q=%E8%AE%B8%E6%98%95%E9%A9%AC%E9%BE%99%E6%9C%80%E8%BF%91%E5%9C%A8%E7%9C%8B%E5%8F%9B%E9%80%86%E8%80%85&Refer=top) `699.9K 🔥`
 1. [阿富汗总统到底多富有](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E6%80%BB%E7%BB%9F%E5%88%B0%E5%BA%95%E5%A4%9A%E5%AF%8C%E6%9C%89%23&Refer=top) `694.8K 🔥`
+1. [杨洋以前的微博也太好笑了](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E6%B4%8B%E4%BB%A5%E5%89%8D%E7%9A%84%E5%BE%AE%E5%8D%9A%E4%B9%9F%E5%A4%AA%E5%A5%BD%E7%AC%91%E4%BA%86%23&Refer=top) `686.8K 🔥`
 1. [杨洋于途同框](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E6%B4%8B%E4%BA%8E%E9%80%94%E5%90%8C%E6%A1%86%23&Refer=top) `686.4K 🔥`
 1. [无效上班](https://s.weibo.com/weibo?q=%E6%97%A0%E6%95%88%E4%B8%8A%E7%8F%AD&Refer=top) `677.9K 🔥`
 1. [周生如故定档](https://s.weibo.com/weibo?q=%23%E5%91%A8%E7%94%9F%E5%A6%82%E6%95%85%E5%AE%9A%E6%A1%A3%23&Refer=top) `672.2K 🔥`
 1. [5岁女孩用乒乓球精准打纸杯](https://s.weibo.com/weibo?q=%235%E5%B2%81%E5%A5%B3%E5%AD%A9%E7%94%A8%E4%B9%92%E4%B9%93%E7%90%83%E7%B2%BE%E5%87%86%E6%89%93%E7%BA%B8%E6%9D%AF%23&Refer=top) `650.2K 🔥`
-1. [杨笠 以后只调侃成功的男性](https://s.weibo.com/weibo?q=%E6%9D%A8%E7%AC%A0%20%E4%BB%A5%E5%90%8E%E5%8F%AA%E8%B0%83%E4%BE%83%E6%88%90%E5%8A%9F%E7%9A%84%E7%94%B7%E6%80%A7&Refer=top) `650.2K 🔥`
 
-数据更新于 2021-08-18 11:14:54
+数据更新于 2021-08-18 11:31:31
 
 <!-- END -->
 
