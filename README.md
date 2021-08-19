@@ -55,9 +55,9 @@
 1. [乔家的儿女小演员选角](https://s.weibo.com/weibo?q=%23%E4%B9%94%E5%AE%B6%E7%9A%84%E5%84%BF%E5%A5%B3%E5%B0%8F%E6%BC%94%E5%91%98%E9%80%89%E8%A7%92%23&Refer=top) `312.2K 🔥`
 1. [谢震业用腹肌开瓶盖](https://s.weibo.com/weibo?q=%23%E8%B0%A2%E9%9C%87%E4%B8%9A%E7%94%A8%E8%85%B9%E8%82%8C%E5%BC%80%E7%93%B6%E7%9B%96%23&Refer=top) `306.6K 🔥`
 1. [余生请多指教四季概念篇预告](https://s.weibo.com/weibo?q=%23%E4%BD%99%E7%94%9F%E8%AF%B7%E5%A4%9A%E6%8C%87%E6%95%99%E5%9B%9B%E5%AD%A3%E6%A6%82%E5%BF%B5%E7%AF%87%E9%A2%84%E5%91%8A%23&Refer=top) `300.8K 🔥`
-1. [机智张声明](https://s.weibo.com/weibo?q=%E6%9C%BA%E6%99%BA%E5%BC%A0%E5%A3%B0%E6%98%8E&Refer=top) `287.3K 🔥`
+1. [RNG LNG](https://s.weibo.com/weibo?q=RNG%20LNG&Refer=top) `298.5K 🔥`
 
-数据更新于 2021-08-20 07:15:27
+数据更新于 2021-08-20 07:27:19
 
 <!-- END -->
 
