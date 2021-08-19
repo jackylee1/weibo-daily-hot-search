@@ -26,6 +26,7 @@
 1. [巴基斯坦女子遭400名男性集体性骚扰](https://s.weibo.com/weibo?q=%23%E5%B7%B4%E5%9F%BA%E6%96%AF%E5%9D%A6%E5%A5%B3%E5%AD%90%E9%81%AD400%E5%90%8D%E7%94%B7%E6%80%A7%E9%9B%86%E4%BD%93%E6%80%A7%E9%AA%9A%E6%89%B0%23&Refer=top) `2.6M 🔥`
 1. [拜登支持率降至上任以来最低](https://s.weibo.com/weibo?q=%23%E6%8B%9C%E7%99%BB%E6%94%AF%E6%8C%81%E7%8E%87%E9%99%8D%E8%87%B3%E4%B8%8A%E4%BB%BB%E4%BB%A5%E6%9D%A5%E6%9C%80%E4%BD%8E%23&Refer=top) `2.5M 🔥`
 1. [披荆斩棘的姐姐们颜值有多绝](https://s.weibo.com/weibo?q=%23%E6%8A%AB%E8%8D%86%E6%96%A9%E6%A3%98%E7%9A%84%E5%A7%90%E5%A7%90%E4%BB%AC%E9%A2%9C%E5%80%BC%E6%9C%89%E5%A4%9A%E7%BB%9D%23&Refer=top) `2.5M 🔥`
+1. [塔利班宣布成立阿富汗伊斯兰酋长国](https://s.weibo.com/weibo?q=%23%E5%A1%94%E5%88%A9%E7%8F%AD%E5%AE%A3%E5%B8%83%E6%88%90%E7%AB%8B%E9%98%BF%E5%AF%8C%E6%B1%97%E4%BC%8A%E6%96%AF%E5%85%B0%E9%85%8B%E9%95%BF%E5%9B%BD%23&Refer=top) `2.5M 🔥`
 1. [谢晖因酒后失言被停职](https://s.weibo.com/weibo?q=%23%E8%B0%A2%E6%99%96%E5%9B%A0%E9%85%92%E5%90%8E%E5%A4%B1%E8%A8%80%E8%A2%AB%E5%81%9C%E8%81%8C%23&Refer=top) `2.5M 🔥`
 1. [原来谈恋爱还可以这样](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E8%B0%88%E6%81%8B%E7%88%B1%E8%BF%98%E5%8F%AF%E4%BB%A5%E8%BF%99%E6%A0%B7%23&Refer=top) `2.4M 🔥`
 1. [多款追星应用下架](https://s.weibo.com/weibo?q=%23%E5%A4%9A%E6%AC%BE%E8%BF%BD%E6%98%9F%E5%BA%94%E7%94%A8%E4%B8%8B%E6%9E%B6%23&Refer=top) `2.2M 🔥`
@@ -37,7 +38,6 @@
 1. [斯嘉丽约翰逊生下二胎](https://s.weibo.com/weibo?q=%23%E6%96%AF%E5%98%89%E4%B8%BD%E7%BA%A6%E7%BF%B0%E9%80%8A%E7%94%9F%E4%B8%8B%E4%BA%8C%E8%83%8E%23&Refer=top) `1.9M 🔥`
 1. [毛阿敏 跑调](https://s.weibo.com/weibo?q=%E6%AF%9B%E9%98%BF%E6%95%8F%20%E8%B7%91%E8%B0%83&Refer=top) `1.8M 🔥`
 1. [罗悦嘉](https://s.weibo.com/weibo?q=%E7%BD%97%E6%82%A6%E5%98%89&Refer=top) `1.8M 🔥`
-1. [塔利班宣布成立阿富汗伊斯兰酋长国](https://s.weibo.com/weibo?q=%23%E5%A1%94%E5%88%A9%E7%8F%AD%E5%AE%A3%E5%B8%83%E6%88%90%E7%AB%8B%E9%98%BF%E5%AF%8C%E6%B1%97%E4%BC%8A%E6%96%AF%E5%85%B0%E9%85%8B%E9%95%BF%E5%9B%BD%23&Refer=top) `1.8M 🔥`
 1. [余生请多指教心动轨迹海报](https://s.weibo.com/weibo?q=%23%E4%BD%99%E7%94%9F%E8%AF%B7%E5%A4%9A%E6%8C%87%E6%95%99%E5%BF%83%E5%8A%A8%E8%BD%A8%E8%BF%B9%E6%B5%B7%E6%8A%A5%23&Refer=top) `1.7M 🔥`
 1. [虞书欣 甜辣](https://s.weibo.com/weibo?q=%E8%99%9E%E4%B9%A6%E6%AC%A3%20%E7%94%9C%E8%BE%A3&Refer=top) `1.7M 🔥`
 1. [银行职工嫌烦卸载反诈APP后被骗](https://s.weibo.com/weibo?q=%23%E9%93%B6%E8%A1%8C%E8%81%8C%E5%B7%A5%E5%AB%8C%E7%83%A6%E5%8D%B8%E8%BD%BD%E5%8F%8D%E8%AF%88APP%E5%90%8E%E8%A2%AB%E9%AA%97%23&Refer=top) `1.5M 🔥`
@@ -57,7 +57,7 @@
 1. [李云迪 大家对我哪里惊奇](https://s.weibo.com/weibo?q=%E6%9D%8E%E4%BA%91%E8%BF%AA%20%E5%A4%A7%E5%AE%B6%E5%AF%B9%E6%88%91%E5%93%AA%E9%87%8C%E6%83%8A%E5%A5%87&Refer=top) `1.2M 🔥`
 1. [张艺谋参演我和我的父辈](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%89%BA%E8%B0%8B%E5%8F%82%E6%BC%94%E6%88%91%E5%92%8C%E6%88%91%E7%9A%84%E7%88%B6%E8%BE%88%23&Refer=top) `1.2M 🔥`
 
-数据更新于 2021-08-19 16:23:10
+数据更新于 2021-08-19 16:36:20
 
 <!-- END -->
 
