@@ -43,6 +43,7 @@
 1. [把科目一搞惊悚了](https://s.weibo.com/weibo?q=%23%E6%8A%8A%E7%A7%91%E7%9B%AE%E4%B8%80%E6%90%9E%E6%83%8A%E6%82%9A%E4%BA%86%23&Refer=top) `1.3M 🔥`
 1. [湖南卫视官宣余生](https://s.weibo.com/weibo?q=%23%E6%B9%96%E5%8D%97%E5%8D%AB%E8%A7%86%E5%AE%98%E5%AE%A3%E4%BD%99%E7%94%9F%23&Refer=top) `1.3M 🔥`
 1. [江西警方提醒不要传播未成年人霸凌视频](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%A5%BF%E8%AD%A6%E6%96%B9%E6%8F%90%E9%86%92%E4%B8%8D%E8%A6%81%E4%BC%A0%E6%92%AD%E6%9C%AA%E6%88%90%E5%B9%B4%E4%BA%BA%E9%9C%B8%E5%87%8C%E8%A7%86%E9%A2%91%23&Refer=top) `1.3M 🔥`
+1. [塔利班称阿富汗不会是民主国家](https://s.weibo.com/weibo?q=%23%E5%A1%94%E5%88%A9%E7%8F%AD%E7%A7%B0%E9%98%BF%E5%AF%8C%E6%B1%97%E4%B8%8D%E4%BC%9A%E6%98%AF%E6%B0%91%E4%B8%BB%E5%9B%BD%E5%AE%B6%23&Refer=top) `1.3M 🔥`
 1. [孟晚舟引渡案将于10月21日裁决](https://s.weibo.com/weibo?q=%23%E5%AD%9F%E6%99%9A%E8%88%9F%E5%BC%95%E6%B8%A1%E6%A1%88%E5%B0%86%E4%BA%8E10%E6%9C%8821%E6%97%A5%E8%A3%81%E5%86%B3%23&Refer=top) `1.3M 🔥`
 1. [西藏和平解放70周年](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E8%97%8F%E5%92%8C%E5%B9%B3%E8%A7%A3%E6%94%BE70%E5%91%A8%E5%B9%B4%23&Refer=top) `1.3M 🔥`
 1. [刘翔同名嫌疑犯逃窜几里没跑过民警](https://s.weibo.com/weibo?q=%23%E5%88%98%E7%BF%94%E5%90%8C%E5%90%8D%E5%AB%8C%E7%96%91%E7%8A%AF%E9%80%83%E7%AA%9C%E5%87%A0%E9%87%8C%E6%B2%A1%E8%B7%91%E8%BF%87%E6%B0%91%E8%AD%A6%23&Refer=top) `1.3M 🔥`
@@ -55,9 +56,8 @@
 1. [被误以为给领导鞠躬](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E8%AF%AF%E4%BB%A5%E4%B8%BA%E7%BB%99%E9%A2%86%E5%AF%BC%E9%9E%A0%E8%BA%AC%23&Refer=top) `1.1M 🔥`
 1. [关晓彤舞台是什么魔鬼特效](https://s.weibo.com/weibo?q=%E5%85%B3%E6%99%93%E5%BD%A4%E8%88%9E%E5%8F%B0%E6%98%AF%E4%BB%80%E4%B9%88%E9%AD%94%E9%AC%BC%E7%89%B9%E6%95%88&Refer=top) `1.1M 🔥`
 1. [南京今天起实现全域低风险区](https://s.weibo.com/weibo?q=%23%E5%8D%97%E4%BA%AC%E4%BB%8A%E5%A4%A9%E8%B5%B7%E5%AE%9E%E7%8E%B0%E5%85%A8%E5%9F%9F%E4%BD%8E%E9%A3%8E%E9%99%A9%E5%8C%BA%23&Refer=top) `1.1M 🔥`
-1. [杨洋坐腿抱太甜了](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E6%B4%8B%E5%9D%90%E8%85%BF%E6%8A%B1%E5%A4%AA%E7%94%9C%E4%BA%86%23&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-08-19 15:19:17
+数据更新于 2021-08-19 15:28:54
 
 <!-- END -->
 
