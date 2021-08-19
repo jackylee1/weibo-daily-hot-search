@@ -17,6 +17,7 @@
 1. [阿富汗总统被曝带走1.69亿美元](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E6%80%BB%E7%BB%9F%E8%A2%AB%E6%9B%9D%E5%B8%A6%E8%B5%B01.69%E4%BA%BF%E7%BE%8E%E5%85%83%23&Refer=top) `4.4M 🔥`
 1. [塔利班士兵纵火焚烧游乐园](https://s.weibo.com/weibo?q=%23%E5%A1%94%E5%88%A9%E7%8F%AD%E5%A3%AB%E5%85%B5%E7%BA%B5%E7%81%AB%E7%84%9A%E7%83%A7%E6%B8%B8%E4%B9%90%E5%9B%AD%23&Refer=top) `4.1M 🔥`
 1. [孟子义嗑到真的了](https://s.weibo.com/weibo?q=%23%E5%AD%9F%E5%AD%90%E4%B9%89%E5%97%91%E5%88%B0%E7%9C%9F%E7%9A%84%E4%BA%86%23&Refer=top) `3.9M 🔥`
+1. [千叶真一去世](https://s.weibo.com/weibo?q=%23%E5%8D%83%E5%8F%B6%E7%9C%9F%E4%B8%80%E5%8E%BB%E4%B8%96%23&Refer=top) `3.8M 🔥`
 1. [KK 很抱歉让大家这么生气](https://s.weibo.com/weibo?q=KK%20%E5%BE%88%E6%8A%B1%E6%AD%89%E8%AE%A9%E5%A4%A7%E5%AE%B6%E8%BF%99%E4%B9%88%E7%94%9F%E6%B0%94&Refer=top) `3.6M 🔥`
 1. [任嘉伦 我不说了](https://s.weibo.com/weibo?q=%E4%BB%BB%E5%98%89%E4%BC%A6%20%E6%88%91%E4%B8%8D%E8%AF%B4%E4%BA%86&Refer=top) `3.6M 🔥`
 1. [复旦医学博士弃高薪回乡的1000天](https://s.weibo.com/weibo?q=%23%E5%A4%8D%E6%97%A6%E5%8C%BB%E5%AD%A6%E5%8D%9A%E5%A3%AB%E5%BC%83%E9%AB%98%E8%96%AA%E5%9B%9E%E4%B9%A1%E7%9A%841000%E5%A4%A9%23&Refer=top) `3.2M 🔥`
@@ -34,15 +35,14 @@
 1. [谢晖因酒后失言被停职](https://s.weibo.com/weibo?q=%23%E8%B0%A2%E6%99%96%E5%9B%A0%E9%85%92%E5%90%8E%E5%A4%B1%E8%A8%80%E8%A2%AB%E5%81%9C%E8%81%8C%23&Refer=top) `2.5M 🔥`
 1. [沈月演技](https://s.weibo.com/weibo?q=%23%E6%B2%88%E6%9C%88%E6%BC%94%E6%8A%80%23&Refer=top) `2.4M 🔥`
 1. [原来谈恋爱还可以这样](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E8%B0%88%E6%81%8B%E7%88%B1%E8%BF%98%E5%8F%AF%E4%BB%A5%E8%BF%99%E6%A0%B7%23&Refer=top) `2.4M 🔥`
-1. [千叶真一去世](https://s.weibo.com/weibo?q=%23%E5%8D%83%E5%8F%B6%E7%9C%9F%E4%B8%80%E5%8E%BB%E4%B8%96%23&Refer=top) `2.4M 🔥`
 1. [睡眠软件凌晨录到不明声音](https://s.weibo.com/weibo?q=%23%E7%9D%A1%E7%9C%A0%E8%BD%AF%E4%BB%B6%E5%87%8C%E6%99%A8%E5%BD%95%E5%88%B0%E4%B8%8D%E6%98%8E%E5%A3%B0%E9%9F%B3%23&Refer=top) `2.4M 🔥`
 1. [苹果将在中国生产AirPods3](https://s.weibo.com/weibo?q=%23%E8%8B%B9%E6%9E%9C%E5%B0%86%E5%9C%A8%E4%B8%AD%E5%9B%BD%E7%94%9F%E4%BA%A7AirPods3%23&Refer=top) `2.3M 🔥`
 1. [多款追星应用下架](https://s.weibo.com/weibo?q=%23%E5%A4%9A%E6%AC%BE%E8%BF%BD%E6%98%9F%E5%BA%94%E7%94%A8%E4%B8%8B%E6%9E%B6%23&Refer=top) `2.2M 🔥`
 1. [阿富汗知名女主播被禁止参加工作](https://s.weibo.com/weibo?q=%E9%98%BF%E5%AF%8C%E6%B1%97%E7%9F%A5%E5%90%8D%E5%A5%B3%E4%B8%BB%E6%92%AD%E8%A2%AB%E7%A6%81%E6%AD%A2%E5%8F%82%E5%8A%A0%E5%B7%A5%E4%BD%9C&Refer=top) `2.2M 🔥`
 1. [日本疫情恶化已难以遏制](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E7%96%AB%E6%83%85%E6%81%B6%E5%8C%96%E5%B7%B2%E9%9A%BE%E4%BB%A5%E9%81%8F%E5%88%B6%23&Refer=top) `2.2M 🔥`
 1. [女子女厕更衣遭男童闯入反被怼](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E5%A5%B3%E5%8E%95%E6%9B%B4%E8%A1%A3%E9%81%AD%E7%94%B7%E7%AB%A5%E9%97%AF%E5%85%A5%E5%8F%8D%E8%A2%AB%E6%80%BC%23&Refer=top) `2.1M 🔥`
+1. [五星连珠](https://s.weibo.com/weibo?q=%E4%BA%94%E6%98%9F%E8%BF%9E%E7%8F%A0&Refer=top) `2.1M 🔥`
 1. [官方通报俩女生斑马线上爬行拍照](https://s.weibo.com/weibo?q=%E5%AE%98%E6%96%B9%E9%80%9A%E6%8A%A5%E4%BF%A9%E5%A5%B3%E7%94%9F%E6%96%91%E9%A9%AC%E7%BA%BF%E4%B8%8A%E7%88%AC%E8%A1%8C%E6%8B%8D%E7%85%A7&Refer=top) `2.0M 🔥`
-1. [五星连珠](https://s.weibo.com/weibo?q=%E4%BA%94%E6%98%9F%E8%BF%9E%E7%8F%A0&Refer=top) `2.0M 🔥`
 1. [95花事业心](https://s.weibo.com/weibo?q=%2395%E8%8A%B1%E4%BA%8B%E4%B8%9A%E5%BF%83%23&Refer=top) `2.0M 🔥`
 1. [华为加拿大公司回应孟晚舟案](https://s.weibo.com/weibo?q=%23%E5%8D%8E%E4%B8%BA%E5%8A%A0%E6%8B%BF%E5%A4%A7%E5%85%AC%E5%8F%B8%E5%9B%9E%E5%BA%94%E5%AD%9F%E6%99%9A%E8%88%9F%E6%A1%88%23&Refer=top) `2.0M 🔥`
 1. [嗯的读音是ng](https://s.weibo.com/weibo?q=%23%E5%97%AF%E7%9A%84%E8%AF%BB%E9%9F%B3%E6%98%AFng%23&Refer=top) `1.9M 🔥`
@@ -57,7 +57,7 @@
 1. [虞书欣 甜辣](https://s.weibo.com/weibo?q=%E8%99%9E%E4%B9%A6%E6%AC%A3%20%E7%94%9C%E8%BE%A3&Refer=top) `1.7M 🔥`
 1. [撒贝宁复刻大学毕业找工作穿着](https://s.weibo.com/weibo?q=%23%E6%92%92%E8%B4%9D%E5%AE%81%E5%A4%8D%E5%88%BB%E5%A4%A7%E5%AD%A6%E6%AF%95%E4%B8%9A%E6%89%BE%E5%B7%A5%E4%BD%9C%E7%A9%BF%E7%9D%80%23&Refer=top) `1.5M 🔥`
 
-数据更新于 2021-08-19 21:51:51
+数据更新于 2021-08-19 21:58:06
 
 <!-- END -->
 
