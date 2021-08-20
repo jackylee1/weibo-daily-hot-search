@@ -8,8 +8,8 @@
 
 1. [呷哺呷哺决定关闭200家门店](https://s.weibo.com/weibo?q=%23%E5%91%B7%E5%93%BA%E5%91%B7%E5%93%BA%E5%86%B3%E5%AE%9A%E5%85%B3%E9%97%AD200%E5%AE%B6%E9%97%A8%E5%BA%97%23&Refer=top) `6.2M 🔥`
 1. [中秋放假3天需调休](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E7%A7%8B%E6%94%BE%E5%81%873%E5%A4%A9%E9%9C%80%E8%B0%83%E4%BC%91%23&Refer=top) `5.3M 🔥`
+1. [言承旭 不要再跟我讲好听话](https://s.weibo.com/weibo?q=%E8%A8%80%E6%89%BF%E6%97%AD%20%E4%B8%8D%E8%A6%81%E5%86%8D%E8%B7%9F%E6%88%91%E8%AE%B2%E5%A5%BD%E5%90%AC%E8%AF%9D&Refer=top) `5.0M 🔥`
 1. [聂海胜刘伯明成功出舱](https://s.weibo.com/weibo?q=%23%E8%81%82%E6%B5%B7%E8%83%9C%E5%88%98%E4%BC%AF%E6%98%8E%E6%88%90%E5%8A%9F%E5%87%BA%E8%88%B1%23&Refer=top) `4.7M 🔥`
-1. [言承旭 不要再跟我讲好听话](https://s.weibo.com/weibo?q=%E8%A8%80%E6%89%BF%E6%97%AD%20%E4%B8%8D%E8%A6%81%E5%86%8D%E8%B7%9F%E6%88%91%E8%AE%B2%E5%A5%BD%E5%90%AC%E8%AF%9D&Refer=top) `4.3M 🔥`
 1. [腾讯抖音被强制执行](https://s.weibo.com/weibo?q=%23%E8%85%BE%E8%AE%AF%E6%8A%96%E9%9F%B3%E8%A2%AB%E5%BC%BA%E5%88%B6%E6%89%A7%E8%A1%8C%23&Refer=top) `4.1M 🔥`
 1. [优酷下架山河令](https://s.weibo.com/weibo?q=%E4%BC%98%E9%85%B7%E4%B8%8B%E6%9E%B6%E5%B1%B1%E6%B2%B3%E4%BB%A4&Refer=top) `3.2M 🔥`
 1. [岳父杀害女婿一家案再审开庭](https://s.weibo.com/weibo?q=%23%E5%B2%B3%E7%88%B6%E6%9D%80%E5%AE%B3%E5%A5%B3%E5%A9%BF%E4%B8%80%E5%AE%B6%E6%A1%88%E5%86%8D%E5%AE%A1%E5%BC%80%E5%BA%AD%23&Refer=top) `3.0M 🔥`
@@ -57,7 +57,7 @@
 1. [饭店趁客人喝醉偷偷加单](https://s.weibo.com/weibo?q=%23%E9%A5%AD%E5%BA%97%E8%B6%81%E5%AE%A2%E4%BA%BA%E5%96%9D%E9%86%89%E5%81%B7%E5%81%B7%E5%8A%A0%E5%8D%95%23&Refer=top) `958.7K 🔥`
 1. [桃夭下线](https://s.weibo.com/weibo?q=%23%E6%A1%83%E5%A4%AD%E4%B8%8B%E7%BA%BF%23&Refer=top) `947.1K 🔥`
 
-数据更新于 2021-08-20 15:54:58
+数据更新于 2021-08-20 16:03:08
 
 <!-- END -->
 
