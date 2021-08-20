@@ -8,6 +8,7 @@
 
 1. [中秋放假3天需调休](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E7%A7%8B%E6%94%BE%E5%81%873%E5%A4%A9%E9%9C%80%E8%B0%83%E4%BC%91%23&Refer=top) `5.3M 🔥`
 1. [优酷下架山河令](https://s.weibo.com/weibo?q=%E4%BC%98%E9%85%B7%E4%B8%8B%E6%9E%B6%E5%B1%B1%E6%B2%B3%E4%BB%A4&Refer=top) `3.2M 🔥`
+1. [岳父杀害女婿一家案再审开庭](https://s.weibo.com/weibo?q=%23%E5%B2%B3%E7%88%B6%E6%9D%80%E5%AE%B3%E5%A5%B3%E5%A9%BF%E4%B8%80%E5%AE%B6%E6%A1%88%E5%86%8D%E5%AE%A1%E5%BC%80%E5%BA%AD%23&Refer=top) `2.7M 🔥`
 1. [千叶真一去世](https://s.weibo.com/weibo?q=%23%E5%8D%83%E5%8F%B6%E7%9C%9F%E4%B8%80%E5%8E%BB%E4%B8%96%23&Refer=top) `2.6M 🔥`
 1. [阿富汗总统女儿在美国住豪宅](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E6%80%BB%E7%BB%9F%E5%A5%B3%E5%84%BF%E5%9C%A8%E7%BE%8E%E5%9B%BD%E4%BD%8F%E8%B1%AA%E5%AE%85%23&Refer=top) `2.0M 🔥`
 1. [联合利华承认梦龙中外用料双标](https://s.weibo.com/weibo?q=%23%E8%81%94%E5%90%88%E5%88%A9%E5%8D%8E%E6%89%BF%E8%AE%A4%E6%A2%A6%E9%BE%99%E4%B8%AD%E5%A4%96%E7%94%A8%E6%96%99%E5%8F%8C%E6%A0%87%23&Refer=top) `1.7M 🔥`
@@ -15,8 +16,10 @@
 1. [孙兴叫贺芸妈](https://s.weibo.com/weibo?q=%23%E5%AD%99%E5%85%B4%E5%8F%AB%E8%B4%BA%E8%8A%B8%E5%A6%88%23&Refer=top) `1.6M 🔥`
 1. [五星连珠](https://s.weibo.com/weibo?q=%E4%BA%94%E6%98%9F%E8%BF%9E%E7%8F%A0&Refer=top) `1.5M 🔥`
 1. [和商家聊天不能乱发表情包](https://s.weibo.com/weibo?q=%23%E5%92%8C%E5%95%86%E5%AE%B6%E8%81%8A%E5%A4%A9%E4%B8%8D%E8%83%BD%E4%B9%B1%E5%8F%91%E8%A1%A8%E6%83%85%E5%8C%85%23&Refer=top) `1.4M 🔥`
+1. [费曼被吴镇宇贴吧拉黑](https://s.weibo.com/weibo?q=%23%E8%B4%B9%E6%9B%BC%E8%A2%AB%E5%90%B4%E9%95%87%E5%AE%87%E8%B4%B4%E5%90%A7%E6%8B%89%E9%BB%91%23&Refer=top) `1.2M 🔥`
 1. [塔利班领导人下令释放政治囚犯](https://s.weibo.com/weibo?q=%E5%A1%94%E5%88%A9%E7%8F%AD%E9%A2%86%E5%AF%BC%E4%BA%BA%E4%B8%8B%E4%BB%A4%E9%87%8A%E6%94%BE%E6%94%BF%E6%B2%BB%E5%9B%9A%E7%8A%AF&Refer=top) `1.2M 🔥`
-1. [费曼被吴镇宇贴吧拉黑](https://s.weibo.com/weibo?q=%23%E8%B4%B9%E6%9B%BC%E8%A2%AB%E5%90%B4%E9%95%87%E5%AE%87%E8%B4%B4%E5%90%A7%E6%8B%89%E9%BB%91%23&Refer=top) `1.1M 🔥`
+1. [英国首相因误判阿富汗局势挨批](https://s.weibo.com/weibo?q=%E8%8B%B1%E5%9B%BD%E9%A6%96%E7%9B%B8%E5%9B%A0%E8%AF%AF%E5%88%A4%E9%98%BF%E5%AF%8C%E6%B1%97%E5%B1%80%E5%8A%BF%E6%8C%A8%E6%89%B9&Refer=top) `1.1M 🔥`
+1. [一生一世](https://s.weibo.com/weibo?q=%E4%B8%80%E7%94%9F%E4%B8%80%E4%B8%96&Refer=top) `1.0M 🔥`
 1. [硬糖少女INTO1互换手势](https://s.weibo.com/weibo?q=%E7%A1%AC%E7%B3%96%E5%B0%91%E5%A5%B3INTO1%E4%BA%92%E6%8D%A2%E6%89%8B%E5%8A%BF&Refer=top) `1.0M 🔥`
 1. [沈月演技](https://s.weibo.com/weibo?q=%23%E6%B2%88%E6%9C%88%E6%BC%94%E6%8A%80%23&Refer=top) `1.0M 🔥`
 1. [薛梅尸体被发现](https://s.weibo.com/weibo?q=%23%E8%96%9B%E6%A2%85%E5%B0%B8%E4%BD%93%E8%A2%AB%E5%8F%91%E7%8E%B0%23&Refer=top) `1.0M 🔥`
@@ -38,6 +41,8 @@
 1. [小鸟溜进高铁从呼市直达北京](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E9%B8%9F%E6%BA%9C%E8%BF%9B%E9%AB%98%E9%93%81%E4%BB%8E%E5%91%BC%E5%B8%82%E7%9B%B4%E8%BE%BE%E5%8C%97%E4%BA%AC%23&Refer=top) `638.2K 🔥`
 1. [女生千万不要买的鞋](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E7%94%9F%E5%8D%83%E4%B8%87%E4%B8%8D%E8%A6%81%E4%B9%B0%E7%9A%84%E9%9E%8B%23&Refer=top) `620.3K 🔥`
 1. [郑州人民应对暴雨有多努力](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E4%BA%BA%E6%B0%91%E5%BA%94%E5%AF%B9%E6%9A%B4%E9%9B%A8%E6%9C%89%E5%A4%9A%E5%8A%AA%E5%8A%9B%23&Refer=top) `607.4K 🔥`
+1. [有种浪漫叫中国航天](https://s.weibo.com/weibo?q=%23%E6%9C%89%E7%A7%8D%E6%B5%AA%E6%BC%AB%E5%8F%AB%E4%B8%AD%E5%9B%BD%E8%88%AA%E5%A4%A9%23&Refer=top) `598.3K 🔥`
+1. [徐璐晒满屋子的礼服](https://s.weibo.com/weibo?q=%23%E5%BE%90%E7%92%90%E6%99%92%E6%BB%A1%E5%B1%8B%E5%AD%90%E7%9A%84%E7%A4%BC%E6%9C%8D%23&Refer=top) `590.3K 🔥`
 1. [AI换脸后的于正](https://s.weibo.com/weibo?q=AI%E6%8D%A2%E8%84%B8%E5%90%8E%E7%9A%84%E4%BA%8E%E6%AD%A3&Refer=top) `571.4K 🔥`
 1. [扫黑风暴](https://s.weibo.com/weibo?q=%E6%89%AB%E9%BB%91%E9%A3%8E%E6%9A%B4&Refer=top) `563.3K 🔥`
 1. [管泽元五杀](https://s.weibo.com/weibo?q=%23%E7%AE%A1%E6%B3%BD%E5%85%83%E4%BA%94%E6%9D%80%23&Refer=top) `541.9K 🔥`
@@ -45,19 +50,14 @@
 1. [总台CGTN专访阿富汗塔利班发言人](https://s.weibo.com/weibo?q=%23%E6%80%BB%E5%8F%B0CGTN%E4%B8%93%E8%AE%BF%E9%98%BF%E5%AF%8C%E6%B1%97%E5%A1%94%E5%88%A9%E7%8F%AD%E5%8F%91%E8%A8%80%E4%BA%BA%23&Refer=top) `519.0K 🔥`
 1. [杨倩全红婵商标注册申请被依法驳回](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E5%80%A9%E5%85%A8%E7%BA%A2%E5%A9%B5%E5%95%86%E6%A0%87%E6%B3%A8%E5%86%8C%E7%94%B3%E8%AF%B7%E8%A2%AB%E4%BE%9D%E6%B3%95%E9%A9%B3%E5%9B%9E%23&Refer=top) `519.0K 🔥`
 1. [早上只喝水不吃饭会有什么危害](https://s.weibo.com/weibo?q=%23%E6%97%A9%E4%B8%8A%E5%8F%AA%E5%96%9D%E6%B0%B4%E4%B8%8D%E5%90%83%E9%A5%AD%E4%BC%9A%E6%9C%89%E4%BB%80%E4%B9%88%E5%8D%B1%E5%AE%B3%23&Refer=top) `518.9K 🔥`
+1. [男子被拐21年拐卖者系父母熟人](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E8%A2%AB%E6%8B%9021%E5%B9%B4%E6%8B%90%E5%8D%96%E8%80%85%E7%B3%BB%E7%88%B6%E6%AF%8D%E7%86%9F%E4%BA%BA%23&Refer=top) `518.2K 🔥`
 1. [黄子韬劝粉丝玩游戏不要花钱](https://s.weibo.com/weibo?q=%23%E9%BB%84%E5%AD%90%E9%9F%AC%E5%8A%9D%E7%B2%89%E4%B8%9D%E7%8E%A9%E6%B8%B8%E6%88%8F%E4%B8%8D%E8%A6%81%E8%8A%B1%E9%92%B1%23&Refer=top) `514.7K 🔥`
-1. [徐璐晒满屋子的礼服](https://s.weibo.com/weibo?q=%23%E5%BE%90%E7%92%90%E6%99%92%E6%BB%A1%E5%B1%8B%E5%AD%90%E7%9A%84%E7%A4%BC%E6%9C%8D%23&Refer=top) `499.9K 🔥`
 1. [龚俊直播](https://s.weibo.com/weibo?q=%23%E9%BE%9A%E4%BF%8A%E7%9B%B4%E6%92%AD%23&Refer=top) `491.1K 🔥`
 1. [裴伟是内鬼吧](https://s.weibo.com/weibo?q=%E8%A3%B4%E4%BC%9F%E6%98%AF%E5%86%85%E9%AC%BC%E5%90%A7&Refer=top) `458.9K 🔥`
 1. [感受到中国邮政力量的瞬间](https://s.weibo.com/weibo?q=%23%E6%84%9F%E5%8F%97%E5%88%B0%E4%B8%AD%E5%9B%BD%E9%82%AE%E6%94%BF%E5%8A%9B%E9%87%8F%E7%9A%84%E7%9E%AC%E9%97%B4%23&Refer=top) `458.6K 🔥`
 1. [RNG LNG](https://s.weibo.com/weibo?q=RNG%20LNG&Refer=top) `457.3K 🔥`
-1. [国乒女队直播太好笑了](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E4%B9%92%E5%A5%B3%E9%98%9F%E7%9B%B4%E6%92%AD%E5%A4%AA%E5%A5%BD%E7%AC%91%E4%BA%86%23&Refer=top) `447.9K 🔥`
-1. [人类高质量男性粉丝群月收费25000元](https://s.weibo.com/weibo?q=%23%E4%BA%BA%E7%B1%BB%E9%AB%98%E8%B4%A8%E9%87%8F%E7%94%B7%E6%80%A7%E7%B2%89%E4%B8%9D%E7%BE%A4%E6%9C%88%E6%94%B6%E8%B4%B925000%E5%85%83%23&Refer=top) `447.6K 🔥`
-1. [王嘉尔演出服是自己剪的](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E5%98%89%E5%B0%94%E6%BC%94%E5%87%BA%E6%9C%8D%E6%98%AF%E8%87%AA%E5%B7%B1%E5%89%AA%E7%9A%84%23&Refer=top) `427.6K 🔥`
-1. [机智张声明](https://s.weibo.com/weibo?q=%E6%9C%BA%E6%99%BA%E5%BC%A0%E5%A3%B0%E6%98%8E&Refer=top) `420.8K 🔥`
-1. [听说你喜欢我开机](https://s.weibo.com/weibo?q=%23%E5%90%AC%E8%AF%B4%E4%BD%A0%E5%96%9C%E6%AC%A2%E6%88%91%E5%BC%80%E6%9C%BA%23&Refer=top) `420.0K 🔥`
 
-数据更新于 2021-08-20 08:45:27
+数据更新于 2021-08-20 09:40:30
 
 <!-- END -->
 
