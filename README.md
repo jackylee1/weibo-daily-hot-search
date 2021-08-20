@@ -57,7 +57,7 @@
 1. [塔利班领导人下令释放政治囚犯](https://s.weibo.com/weibo?q=%E5%A1%94%E5%88%A9%E7%8F%AD%E9%A2%86%E5%AF%BC%E4%BA%BA%E4%B8%8B%E4%BB%A4%E9%87%8A%E6%94%BE%E6%94%BF%E6%B2%BB%E5%9B%9A%E7%8A%AF&Refer=top) `1.2M 🔥`
 1. [江南百景图道歉](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E5%8D%97%E7%99%BE%E6%99%AF%E5%9B%BE%E9%81%93%E6%AD%89%23&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-08-20 19:02:09
+数据更新于 2021-08-20 19:02:39
 
 <!-- END -->
 
