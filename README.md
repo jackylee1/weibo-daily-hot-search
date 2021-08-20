@@ -15,13 +15,14 @@
 1. [林志炫李响争执](https://s.weibo.com/weibo?q=%23%E6%9E%97%E5%BF%97%E7%82%AB%E6%9D%8E%E5%93%8D%E4%BA%89%E6%89%A7%23&Refer=top) `2.6M 🔥`
 1. [千叶真一去世](https://s.weibo.com/weibo?q=%23%E5%8D%83%E5%8F%B6%E7%9C%9F%E4%B8%80%E5%8E%BB%E4%B8%96%23&Refer=top) `2.6M 🔥`
 1. [易烊千玺ELLE金九封面](https://s.weibo.com/weibo?q=%23%E6%98%93%E7%83%8A%E5%8D%83%E7%8E%BAELLE%E9%87%91%E4%B9%9D%E5%B0%81%E9%9D%A2%23&Refer=top) `2.5M 🔥`
+1. [钟南山称中国可建立有效的群体免疫](https://s.weibo.com/weibo?q=%23%E9%92%9F%E5%8D%97%E5%B1%B1%E7%A7%B0%E4%B8%AD%E5%9B%BD%E5%8F%AF%E5%BB%BA%E7%AB%8B%E6%9C%89%E6%95%88%E7%9A%84%E7%BE%A4%E4%BD%93%E5%85%8D%E7%96%AB%23&Refer=top) `2.5M 🔥`
+1. [赵文卓 社团不行可以街道](https://s.weibo.com/weibo?q=%E8%B5%B5%E6%96%87%E5%8D%93%20%E7%A4%BE%E5%9B%A2%E4%B8%8D%E8%A1%8C%E5%8F%AF%E4%BB%A5%E8%A1%97%E9%81%93&Refer=top) `2.5M 🔥`
 1. [名贵猫王后代医院体检被误做绝育](https://s.weibo.com/weibo?q=%23%E5%90%8D%E8%B4%B5%E7%8C%AB%E7%8E%8B%E5%90%8E%E4%BB%A3%E5%8C%BB%E9%99%A2%E4%BD%93%E6%A3%80%E8%A2%AB%E8%AF%AF%E5%81%9A%E7%BB%9D%E8%82%B2%23&Refer=top) `2.2M 🔥`
 1. [联合利华承认梦龙中外用料双标](https://s.weibo.com/weibo?q=%23%E8%81%94%E5%90%88%E5%88%A9%E5%8D%8E%E6%89%BF%E8%AE%A4%E6%A2%A6%E9%BE%99%E4%B8%AD%E5%A4%96%E7%94%A8%E6%96%99%E5%8F%8C%E6%A0%87%23&Refer=top) `2.1M 🔥`
 1. [我被霍格沃茨录取了](https://s.weibo.com/weibo?q=%23%E6%88%91%E8%A2%AB%E9%9C%8D%E6%A0%BC%E6%B2%83%E8%8C%A8%E5%BD%95%E5%8F%96%E4%BA%86%23&Refer=top) `2.1M 🔥`
 1. [费曼被吴镇宇贴吧拉黑](https://s.weibo.com/weibo?q=%23%E8%B4%B9%E6%9B%BC%E8%A2%AB%E5%90%B4%E9%95%87%E5%AE%87%E8%B4%B4%E5%90%A7%E6%8B%89%E9%BB%91%23&Refer=top) `2.0M 🔥`
 1. [阿富汗总统女儿在美国住豪宅](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E6%80%BB%E7%BB%9F%E5%A5%B3%E5%84%BF%E5%9C%A8%E7%BE%8E%E5%9B%BD%E4%BD%8F%E8%B1%AA%E5%AE%85%23&Refer=top) `2.0M 🔥`
 1. [阿富汗婴儿被从铁丝网上递进机场](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E5%A9%B4%E5%84%BF%E8%A2%AB%E4%BB%8E%E9%93%81%E4%B8%9D%E7%BD%91%E4%B8%8A%E9%80%92%E8%BF%9B%E6%9C%BA%E5%9C%BA%23&Refer=top) `2.0M 🔥`
-1. [赵文卓 社团不行可以街道](https://s.weibo.com/weibo?q=%E8%B5%B5%E6%96%87%E5%8D%93%20%E7%A4%BE%E5%9B%A2%E4%B8%8D%E8%A1%8C%E5%8F%AF%E4%BB%A5%E8%A1%97%E9%81%93&Refer=top) `1.8M 🔥`
 1. [导演李行去世](https://s.weibo.com/weibo?q=%E5%AF%BC%E6%BC%94%E6%9D%8E%E8%A1%8C%E5%8E%BB%E4%B8%96&Refer=top) `1.7M 🔥`
 1. [一生一世](https://s.weibo.com/weibo?q=%E4%B8%80%E7%94%9F%E4%B8%80%E4%B8%96&Refer=top) `1.7M 🔥`
 1. [披荆斩棘的哥哥](https://s.weibo.com/weibo?q=%E6%8A%AB%E8%8D%86%E6%96%A9%E6%A3%98%E7%9A%84%E5%93%A5%E5%93%A5&Refer=top) `1.6M 🔥`
@@ -33,8 +34,8 @@
 1. [五星连珠](https://s.weibo.com/weibo?q=%E4%BA%94%E6%98%9F%E8%BF%9E%E7%8F%A0&Refer=top) `1.5M 🔥`
 1. [被大湾区五人组笑死](https://s.weibo.com/weibo?q=%E8%A2%AB%E5%A4%A7%E6%B9%BE%E5%8C%BA%E4%BA%94%E4%BA%BA%E7%BB%84%E7%AC%91%E6%AD%BB&Refer=top) `1.5M 🔥`
 1. [和商家聊天不能乱发表情包](https://s.weibo.com/weibo?q=%23%E5%92%8C%E5%95%86%E5%AE%B6%E8%81%8A%E5%A4%A9%E4%B8%8D%E8%83%BD%E4%B9%B1%E5%8F%91%E8%A1%A8%E6%83%85%E5%8C%85%23&Refer=top) `1.4M 🔥`
-1. [美军2000多辆装甲车落入塔利班](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%86%9B2000%E5%A4%9A%E8%BE%86%E8%A3%85%E7%94%B2%E8%BD%A6%E8%90%BD%E5%85%A5%E5%A1%94%E5%88%A9%E7%8F%AD%23&Refer=top) `1.3M 🔥`
 1. [张晋好像在带孩子](https://s.weibo.com/weibo?q=%E5%BC%A0%E6%99%8B%E5%A5%BD%E5%83%8F%E5%9C%A8%E5%B8%A6%E5%AD%A9%E5%AD%90&Refer=top) `1.3M 🔥`
+1. [美军2000多辆装甲车落入塔利班](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%86%9B2000%E5%A4%9A%E8%BE%86%E8%A3%85%E7%94%B2%E8%BD%A6%E8%90%BD%E5%85%A5%E5%A1%94%E5%88%A9%E7%8F%AD%23&Refer=top) `1.3M 🔥`
 1. [实拍阿富汗机场悲痛一幕](https://s.weibo.com/weibo?q=%23%E5%AE%9E%E6%8B%8D%E9%98%BF%E5%AF%8C%E6%B1%97%E6%9C%BA%E5%9C%BA%E6%82%B2%E7%97%9B%E4%B8%80%E5%B9%95%23&Refer=top) `1.3M 🔥`
 1. [特朗普批评推特不对塔利班禁言](https://s.weibo.com/weibo?q=%23%E7%89%B9%E6%9C%97%E6%99%AE%E6%89%B9%E8%AF%84%E6%8E%A8%E7%89%B9%E4%B8%8D%E5%AF%B9%E5%A1%94%E5%88%A9%E7%8F%AD%E7%A6%81%E8%A8%80%23&Refer=top) `1.2M 🔥`
 1. [专家称关不掉的开机广告是网络牛皮癣](https://s.weibo.com/weibo?q=%E4%B8%93%E5%AE%B6%E7%A7%B0%E5%85%B3%E4%B8%8D%E6%8E%89%E7%9A%84%E5%BC%80%E6%9C%BA%E5%B9%BF%E5%91%8A%E6%98%AF%E7%BD%91%E7%BB%9C%E7%89%9B%E7%9A%AE%E7%99%A3&Refer=top) `1.2M 🔥`
@@ -54,10 +55,9 @@
 1. [小蝌蚪不想找妈妈了](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E8%9D%8C%E8%9A%AA%E4%B8%8D%E6%83%B3%E6%89%BE%E5%A6%88%E5%A6%88%E4%BA%86%23&Refer=top) `966.9K 🔥`
 1. [饭店趁客人喝醉偷偷加单](https://s.weibo.com/weibo?q=%23%E9%A5%AD%E5%BA%97%E8%B6%81%E5%AE%A2%E4%BA%BA%E5%96%9D%E9%86%89%E5%81%B7%E5%81%B7%E5%8A%A0%E5%8D%95%23&Refer=top) `958.7K 🔥`
 1. [桃夭下线](https://s.weibo.com/weibo?q=%23%E6%A1%83%E5%A4%AD%E4%B8%8B%E7%BA%BF%23&Refer=top) `947.1K 🔥`
-1. [台积电超腾讯成亚洲市值最高公司](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E7%A7%AF%E7%94%B5%E8%B6%85%E8%85%BE%E8%AE%AF%E6%88%90%E4%BA%9A%E6%B4%B2%E5%B8%82%E5%80%BC%E6%9C%80%E9%AB%98%E5%85%AC%E5%8F%B8%23&Refer=top) `930.4K 🔥`
-1. [刘雯路边随拍](https://s.weibo.com/weibo?q=%23%E5%88%98%E9%9B%AF%E8%B7%AF%E8%BE%B9%E9%9A%8F%E6%8B%8D%23&Refer=top) `876.9K 🔥`
+1. [都27了还没有头像自由](https://s.weibo.com/weibo?q=%23%E9%83%BD27%E4%BA%86%E8%BF%98%E6%B2%A1%E6%9C%89%E5%A4%B4%E5%83%8F%E8%87%AA%E7%94%B1%23&Refer=top) `930.7K 🔥`
 
-数据更新于 2021-08-20 15:06:19
+数据更新于 2021-08-20 15:21:53
 
 <!-- END -->
 
