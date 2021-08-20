@@ -31,8 +31,8 @@
 1. [阿富汗总统女儿在美国住豪宅](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E6%80%BB%E7%BB%9F%E5%A5%B3%E5%84%BF%E5%9C%A8%E7%BE%8E%E5%9B%BD%E4%BD%8F%E8%B1%AA%E5%AE%85%23&Refer=top) `2.0M 🔥`
 1. [阿富汗婴儿被从铁丝网上递进机场](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E5%A9%B4%E5%84%BF%E8%A2%AB%E4%BB%8E%E9%93%81%E4%B8%9D%E7%BD%91%E4%B8%8A%E9%80%92%E8%BF%9B%E6%9C%BA%E5%9C%BA%23&Refer=top) `2.0M 🔥`
 1. [操场埋尸案被害人家属将起诉电影片方](https://s.weibo.com/weibo?q=%23%E6%93%8D%E5%9C%BA%E5%9F%8B%E5%B0%B8%E6%A1%88%E8%A2%AB%E5%AE%B3%E4%BA%BA%E5%AE%B6%E5%B1%9E%E5%B0%86%E8%B5%B7%E8%AF%89%E7%94%B5%E5%BD%B1%E7%89%87%E6%96%B9%23&Refer=top) `1.9M 🔥`
+1. [阿富汗首位女省长已被塔利班逮捕](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E9%A6%96%E4%BD%8D%E5%A5%B3%E7%9C%81%E9%95%BF%E5%B7%B2%E8%A2%AB%E5%A1%94%E5%88%A9%E7%8F%AD%E9%80%AE%E6%8D%95%23&Refer=top) `1.8M 🔥`
 1. [导演李行去世](https://s.weibo.com/weibo?q=%E5%AF%BC%E6%BC%94%E6%9D%8E%E8%A1%8C%E5%8E%BB%E4%B8%96&Refer=top) `1.7M 🔥`
-1. [阿富汗首位女省长已被塔利班逮捕](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E9%A6%96%E4%BD%8D%E5%A5%B3%E7%9C%81%E9%95%BF%E5%B7%B2%E8%A2%AB%E5%A1%94%E5%88%A9%E7%8F%AD%E9%80%AE%E6%8D%95%23&Refer=top) `1.7M 🔥`
 1. [房产中介有望被取消](https://s.weibo.com/weibo?q=%23%E6%88%BF%E4%BA%A7%E4%B8%AD%E4%BB%8B%E6%9C%89%E6%9C%9B%E8%A2%AB%E5%8F%96%E6%B6%88%23&Refer=top) `1.7M 🔥`
 1. [一生一世](https://s.weibo.com/weibo?q=%E4%B8%80%E7%94%9F%E4%B8%80%E4%B8%96&Refer=top) `1.7M 🔥`
 1. [披荆斩棘的哥哥](https://s.weibo.com/weibo?q=%E6%8A%AB%E8%8D%86%E6%96%A9%E6%A3%98%E7%9A%84%E5%93%A5%E5%93%A5&Refer=top) `1.6M 🔥`
@@ -57,7 +57,7 @@
 1. [专家称关不掉的开机广告是网络牛皮癣](https://s.weibo.com/weibo?q=%E4%B8%93%E5%AE%B6%E7%A7%B0%E5%85%B3%E4%B8%8D%E6%8E%89%E7%9A%84%E5%BC%80%E6%9C%BA%E5%B9%BF%E5%91%8A%E6%98%AF%E7%BD%91%E7%BB%9C%E7%89%9B%E7%9A%AE%E7%99%A3&Refer=top) `1.2M 🔥`
 1. [李承铉的共情能力](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E6%89%BF%E9%93%89%E7%9A%84%E5%85%B1%E6%83%85%E8%83%BD%E5%8A%9B%23&Refer=top) `1.2M 🔥`
 
-数据更新于 2021-08-20 19:26:53
+数据更新于 2021-08-20 19:33:14
 
 <!-- END -->
 
