@@ -22,6 +22,7 @@
 1. [名贵猫王后代医院体检被误做绝育](https://s.weibo.com/weibo?q=%23%E5%90%8D%E8%B4%B5%E7%8C%AB%E7%8E%8B%E5%90%8E%E4%BB%A3%E5%8C%BB%E9%99%A2%E4%BD%93%E6%A3%80%E8%A2%AB%E8%AF%AF%E5%81%9A%E7%BB%9D%E8%82%B2%23&Refer=top) `2.2M 🔥`
 1. [联合利华承认梦龙中外用料双标](https://s.weibo.com/weibo?q=%23%E8%81%94%E5%90%88%E5%88%A9%E5%8D%8E%E6%89%BF%E8%AE%A4%E6%A2%A6%E9%BE%99%E4%B8%AD%E5%A4%96%E7%94%A8%E6%96%99%E5%8F%8C%E6%A0%87%23&Refer=top) `2.1M 🔥`
 1. [我被霍格沃茨录取了](https://s.weibo.com/weibo?q=%23%E6%88%91%E8%A2%AB%E9%9C%8D%E6%A0%BC%E6%B2%83%E8%8C%A8%E5%BD%95%E5%8F%96%E4%BA%86%23&Refer=top) `2.1M 🔥`
+1. [虎牙主播当众被打骨折](https://s.weibo.com/weibo?q=%23%E8%99%8E%E7%89%99%E4%B8%BB%E6%92%AD%E5%BD%93%E4%BC%97%E8%A2%AB%E6%89%93%E9%AA%A8%E6%8A%98%23&Refer=top) `2.1M 🔥`
 1. [费曼被吴镇宇贴吧拉黑](https://s.weibo.com/weibo?q=%23%E8%B4%B9%E6%9B%BC%E8%A2%AB%E5%90%B4%E9%95%87%E5%AE%87%E8%B4%B4%E5%90%A7%E6%8B%89%E9%BB%91%23&Refer=top) `2.0M 🔥`
 1. [阿富汗总统女儿在美国住豪宅](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E6%80%BB%E7%BB%9F%E5%A5%B3%E5%84%BF%E5%9C%A8%E7%BE%8E%E5%9B%BD%E4%BD%8F%E8%B1%AA%E5%AE%85%23&Refer=top) `2.0M 🔥`
 1. [阿富汗婴儿被从铁丝网上递进机场](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E5%A9%B4%E5%84%BF%E8%A2%AB%E4%BB%8E%E9%93%81%E4%B8%9D%E7%BD%91%E4%B8%8A%E9%80%92%E8%BF%9B%E6%9C%BA%E5%9C%BA%23&Refer=top) `2.0M 🔥`
@@ -50,14 +51,13 @@
 1. [英国首相因误判阿富汗局势挨批](https://s.weibo.com/weibo?q=%E8%8B%B1%E5%9B%BD%E9%A6%96%E7%9B%B8%E5%9B%A0%E8%AF%AF%E5%88%A4%E9%98%BF%E5%AF%8C%E6%B1%97%E5%B1%80%E5%8A%BF%E6%8C%A8%E6%89%B9&Refer=top) `1.1M 🔥`
 1. [许魏洲和乔欣有聊不完的天](https://s.weibo.com/weibo?q=%23%E8%AE%B8%E9%AD%8F%E6%B4%B2%E5%92%8C%E4%B9%94%E6%AC%A3%E6%9C%89%E8%81%8A%E4%B8%8D%E5%AE%8C%E7%9A%84%E5%A4%A9%23&Refer=top) `1.1M 🔥`
 1. [阿富汗人挤满卡塔尔难民营](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E4%BA%BA%E6%8C%A4%E6%BB%A1%E5%8D%A1%E5%A1%94%E5%B0%94%E9%9A%BE%E6%B0%91%E8%90%A5%23&Refer=top) `1.0M 🔥`
+1. [李承铉的共情能力](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E6%89%BF%E9%93%89%E7%9A%84%E5%85%B1%E6%83%85%E8%83%BD%E5%8A%9B%23&Refer=top) `1.0M 🔥`
 1. [硬糖少女INTO1互换手势](https://s.weibo.com/weibo?q=%E7%A1%AC%E7%B3%96%E5%B0%91%E5%A5%B3INTO1%E4%BA%92%E6%8D%A2%E6%89%8B%E5%8A%BF&Refer=top) `1.0M 🔥`
 1. [韩国大使自述蹭美国飞机撤离经历](https://s.weibo.com/weibo?q=%23%E9%9F%A9%E5%9B%BD%E5%A4%A7%E4%BD%BF%E8%87%AA%E8%BF%B0%E8%B9%AD%E7%BE%8E%E5%9B%BD%E9%A3%9E%E6%9C%BA%E6%92%A4%E7%A6%BB%E7%BB%8F%E5%8E%86%23&Refer=top) `1.0M 🔥`
 1. [郭采洁有多喜欢羊和草原](https://s.weibo.com/weibo?q=%23%E9%83%AD%E9%87%87%E6%B4%81%E6%9C%89%E5%A4%9A%E5%96%9C%E6%AC%A2%E7%BE%8A%E5%92%8C%E8%8D%89%E5%8E%9F%23&Refer=top) `1.0M 🔥`
 1. [沈月演技](https://s.weibo.com/weibo?q=%23%E6%B2%88%E6%9C%88%E6%BC%94%E6%8A%80%23&Refer=top) `1.0M 🔥`
-1. [薛梅尸体被发现](https://s.weibo.com/weibo?q=%23%E8%96%9B%E6%A2%85%E5%B0%B8%E4%BD%93%E8%A2%AB%E5%8F%91%E7%8E%B0%23&Refer=top) `1.0M 🔥`
-1. [林允 狗仔大哥天天跟着我拍vlog嘛](https://s.weibo.com/weibo?q=%E6%9E%97%E5%85%81%20%E7%8B%97%E4%BB%94%E5%A4%A7%E5%93%A5%E5%A4%A9%E5%A4%A9%E8%B7%9F%E7%9D%80%E6%88%91%E6%8B%8Dvlog%E5%98%9B&Refer=top) `998.2K 🔥`
 
-数据更新于 2021-08-20 17:02:04
+数据更新于 2021-08-20 17:11:00
 
 <!-- END -->
 
