@@ -51,13 +51,13 @@
 1. [男生举报并带警察查抄培训机构](https://s.weibo.com/weibo?q=%23%E7%94%B7%E7%94%9F%E4%B8%BE%E6%8A%A5%E5%B9%B6%E5%B8%A6%E8%AD%A6%E5%AF%9F%E6%9F%A5%E6%8A%84%E5%9F%B9%E8%AE%AD%E6%9C%BA%E6%9E%84%23&Refer=top) `1.2M 🔥`
 1. [专家称关不掉的开机广告是网络牛皮癣](https://s.weibo.com/weibo?q=%E4%B8%93%E5%AE%B6%E7%A7%B0%E5%85%B3%E4%B8%8D%E6%8E%89%E7%9A%84%E5%BC%80%E6%9C%BA%E5%B9%BF%E5%91%8A%E6%98%AF%E7%BD%91%E7%BB%9C%E7%89%9B%E7%9A%AE%E7%99%A3&Refer=top) `1.2M 🔥`
 1. [李承铉的共情能力](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E6%89%BF%E9%93%89%E7%9A%84%E5%85%B1%E6%83%85%E8%83%BD%E5%8A%9B%23&Refer=top) `1.2M 🔥`
+1. [教练回应水花消失术女孩走红](https://s.weibo.com/weibo?q=%23%E6%95%99%E7%BB%83%E5%9B%9E%E5%BA%94%E6%B0%B4%E8%8A%B1%E6%B6%88%E5%A4%B1%E6%9C%AF%E5%A5%B3%E5%AD%A9%E8%B5%B0%E7%BA%A2%23&Refer=top) `1.2M 🔥`
 1. [塔利班领导人下令释放政治囚犯](https://s.weibo.com/weibo?q=%E5%A1%94%E5%88%A9%E7%8F%AD%E9%A2%86%E5%AF%BC%E4%BA%BA%E4%B8%8B%E4%BB%A4%E9%87%8A%E6%94%BE%E6%94%BF%E6%B2%BB%E5%9B%9A%E7%8A%AF&Refer=top) `1.2M 🔥`
 1. [江南百景图道歉](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E5%8D%97%E7%99%BE%E6%99%AF%E5%9B%BE%E9%81%93%E6%AD%89%23&Refer=top) `1.1M 🔥`
 1. [国窖1573被举报用团徽宣传](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E7%AA%961573%E8%A2%AB%E4%B8%BE%E6%8A%A5%E7%94%A8%E5%9B%A2%E5%BE%BD%E5%AE%A3%E4%BC%A0%23&Refer=top) `1.1M 🔥`
 1. [英国首相因误判阿富汗局势挨批](https://s.weibo.com/weibo?q=%E8%8B%B1%E5%9B%BD%E9%A6%96%E7%9B%B8%E5%9B%A0%E8%AF%AF%E5%88%A4%E9%98%BF%E5%AF%8C%E6%B1%97%E5%B1%80%E5%8A%BF%E6%8C%A8%E6%89%B9&Refer=top) `1.1M 🔥`
-1. [许魏洲和乔欣有聊不完的天](https://s.weibo.com/weibo?q=%23%E8%AE%B8%E9%AD%8F%E6%B4%B2%E5%92%8C%E4%B9%94%E6%AC%A3%E6%9C%89%E8%81%8A%E4%B8%8D%E5%AE%8C%E7%9A%84%E5%A4%A9%23&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-08-20 18:31:24
+数据更新于 2021-08-20 18:42:09
 
 <!-- END -->
 
