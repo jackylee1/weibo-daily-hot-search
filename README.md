@@ -43,10 +43,10 @@
 1. [扫黑风暴反盗版声明](https://s.weibo.com/weibo?q=%23%E6%89%AB%E9%BB%91%E9%A3%8E%E6%9A%B4%E5%8F%8D%E7%9B%97%E7%89%88%E5%A3%B0%E6%98%8E%23&Refer=top) `1.6M 🔥`
 1. [阿里女员工案王某文被指定居所监视居住](https://s.weibo.com/weibo?q=%23%E9%98%BF%E9%87%8C%E5%A5%B3%E5%91%98%E5%B7%A5%E6%A1%88%E7%8E%8B%E6%9F%90%E6%96%87%E8%A2%AB%E6%8C%87%E5%AE%9A%E5%B1%85%E6%89%80%E7%9B%91%E8%A7%86%E5%B1%85%E4%BD%8F%23&Refer=top) `1.5M 🔥`
 1. [疑遭耐克歧视农民工发声](https://s.weibo.com/weibo?q=%23%E7%96%91%E9%81%AD%E8%80%90%E5%85%8B%E6%AD%A7%E8%A7%86%E5%86%9C%E6%B0%91%E5%B7%A5%E5%8F%91%E5%A3%B0%23&Refer=top) `1.5M 🔥`
+1. [逃亡总统弟弟宣誓效忠塔利班](https://s.weibo.com/weibo?q=%23%E9%80%83%E4%BA%A1%E6%80%BB%E7%BB%9F%E5%BC%9F%E5%BC%9F%E5%AE%A3%E8%AA%93%E6%95%88%E5%BF%A0%E5%A1%94%E5%88%A9%E7%8F%AD%23&Refer=top) `1.5M 🔥`
 1. [家长对外卖的恶意有多大](https://s.weibo.com/weibo?q=%E5%AE%B6%E9%95%BF%E5%AF%B9%E5%A4%96%E5%8D%96%E7%9A%84%E6%81%B6%E6%84%8F%E6%9C%89%E5%A4%9A%E5%A4%A7&Refer=top) `1.5M 🔥`
 1. [李莎旻子说隔壁老樊是反矫达人](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E8%8E%8E%E6%97%BB%E5%AD%90%E8%AF%B4%E9%9A%94%E5%A3%81%E8%80%81%E6%A8%8A%E6%98%AF%E5%8F%8D%E7%9F%AB%E8%BE%BE%E4%BA%BA%23&Refer=top) `1.4M 🔥`
 1. [70后海王10年骗财近千万](https://s.weibo.com/weibo?q=%2370%E5%90%8E%E6%B5%B7%E7%8E%8B10%E5%B9%B4%E9%AA%97%E8%B4%A2%E8%BF%91%E5%8D%83%E4%B8%87%23&Refer=top) `1.4M 🔥`
-1. [逃亡总统弟弟宣誓效忠塔利班](https://s.weibo.com/weibo?q=%23%E9%80%83%E4%BA%A1%E6%80%BB%E7%BB%9F%E5%BC%9F%E5%BC%9F%E5%AE%A3%E8%AA%93%E6%95%88%E5%BF%A0%E5%A1%94%E5%88%A9%E7%8F%AD%23&Refer=top) `1.4M 🔥`
 1. [撒贝宁笑着笑着就哭了](https://s.weibo.com/weibo?q=%23%E6%92%92%E8%B4%9D%E5%AE%81%E7%AC%91%E7%9D%80%E7%AC%91%E7%9D%80%E5%B0%B1%E5%93%AD%E4%BA%86%23&Refer=top) `1.4M 🔥`
 1. [昆明耐克店涉事女员工已被辞退](https://s.weibo.com/weibo?q=%23%E6%98%86%E6%98%8E%E8%80%90%E5%85%8B%E5%BA%97%E6%B6%89%E4%BA%8B%E5%A5%B3%E5%91%98%E5%B7%A5%E5%B7%B2%E8%A2%AB%E8%BE%9E%E9%80%80%23&Refer=top) `1.4M 🔥`
 1. [深圳一幼儿园连通在建地下会所](https://s.weibo.com/weibo?q=%23%E6%B7%B1%E5%9C%B3%E4%B8%80%E5%B9%BC%E5%84%BF%E5%9B%AD%E8%BF%9E%E9%80%9A%E5%9C%A8%E5%BB%BA%E5%9C%B0%E4%B8%8B%E4%BC%9A%E6%89%80%23&Refer=top) `1.4M 🔥`
@@ -57,7 +57,7 @@
 1. [被顾魏笑死](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E9%A1%BE%E9%AD%8F%E7%AC%91%E6%AD%BB%23&Refer=top) `1.3M 🔥`
 1. [拜登承认阿富汗撤离任务艰难](https://s.weibo.com/weibo?q=%E6%8B%9C%E7%99%BB%E6%89%BF%E8%AE%A4%E9%98%BF%E5%AF%8C%E6%B1%97%E6%92%A4%E7%A6%BB%E4%BB%BB%E5%8A%A1%E8%89%B0%E9%9A%BE&Refer=top) `1.3M 🔥`
 
-数据更新于 2021-08-21 22:37:47
+数据更新于 2021-08-21 22:43:58
 
 <!-- END -->
 
