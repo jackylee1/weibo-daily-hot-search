@@ -40,12 +40,12 @@
 1. [张国伟即将重新开始跳高生涯](https://s.weibo.com/weibo?q=%E5%BC%A0%E5%9B%BD%E4%BC%9F%E5%8D%B3%E5%B0%86%E9%87%8D%E6%96%B0%E5%BC%80%E5%A7%8B%E8%B7%B3%E9%AB%98%E7%94%9F%E6%B6%AF&Refer=top) `1.2M 🔥`
 1. [男子上班玩手机工作群辱骂领导被开除](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E4%B8%8A%E7%8F%AD%E7%8E%A9%E6%89%8B%E6%9C%BA%E5%B7%A5%E4%BD%9C%E7%BE%A4%E8%BE%B1%E9%AA%82%E9%A2%86%E5%AF%BC%E8%A2%AB%E5%BC%80%E9%99%A4%23&Refer=top) `1.2M 🔥`
 1. [黄子韬最爱的剧是仙剑一](https://s.weibo.com/weibo?q=%23%E9%BB%84%E5%AD%90%E9%9F%AC%E6%9C%80%E7%88%B1%E7%9A%84%E5%89%A7%E6%98%AF%E4%BB%99%E5%89%91%E4%B8%80%23&Refer=top) `1.2M 🔥`
+1. [拜登承认阿富汗撤离任务艰难](https://s.weibo.com/weibo?q=%E6%8B%9C%E7%99%BB%E6%89%BF%E8%AE%A4%E9%98%BF%E5%AF%8C%E6%B1%97%E6%92%A4%E7%A6%BB%E4%BB%BB%E5%8A%A1%E8%89%B0%E9%9A%BE&Refer=top) `1.2M 🔥`
 1. [研究称衰老过程始于30多岁](https://s.weibo.com/weibo?q=%23%E7%A0%94%E7%A9%B6%E7%A7%B0%E8%A1%B0%E8%80%81%E8%BF%87%E7%A8%8B%E5%A7%8B%E4%BA%8E30%E5%A4%9A%E5%B2%81%23&Refer=top) `1.1M 🔥`
 1. [巴基斯坦炸弹袭击致1中国公民受伤](https://s.weibo.com/weibo?q=%23%E5%B7%B4%E5%9F%BA%E6%96%AF%E5%9D%A6%E7%82%B8%E5%BC%B9%E8%A2%AD%E5%87%BB%E8%87%B41%E4%B8%AD%E5%9B%BD%E5%85%AC%E6%B0%91%E5%8F%97%E4%BC%A4%23&Refer=top) `1.1M 🔥`
 1. [国务院公布调查河南暴雨举报电话](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E5%8A%A1%E9%99%A2%E5%85%AC%E5%B8%83%E8%B0%83%E6%9F%A5%E6%B2%B3%E5%8D%97%E6%9A%B4%E9%9B%A8%E4%B8%BE%E6%8A%A5%E7%94%B5%E8%AF%9D%23&Refer=top) `1.1M 🔥`
 1. [美国遭遇亚洲杀人大黄蜂入侵](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E9%81%AD%E9%81%87%E4%BA%9A%E6%B4%B2%E6%9D%80%E4%BA%BA%E5%A4%A7%E9%BB%84%E8%9C%82%E5%85%A5%E4%BE%B5%23&Refer=top) `1.1M 🔥`
 1. [外交部回应中方是否接受阿富汗难民](https://s.weibo.com/weibo?q=%23%E5%A4%96%E4%BA%A4%E9%83%A8%E5%9B%9E%E5%BA%94%E4%B8%AD%E6%96%B9%E6%98%AF%E5%90%A6%E6%8E%A5%E5%8F%97%E9%98%BF%E5%AF%8C%E6%B1%97%E9%9A%BE%E6%B0%91%23&Refer=top) `1.1M 🔥`
-1. [拜登承认阿富汗撤离任务艰难](https://s.weibo.com/weibo?q=%E6%8B%9C%E7%99%BB%E6%89%BF%E8%AE%A4%E9%98%BF%E5%AF%8C%E6%B1%97%E6%92%A4%E7%A6%BB%E4%BB%BB%E5%8A%A1%E8%89%B0%E9%9A%BE&Refer=top) `1.1M 🔥`
 1. [云南边境发现多枚未爆弹](https://s.weibo.com/weibo?q=%E4%BA%91%E5%8D%97%E8%BE%B9%E5%A2%83%E5%8F%91%E7%8E%B0%E5%A4%9A%E6%9E%9A%E6%9C%AA%E7%88%86%E5%BC%B9&Refer=top) `1.1M 🔥`
 1. [杨紫自己消化情绪的方式让人感同身受](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E7%B4%AB%E8%87%AA%E5%B7%B1%E6%B6%88%E5%8C%96%E6%83%85%E7%BB%AA%E7%9A%84%E6%96%B9%E5%BC%8F%E8%AE%A9%E4%BA%BA%E6%84%9F%E5%90%8C%E8%BA%AB%E5%8F%97%23&Refer=top) `1.1M 🔥`
 1. [吴宣仪发长文谈剪发舞台](https://s.weibo.com/weibo?q=%23%E5%90%B4%E5%AE%A3%E4%BB%AA%E5%8F%91%E9%95%BF%E6%96%87%E8%B0%88%E5%89%AA%E5%8F%91%E8%88%9E%E5%8F%B0%23&Refer=top) `1.0M 🔥`
@@ -57,7 +57,7 @@
 1. [洗衣机柯基](https://s.weibo.com/weibo?q=%E6%B4%97%E8%A1%A3%E6%9C%BA%E6%9F%AF%E5%9F%BA&Refer=top) `897.9K 🔥`
 1. [傅首尔说跟孙俪吵架没发挥好](https://s.weibo.com/weibo?q=%23%E5%82%85%E9%A6%96%E5%B0%94%E8%AF%B4%E8%B7%9F%E5%AD%99%E4%BF%AA%E5%90%B5%E6%9E%B6%E6%B2%A1%E5%8F%91%E6%8C%A5%E5%A5%BD%23&Refer=top) `893.5K 🔥`
 
-数据更新于 2021-08-21 15:38:41
+数据更新于 2021-08-21 15:45:00
 
 <!-- END -->
 
