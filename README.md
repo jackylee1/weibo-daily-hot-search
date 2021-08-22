@@ -6,13 +6,14 @@
 
 <!-- BEGIN -->
 
-1. [今日说法](https://s.weibo.com/weibo?q=%E4%BB%8A%E6%97%A5%E8%AF%B4%E6%B3%95&Refer=top) `5.6M 🔥`
+1. [今日说法](https://s.weibo.com/weibo?q=%E4%BB%8A%E6%97%A5%E8%AF%B4%E6%B3%95&Refer=top) `6.2M 🔥`
 1. [操场埋尸案死者家属喊话制片方](https://s.weibo.com/weibo?q=%23%E6%93%8D%E5%9C%BA%E5%9F%8B%E5%B0%B8%E6%A1%88%E6%AD%BB%E8%80%85%E5%AE%B6%E5%B1%9E%E5%96%8A%E8%AF%9D%E5%88%B6%E7%89%87%E6%96%B9%23&Refer=top) `4.1M 🔥`
 1. [谢娜 张丁杰踩是个什么爆爆组合](https://s.weibo.com/weibo?q=%E8%B0%A2%E5%A8%9C%20%E5%BC%A0%E4%B8%81%E6%9D%B0%E8%B8%A9%E6%98%AF%E4%B8%AA%E4%BB%80%E4%B9%88%E7%88%86%E7%88%86%E7%BB%84%E5%90%88&Refer=top) `4.1M 🔥`
 1. [中元节](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%85%83%E8%8A%82&Refer=top) `4.0M 🔥`
 1. [女生校园内如厕视频被兜售](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E7%94%9F%E6%A0%A1%E5%9B%AD%E5%86%85%E5%A6%82%E5%8E%95%E8%A7%86%E9%A2%91%E8%A2%AB%E5%85%9C%E5%94%AE%23&Refer=top) `3.9M 🔥`
 1. [扫黑风暴](https://s.weibo.com/weibo?q=%E6%89%AB%E9%BB%91%E9%A3%8E%E6%9A%B4&Refer=top) `3.8M 🔥`
 1. [央视9位主持人古装亮相](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%869%E4%BD%8D%E4%B8%BB%E6%8C%81%E4%BA%BA%E5%8F%A4%E8%A3%85%E4%BA%AE%E7%9B%B8%23&Refer=top) `3.7M 🔥`
+1. [儿童体检不得做微量元素检查](https://s.weibo.com/weibo?q=%23%E5%84%BF%E7%AB%A5%E4%BD%93%E6%A3%80%E4%B8%8D%E5%BE%97%E5%81%9A%E5%BE%AE%E9%87%8F%E5%85%83%E7%B4%A0%E6%A3%80%E6%9F%A5%23&Refer=top) `3.6M 🔥`
 1. [央视评老人修剪自种香樟树被罚14万](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E8%AF%84%E8%80%81%E4%BA%BA%E4%BF%AE%E5%89%AA%E8%87%AA%E7%A7%8D%E9%A6%99%E6%A8%9F%E6%A0%91%E8%A2%AB%E7%BD%9A14%E4%B8%87%23&Refer=top) `3.1M 🔥`
 1. [谢娜生二胎后首露面](https://s.weibo.com/weibo?q=%E8%B0%A2%E5%A8%9C%E7%94%9F%E4%BA%8C%E8%83%8E%E5%90%8E%E9%A6%96%E9%9C%B2%E9%9D%A2&Refer=top) `2.9M 🔥`
 1. [我国总和生育率低于国际警戒线](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD%E6%80%BB%E5%92%8C%E7%94%9F%E8%82%B2%E7%8E%87%E4%BD%8E%E4%BA%8E%E5%9B%BD%E9%99%85%E8%AD%A6%E6%88%92%E7%BA%BF%23&Refer=top) `2.6M 🔥`
@@ -34,6 +35,7 @@
 1. [中元节凌晨是阴气最重的时候](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%85%83%E8%8A%82%E5%87%8C%E6%99%A8%E6%98%AF%E9%98%B4%E6%B0%94%E6%9C%80%E9%87%8D%E7%9A%84%E6%97%B6%E5%80%99%23&Refer=top) `1.1M 🔥`
 1. [25款APP因严重违法收集个人信息被下架](https://s.weibo.com/weibo?q=%2325%E6%AC%BEAPP%E5%9B%A0%E4%B8%A5%E9%87%8D%E8%BF%9D%E6%B3%95%E6%94%B6%E9%9B%86%E4%B8%AA%E4%BA%BA%E4%BF%A1%E6%81%AF%E8%A2%AB%E4%B8%8B%E6%9E%B6%23&Refer=top) `1.1M 🔥`
 1. [大妈煎服邻居送的草药后死亡](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%A6%88%E7%85%8E%E6%9C%8D%E9%82%BB%E5%B1%85%E9%80%81%E7%9A%84%E8%8D%89%E8%8D%AF%E5%90%8E%E6%AD%BB%E4%BA%A1%23&Refer=top) `1.1M 🔥`
+1. [原来水母小时候长这样](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E6%B0%B4%E6%AF%8D%E5%B0%8F%E6%97%B6%E5%80%99%E9%95%BF%E8%BF%99%E6%A0%B7%23&Refer=top) `1.1M 🔥`
 1. [大傻改名叫盛宇了](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%82%BB%E6%94%B9%E5%90%8D%E5%8F%AB%E7%9B%9B%E5%AE%87%E4%BA%86%23&Refer=top) `1.1M 🔥`
 1. [昆明一小区房前沦为坟场](https://s.weibo.com/weibo?q=%23%E6%98%86%E6%98%8E%E4%B8%80%E5%B0%8F%E5%8C%BA%E6%88%BF%E5%89%8D%E6%B2%A6%E4%B8%BA%E5%9D%9F%E5%9C%BA%23&Refer=top) `1.1M 🔥`
 1. [田馥甄金曲奖最佳女歌手](https://s.weibo.com/weibo?q=%23%E7%94%B0%E9%A6%A5%E7%94%84%E9%87%91%E6%9B%B2%E5%A5%96%E6%9C%80%E4%BD%B3%E5%A5%B3%E6%AD%8C%E6%89%8B%23&Refer=top) `1.0M 🔥`
@@ -41,7 +43,6 @@
 1. [第32届金曲奖](https://s.weibo.com/weibo?q=%E7%AC%AC32%E5%B1%8A%E9%87%91%E6%9B%B2%E5%A5%96&Refer=top) `977.5K 🔥`
 1. [河南暴雨将至高架秒变停车场](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8D%97%E6%9A%B4%E9%9B%A8%E5%B0%86%E8%87%B3%E9%AB%98%E6%9E%B6%E7%A7%92%E5%8F%98%E5%81%9C%E8%BD%A6%E5%9C%BA%23&Refer=top) `971.1K 🔥`
 1. [王冰冰等主播一首歌串起14部国产动画](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E5%86%B0%E5%86%B0%E7%AD%89%E4%B8%BB%E6%92%AD%E4%B8%80%E9%A6%96%E6%AD%8C%E4%B8%B2%E8%B5%B714%E9%83%A8%E5%9B%BD%E4%BA%A7%E5%8A%A8%E7%94%BB%23&Refer=top) `937.3K 🔥`
-1. [原来水母小时候长这样](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E6%B0%B4%E6%AF%8D%E5%B0%8F%E6%97%B6%E5%80%99%E9%95%BF%E8%BF%99%E6%A0%B7%23&Refer=top) `921.7K 🔥`
 1. [逃亡总统弟弟宣誓效忠塔利班](https://s.weibo.com/weibo?q=%23%E9%80%83%E4%BA%A1%E6%80%BB%E7%BB%9F%E5%BC%9F%E5%BC%9F%E5%AE%A3%E8%AA%93%E6%95%88%E5%BF%A0%E5%A1%94%E5%88%A9%E7%8F%AD%23&Refer=top) `904.9K 🔥`
 1. [小伙不慎打翻酒水用手捧着喝](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E4%BC%99%E4%B8%8D%E6%85%8E%E6%89%93%E7%BF%BB%E9%85%92%E6%B0%B4%E7%94%A8%E6%89%8B%E6%8D%A7%E7%9D%80%E5%96%9D%23&Refer=top) `871.3K 🔥`
 1. [比亚迪半导体被中止上市审核](https://s.weibo.com/weibo?q=%23%E6%AF%94%E4%BA%9A%E8%BF%AA%E5%8D%8A%E5%AF%BC%E4%BD%93%E8%A2%AB%E4%B8%AD%E6%AD%A2%E4%B8%8A%E5%B8%82%E5%AE%A1%E6%A0%B8%23&Refer=top) `870.2K 🔥`
@@ -50,14 +51,13 @@
 1. [中山大学研究用核技术灭蚊子](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%B1%B1%E5%A4%A7%E5%AD%A6%E7%A0%94%E7%A9%B6%E7%94%A8%E6%A0%B8%E6%8A%80%E6%9C%AF%E7%81%AD%E8%9A%8A%E5%AD%90%23&Refer=top) `863.7K 🔥`
 1. [四六级](https://s.weibo.com/weibo?q=%E5%9B%9B%E5%85%AD%E7%BA%A7&Refer=top) `836.4K 🔥`
 1. [女主播开向领导送礼课](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E4%B8%BB%E6%92%AD%E5%BC%80%E5%90%91%E9%A2%86%E5%AF%BC%E9%80%81%E7%A4%BC%E8%AF%BE%23&Refer=top) `832.2K 🔥`
+1. [郑州下雨](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E4%B8%8B%E9%9B%A8%23&Refer=top) `830.5K 🔥`
+1. [王一博粉丝中奖ID](https://s.weibo.com/weibo?q=%E7%8E%8B%E4%B8%80%E5%8D%9A%E7%B2%89%E4%B8%9D%E4%B8%AD%E5%A5%96ID&Refer=top) `822.7K 🔥`
 1. [睡不好会让人变笨吗](https://s.weibo.com/weibo?q=%23%E7%9D%A1%E4%B8%8D%E5%A5%BD%E4%BC%9A%E8%AE%A9%E4%BA%BA%E5%8F%98%E7%AC%A8%E5%90%97%23&Refer=top) `809.4K 🔥`
 1. [银川确诊输入性鼠疫患者病情危重](https://s.weibo.com/weibo?q=%23%E9%93%B6%E5%B7%9D%E7%A1%AE%E8%AF%8A%E8%BE%93%E5%85%A5%E6%80%A7%E9%BC%A0%E7%96%AB%E6%82%A3%E8%80%85%E7%97%85%E6%83%85%E5%8D%B1%E9%87%8D%23&Refer=top) `796.5K 🔥`
 1. [张杰拉维嘉转圈把自己甩出去了](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%9D%B0%E6%8B%89%E7%BB%B4%E5%98%89%E8%BD%AC%E5%9C%88%E6%8A%8A%E8%87%AA%E5%B7%B1%E7%94%A9%E5%87%BA%E5%8E%BB%E4%BA%86%23&Refer=top) `789.6K 🔥`
-1. [鹏鹏的澜](https://s.weibo.com/weibo?q=%23%E9%B9%8F%E9%B9%8F%E7%9A%84%E6%BE%9C%23&Refer=top) `781.6K 🔥`
-1. [宁夏银川确诊一例输入性鼠疫病例](https://s.weibo.com/weibo?q=%23%E5%AE%81%E5%A4%8F%E9%93%B6%E5%B7%9D%E7%A1%AE%E8%AF%8A%E4%B8%80%E4%BE%8B%E8%BE%93%E5%85%A5%E6%80%A7%E9%BC%A0%E7%96%AB%E7%97%85%E4%BE%8B%23&Refer=top) `778.7K 🔥`
-1. [抖音下架腾讯投诉视频超8000条](https://s.weibo.com/weibo?q=%23%E6%8A%96%E9%9F%B3%E4%B8%8B%E6%9E%B6%E8%85%BE%E8%AE%AF%E6%8A%95%E8%AF%89%E8%A7%86%E9%A2%91%E8%B6%858000%E6%9D%A1%23&Refer=top) `772.1K 🔥`
 
-数据更新于 2021-08-22 16:58:50
+数据更新于 2021-08-22 17:02:01
 
 <!-- END -->
 
