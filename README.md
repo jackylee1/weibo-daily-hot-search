@@ -7,8 +7,8 @@
 <!-- BEGIN -->
 
 1. [张雨绮李柄熹退出女儿4剩余录制](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E9%9B%A8%E7%BB%AE%E6%9D%8E%E6%9F%84%E7%86%B9%E9%80%80%E5%87%BA%E5%A5%B3%E5%84%BF4%E5%89%A9%E4%BD%99%E5%BD%95%E5%88%B6%23&Refer=top) `7.6M 🔥`
+1. [那英退出中国好声音现场录制](https://s.weibo.com/weibo?q=%23%E9%82%A3%E8%8B%B1%E9%80%80%E5%87%BA%E4%B8%AD%E5%9B%BD%E5%A5%BD%E5%A3%B0%E9%9F%B3%E7%8E%B0%E5%9C%BA%E5%BD%95%E5%88%B6%23&Refer=top) `7.0M 🔥`
 1. [男子朋友圈炫耀2岁宝宝开车被处罚](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E6%9C%8B%E5%8F%8B%E5%9C%88%E7%82%AB%E8%80%802%E5%B2%81%E5%AE%9D%E5%AE%9D%E5%BC%80%E8%BD%A6%E8%A2%AB%E5%A4%84%E7%BD%9A%23&Refer=top) `6.7M 🔥`
-1. [那英退出中国好声音现场录制](https://s.weibo.com/weibo?q=%23%E9%82%A3%E8%8B%B1%E9%80%80%E5%87%BA%E4%B8%AD%E5%9B%BD%E5%A5%BD%E5%A3%B0%E9%9F%B3%E7%8E%B0%E5%9C%BA%E5%BD%95%E5%88%B6%23&Refer=top) `6.5M 🔥`
 1. [今日说法](https://s.weibo.com/weibo?q=%E4%BB%8A%E6%97%A5%E8%AF%B4%E6%B3%95&Refer=top) `6.2M 🔥`
 1. [谢娜感谢赵丽颖](https://s.weibo.com/weibo?q=%23%E8%B0%A2%E5%A8%9C%E6%84%9F%E8%B0%A2%E8%B5%B5%E4%B8%BD%E9%A2%96%23&Refer=top) `4.7M 🔥`
 1. [操场埋尸案死者家属喊话制片方](https://s.weibo.com/weibo?q=%23%E6%93%8D%E5%9C%BA%E5%9F%8B%E5%B0%B8%E6%A1%88%E6%AD%BB%E8%80%85%E5%AE%B6%E5%B1%9E%E5%96%8A%E8%AF%9D%E5%88%B6%E7%89%87%E6%96%B9%23&Refer=top) `4.1M 🔥`
@@ -57,7 +57,7 @@
 1. [张雨绮 独立行走特别重要](https://s.weibo.com/weibo?q=%E5%BC%A0%E9%9B%A8%E7%BB%AE%20%E7%8B%AC%E7%AB%8B%E8%A1%8C%E8%B5%B0%E7%89%B9%E5%88%AB%E9%87%8D%E8%A6%81&Refer=top) `939.1K 🔥`
 1. [王冰冰等主播一首歌串起14部国产动画](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E5%86%B0%E5%86%B0%E7%AD%89%E4%B8%BB%E6%92%AD%E4%B8%80%E9%A6%96%E6%AD%8C%E4%B8%B2%E8%B5%B714%E9%83%A8%E5%9B%BD%E4%BA%A7%E5%8A%A8%E7%94%BB%23&Refer=top) `937.3K 🔥`
 
-数据更新于 2021-08-22 20:31:03
+数据更新于 2021-08-22 20:59:48
 
 <!-- END -->
 
