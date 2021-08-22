@@ -22,8 +22,8 @@
 1. [塔利班高层被问女性执政当场笑出声](https://s.weibo.com/weibo?q=%23%E5%A1%94%E5%88%A9%E7%8F%AD%E9%AB%98%E5%B1%82%E8%A2%AB%E9%97%AE%E5%A5%B3%E6%80%A7%E6%89%A7%E6%94%BF%E5%BD%93%E5%9C%BA%E7%AC%91%E5%87%BA%E5%A3%B0%23&Refer=top) `2.3M 🔥`
 1. [塔利班不打算组建过渡政府](https://s.weibo.com/weibo?q=%23%E5%A1%94%E5%88%A9%E7%8F%AD%E4%B8%8D%E6%89%93%E7%AE%97%E7%BB%84%E5%BB%BA%E8%BF%87%E6%B8%A1%E6%94%BF%E5%BA%9C%23&Refer=top) `2.0M 🔥`
 1. [男朋友送我上班的这半年](https://s.weibo.com/weibo?q=%23%E7%94%B7%E6%9C%8B%E5%8F%8B%E9%80%81%E6%88%91%E4%B8%8A%E7%8F%AD%E7%9A%84%E8%BF%99%E5%8D%8A%E5%B9%B4%23&Refer=top) `1.9M 🔥`
-1. [美国多人服用兽药治疗新冠后中毒](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E5%A4%9A%E4%BA%BA%E6%9C%8D%E7%94%A8%E5%85%BD%E8%8D%AF%E6%B2%BB%E7%96%97%E6%96%B0%E5%86%A0%E5%90%8E%E4%B8%AD%E6%AF%92%23&Refer=top) `1.7M 🔥`
 1. [谢娜感谢赵丽颖](https://s.weibo.com/weibo?q=%23%E8%B0%A2%E5%A8%9C%E6%84%9F%E8%B0%A2%E8%B5%B5%E4%B8%BD%E9%A2%96%23&Refer=top) `1.7M 🔥`
+1. [美国多人服用兽药治疗新冠后中毒](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E5%A4%9A%E4%BA%BA%E6%9C%8D%E7%94%A8%E5%85%BD%E8%8D%AF%E6%B2%BB%E7%96%97%E6%96%B0%E5%86%A0%E5%90%8E%E4%B8%AD%E6%AF%92%23&Refer=top) `1.7M 🔥`
 1. [杭州市委书记周江勇被查](https://s.weibo.com/weibo?q=%23%E6%9D%AD%E5%B7%9E%E5%B8%82%E5%A7%94%E4%B9%A6%E8%AE%B0%E5%91%A8%E6%B1%9F%E5%8B%87%E8%A2%AB%E6%9F%A5%23&Refer=top) `1.6M 🔥`
 1. [央视主持人惊艳合奏左手指月](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E4%B8%BB%E6%8C%81%E4%BA%BA%E6%83%8A%E8%89%B3%E5%90%88%E5%A5%8F%E5%B7%A6%E6%89%8B%E6%8C%87%E6%9C%88%23&Refer=top) `1.5M 🔥`
 1. [大学宿舍分配有多人性化](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%AD%A6%E5%AE%BF%E8%88%8D%E5%88%86%E9%85%8D%E6%9C%89%E5%A4%9A%E4%BA%BA%E6%80%A7%E5%8C%96%23&Refer=top) `1.3M 🔥`
@@ -33,6 +33,7 @@
 1. [金晨仙女飞天定妆侧拍](https://s.weibo.com/weibo?q=%23%E9%87%91%E6%99%A8%E4%BB%99%E5%A5%B3%E9%A3%9E%E5%A4%A9%E5%AE%9A%E5%A6%86%E4%BE%A7%E6%8B%8D%23&Refer=top) `1.2M 🔥`
 1. [康辉扮演许仙](https://s.weibo.com/weibo?q=%23%E5%BA%B7%E8%BE%89%E6%89%AE%E6%BC%94%E8%AE%B8%E4%BB%99%23&Refer=top) `1.2M 🔥`
 1. [少年遭持刀围殴反杀一人被判10年](https://s.weibo.com/weibo?q=%23%E5%B0%91%E5%B9%B4%E9%81%AD%E6%8C%81%E5%88%80%E5%9B%B4%E6%AE%B4%E5%8F%8D%E6%9D%80%E4%B8%80%E4%BA%BA%E8%A2%AB%E5%88%A410%E5%B9%B4%23&Refer=top) `1.2M 🔥`
+1. [杨洋说之前的舞台表演已经是绝唱](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E6%B4%8B%E8%AF%B4%E4%B9%8B%E5%89%8D%E7%9A%84%E8%88%9E%E5%8F%B0%E8%A1%A8%E6%BC%94%E5%B7%B2%E7%BB%8F%E6%98%AF%E7%BB%9D%E5%94%B1%23&Refer=top) `1.1M 🔥`
 1. [中元节凌晨是阴气最重的时候](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%85%83%E8%8A%82%E5%87%8C%E6%99%A8%E6%98%AF%E9%98%B4%E6%B0%94%E6%9C%80%E9%87%8D%E7%9A%84%E6%97%B6%E5%80%99%23&Refer=top) `1.1M 🔥`
 1. [25款APP因严重违法收集个人信息被下架](https://s.weibo.com/weibo?q=%2325%E6%AC%BEAPP%E5%9B%A0%E4%B8%A5%E9%87%8D%E8%BF%9D%E6%B3%95%E6%94%B6%E9%9B%86%E4%B8%AA%E4%BA%BA%E4%BF%A1%E6%81%AF%E8%A2%AB%E4%B8%8B%E6%9E%B6%23&Refer=top) `1.1M 🔥`
 1. [大妈煎服邻居送的草药后死亡](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%A6%88%E7%85%8E%E6%9C%8D%E9%82%BB%E5%B1%85%E9%80%81%E7%9A%84%E8%8D%89%E8%8D%AF%E5%90%8E%E6%AD%BB%E4%BA%A1%23&Refer=top) `1.1M 🔥`
@@ -55,9 +56,8 @@
 1. [女主播开向领导送礼课](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E4%B8%BB%E6%92%AD%E5%BC%80%E5%90%91%E9%A2%86%E5%AF%BC%E9%80%81%E7%A4%BC%E8%AF%BE%23&Refer=top) `832.2K 🔥`
 1. [郑州下雨](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E4%B8%8B%E9%9B%A8%23&Refer=top) `830.5K 🔥`
 1. [睡不好会让人变笨吗](https://s.weibo.com/weibo?q=%23%E7%9D%A1%E4%B8%8D%E5%A5%BD%E4%BC%9A%E8%AE%A9%E4%BA%BA%E5%8F%98%E7%AC%A8%E5%90%97%23&Refer=top) `809.4K 🔥`
-1. [银川确诊输入性鼠疫患者病情危重](https://s.weibo.com/weibo?q=%23%E9%93%B6%E5%B7%9D%E7%A1%AE%E8%AF%8A%E8%BE%93%E5%85%A5%E6%80%A7%E9%BC%A0%E7%96%AB%E6%82%A3%E8%80%85%E7%97%85%E6%83%85%E5%8D%B1%E9%87%8D%23&Refer=top) `796.5K 🔥`
 
-数据更新于 2021-08-22 17:45:37
+数据更新于 2021-08-22 17:51:49
 
 <!-- END -->
 
