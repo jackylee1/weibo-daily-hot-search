@@ -28,8 +28,8 @@
 1. [塔利班不打算组建过渡政府](https://s.weibo.com/weibo?q=%23%E5%A1%94%E5%88%A9%E7%8F%AD%E4%B8%8D%E6%89%93%E7%AE%97%E7%BB%84%E5%BB%BA%E8%BF%87%E6%B8%A1%E6%94%BF%E5%BA%9C%23&Refer=top) `2.0M 🔥`
 1. [男朋友送我上班的这半年](https://s.weibo.com/weibo?q=%23%E7%94%B7%E6%9C%8B%E5%8F%8B%E9%80%81%E6%88%91%E4%B8%8A%E7%8F%AD%E7%9A%84%E8%BF%99%E5%8D%8A%E5%B9%B4%23&Refer=top) `1.9M 🔥`
 1. [陶白白好准](https://s.weibo.com/weibo?q=%E9%99%B6%E7%99%BD%E7%99%BD%E5%A5%BD%E5%87%86&Refer=top) `1.8M 🔥`
+1. [王安宇 被压抑的人生不是我想要的](https://s.weibo.com/weibo?q=%E7%8E%8B%E5%AE%89%E5%AE%87%20%E8%A2%AB%E5%8E%8B%E6%8A%91%E7%9A%84%E4%BA%BA%E7%94%9F%E4%B8%8D%E6%98%AF%E6%88%91%E6%83%B3%E8%A6%81%E7%9A%84&Refer=top) `1.8M 🔥`
 1. [中元节有内味儿了](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%85%83%E8%8A%82%E6%9C%89%E5%86%85%E5%91%B3%E5%84%BF%E4%BA%86%23&Refer=top) `1.8M 🔥`
-1. [王安宇 被压抑的人生不是我想要的](https://s.weibo.com/weibo?q=%E7%8E%8B%E5%AE%89%E5%AE%87%20%E8%A2%AB%E5%8E%8B%E6%8A%91%E7%9A%84%E4%BA%BA%E7%94%9F%E4%B8%8D%E6%98%AF%E6%88%91%E6%83%B3%E8%A6%81%E7%9A%84&Refer=top) `1.7M 🔥`
 1. [国家防总派工作组赴陕西](https://s.weibo.com/weibo?q=%E5%9B%BD%E5%AE%B6%E9%98%B2%E6%80%BB%E6%B4%BE%E5%B7%A5%E4%BD%9C%E7%BB%84%E8%B5%B4%E9%99%95%E8%A5%BF&Refer=top) `1.7M 🔥`
 1. [美国多人服用兽药治疗新冠后中毒](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E5%A4%9A%E4%BA%BA%E6%9C%8D%E7%94%A8%E5%85%BD%E8%8D%AF%E6%B2%BB%E7%96%97%E6%96%B0%E5%86%A0%E5%90%8E%E4%B8%AD%E6%AF%92%23&Refer=top) `1.7M 🔥`
 1. [杭州市委书记周江勇被查](https://s.weibo.com/weibo?q=%23%E6%9D%AD%E5%B7%9E%E5%B8%82%E5%A7%94%E4%B9%A6%E8%AE%B0%E5%91%A8%E6%B1%9F%E5%8B%87%E8%A2%AB%E6%9F%A5%23&Refer=top) `1.6M 🔥`
@@ -57,7 +57,7 @@
 1. [大傻改名叫盛宇了](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%82%BB%E6%94%B9%E5%90%8D%E5%8F%AB%E7%9B%9B%E5%AE%87%E4%BA%86%23&Refer=top) `1.1M 🔥`
 1. [马素芹被家暴](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E7%B4%A0%E8%8A%B9%E8%A2%AB%E5%AE%B6%E6%9A%B4%23&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-08-22 23:02:35
+数据更新于 2021-08-22 23:04:45
 
 <!-- END -->
 
