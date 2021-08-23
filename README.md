@@ -24,6 +24,7 @@
 1. [男子与亲外甥谈恋爱被骗100余万](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E4%B8%8E%E4%BA%B2%E5%A4%96%E7%94%A5%E8%B0%88%E6%81%8B%E7%88%B1%E8%A2%AB%E9%AA%97100%E4%BD%99%E4%B8%87%23&Refer=top) `2.5M 🔥`
 1. [何猷君否认辱骂工作人员](https://s.weibo.com/weibo?q=%23%E4%BD%95%E7%8C%B7%E5%90%9B%E5%90%A6%E8%AE%A4%E8%BE%B1%E9%AA%82%E5%B7%A5%E4%BD%9C%E4%BA%BA%E5%91%98%23&Refer=top) `2.4M 🔥`
 1. [星宿夫妇be了](https://s.weibo.com/weibo?q=%23%E6%98%9F%E5%AE%BF%E5%A4%AB%E5%A6%87be%E4%BA%86%23&Refer=top) `2.4M 🔥`
+1. [迪丽热巴发长文告别乔晶晶](https://s.weibo.com/weibo?q=%23%E8%BF%AA%E4%B8%BD%E7%83%AD%E5%B7%B4%E5%8F%91%E9%95%BF%E6%96%87%E5%91%8A%E5%88%AB%E4%B9%94%E6%99%B6%E6%99%B6%23&Refer=top) `2.3M 🔥`
 1. [刘宪华把香菜让给王一博](https://s.weibo.com/weibo?q=%23%E5%88%98%E5%AE%AA%E5%8D%8E%E6%8A%8A%E9%A6%99%E8%8F%9C%E8%AE%A9%E7%BB%99%E7%8E%8B%E4%B8%80%E5%8D%9A%23&Refer=top) `2.3M 🔥`
 1. [贵州发现6亿岁海绵宝宝](https://s.weibo.com/weibo?q=%23%E8%B4%B5%E5%B7%9E%E5%8F%91%E7%8E%B06%E4%BA%BF%E5%B2%81%E6%B5%B7%E7%BB%B5%E5%AE%9D%E5%AE%9D%23&Refer=top) `2.3M 🔥`
 1. [13岁女孩跳楼坠亡妈妈质疑作业太重](https://s.weibo.com/weibo?q=%2313%E5%B2%81%E5%A5%B3%E5%AD%A9%E8%B7%B3%E6%A5%BC%E5%9D%A0%E4%BA%A1%E5%A6%88%E5%A6%88%E8%B4%A8%E7%96%91%E4%BD%9C%E4%B8%9A%E5%A4%AA%E9%87%8D%23&Refer=top) `2.3M 🔥`
@@ -55,9 +56,8 @@
 1. [王安宇 被压抑的人生不是我想要的](https://s.weibo.com/weibo?q=%E7%8E%8B%E5%AE%89%E5%AE%87%20%E8%A2%AB%E5%8E%8B%E6%8A%91%E7%9A%84%E4%BA%BA%E7%94%9F%E4%B8%8D%E6%98%AF%E6%88%91%E6%83%B3%E8%A6%81%E7%9A%84&Refer=top) `1.3M 🔥`
 1. [女孩救起大黄蜂后将其当宠物养](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%A9%E6%95%91%E8%B5%B7%E5%A4%A7%E9%BB%84%E8%9C%82%E5%90%8E%E5%B0%86%E5%85%B6%E5%BD%93%E5%AE%A0%E7%89%A9%E5%85%BB%23&Refer=top) `1.3M 🔥`
 1. [杨迪回应耍小牌](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E8%BF%AA%E5%9B%9E%E5%BA%94%E8%80%8D%E5%B0%8F%E7%89%8C%23&Refer=top) `1.3M 🔥`
-1. [Lisa将solo出道](https://s.weibo.com/weibo?q=%23Lisa%E5%B0%86solo%E5%87%BA%E9%81%93%23&Refer=top) `1.3M 🔥`
 
-数据更新于 2021-08-23 22:20:22
+数据更新于 2021-08-23 22:29:43
 
 <!-- END -->
 
