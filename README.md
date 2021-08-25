@@ -57,7 +57,7 @@
 1. [塔利班发言人说卷起袖子建设阿富汗](https://s.weibo.com/weibo?q=%23%E5%A1%94%E5%88%A9%E7%8F%AD%E5%8F%91%E8%A8%80%E4%BA%BA%E8%AF%B4%E5%8D%B7%E8%B5%B7%E8%A2%96%E5%AD%90%E5%BB%BA%E8%AE%BE%E9%98%BF%E5%AF%8C%E6%B1%97%23&Refer=top) `1.1M 🔥`
 1. [塔利班高层在喀布尔会见中国大使](https://s.weibo.com/weibo?q=%E5%A1%94%E5%88%A9%E7%8F%AD%E9%AB%98%E5%B1%82%E5%9C%A8%E5%96%80%E5%B8%83%E5%B0%94%E4%BC%9A%E8%A7%81%E4%B8%AD%E5%9B%BD%E5%A4%A7%E4%BD%BF&Refer=top) `1.1M 🔥`
 
-数据更新于 2021-08-25 19:46:15
+数据更新于 2021-08-25 19:52:33
 
 <!-- END -->
 
