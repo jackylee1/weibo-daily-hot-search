@@ -16,8 +16,8 @@
 1. [李承铉James张淇yellow舞台](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E6%89%BF%E9%93%89James%E5%BC%A0%E6%B7%87yellow%E8%88%9E%E5%8F%B0%23&Refer=top) `2.2M 🔥`
 1. [央视新闻主播徐俐宣布退休](https://s.weibo.com/weibo?q=%E5%A4%AE%E8%A7%86%E6%96%B0%E9%97%BB%E4%B8%BB%E6%92%AD%E5%BE%90%E4%BF%90%E5%AE%A3%E5%B8%83%E9%80%80%E4%BC%91&Refer=top) `1.9M 🔥`
 1. [张继科白回来了](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E7%BB%A7%E7%A7%91%E7%99%BD%E5%9B%9E%E6%9D%A5%E4%BA%86%23&Refer=top) `1.9M 🔥`
+1. [周琦举报新疆队违规](https://s.weibo.com/weibo?q=%23%E5%91%A8%E7%90%A6%E4%B8%BE%E6%8A%A5%E6%96%B0%E7%96%86%E9%98%9F%E8%BF%9D%E8%A7%84%23&Refer=top) `1.8M 🔥`
 1. [八佰日本定档](https://s.weibo.com/weibo?q=%23%E5%85%AB%E4%BD%B0%E6%97%A5%E6%9C%AC%E5%AE%9A%E6%A1%A3%23&Refer=top) `1.7M 🔥`
-1. [周琦举报新疆队违规](https://s.weibo.com/weibo?q=%23%E5%91%A8%E7%90%A6%E4%B8%BE%E6%8A%A5%E6%96%B0%E7%96%86%E9%98%9F%E8%BF%9D%E8%A7%84%23&Refer=top) `1.7M 🔥`
 1. [被披荆斩棘的哥哥舞台提示清单笑死](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E6%8A%AB%E8%8D%86%E6%96%A9%E6%A3%98%E7%9A%84%E5%93%A5%E5%93%A5%E8%88%9E%E5%8F%B0%E6%8F%90%E7%A4%BA%E6%B8%85%E5%8D%95%E7%AC%91%E6%AD%BB%23&Refer=top) `1.6M 🔥`
 1. [粉头卷走140万和母亲跑路](https://s.weibo.com/weibo?q=%23%E7%B2%89%E5%A4%B4%E5%8D%B7%E8%B5%B0140%E4%B8%87%E5%92%8C%E6%AF%8D%E4%BA%B2%E8%B7%91%E8%B7%AF%23&Refer=top) `1.6M 🔥`
 1. [保姆摔倒瞬间紧紧抱住孩子](https://s.weibo.com/weibo?q=%23%E4%BF%9D%E5%A7%86%E6%91%94%E5%80%92%E7%9E%AC%E9%97%B4%E7%B4%A7%E7%B4%A7%E6%8A%B1%E4%BD%8F%E5%AD%A9%E5%AD%90%23&Refer=top) `1.6M 🔥`
@@ -57,7 +57,7 @@
 1. [庞博 黑白不分的是一部分网友](https://s.weibo.com/weibo?q=%E5%BA%9E%E5%8D%9A%20%E9%BB%91%E7%99%BD%E4%B8%8D%E5%88%86%E7%9A%84%E6%98%AF%E4%B8%80%E9%83%A8%E5%88%86%E7%BD%91%E5%8F%8B&Refer=top) `693.3K 🔥`
 1. [两骑手起争执都以为来劝架的是自己人](https://s.weibo.com/weibo?q=%23%E4%B8%A4%E9%AA%91%E6%89%8B%E8%B5%B7%E4%BA%89%E6%89%A7%E9%83%BD%E4%BB%A5%E4%B8%BA%E6%9D%A5%E5%8A%9D%E6%9E%B6%E7%9A%84%E6%98%AF%E8%87%AA%E5%B7%B1%E4%BA%BA%23&Refer=top) `693.1K 🔥`
 
-数据更新于 2021-08-26 14:20:51
+数据更新于 2021-08-26 14:39:41
 
 <!-- END -->
 
