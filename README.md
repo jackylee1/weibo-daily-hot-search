@@ -40,6 +40,7 @@
 1. [乔二强听到马素芹录音](https://s.weibo.com/weibo?q=%23%E4%B9%94%E4%BA%8C%E5%BC%BA%E5%90%AC%E5%88%B0%E9%A9%AC%E7%B4%A0%E8%8A%B9%E5%BD%95%E9%9F%B3%23&Refer=top) `518.3K 🔥`
 1. [扬州新增1例确诊来自封控小区](https://s.weibo.com/weibo?q=%23%E6%89%AC%E5%B7%9E%E6%96%B0%E5%A2%9E1%E4%BE%8B%E7%A1%AE%E8%AF%8A%E6%9D%A5%E8%87%AA%E5%B0%81%E6%8E%A7%E5%B0%8F%E5%8C%BA%23&Refer=top) `509.1K 🔥`
 1. [周震南听周雨彤唱歌时的反应](https://s.weibo.com/weibo?q=%E5%91%A8%E9%9C%87%E5%8D%97%E5%90%AC%E5%91%A8%E9%9B%A8%E5%BD%A4%E5%94%B1%E6%AD%8C%E6%97%B6%E7%9A%84%E5%8F%8D%E5%BA%94&Refer=top) `503.6K 🔥`
+1. [一张图看懂娱乐圈的资本局](https://s.weibo.com/weibo?q=%E4%B8%80%E5%BC%A0%E5%9B%BE%E7%9C%8B%E6%87%82%E5%A8%B1%E4%B9%90%E5%9C%88%E7%9A%84%E8%B5%84%E6%9C%AC%E5%B1%80&Refer=top) `467.0K 🔥`
 1. [钱枫发声明回应](https://s.weibo.com/weibo?q=%23%E9%92%B1%E6%9E%AB%E5%8F%91%E5%A3%B0%E6%98%8E%E5%9B%9E%E5%BA%94%23&Refer=top) `452.3K 🔥`
 1. [官方回应10字防疫条幅错4字](https://s.weibo.com/weibo?q=%23%E5%AE%98%E6%96%B9%E5%9B%9E%E5%BA%9410%E5%AD%97%E9%98%B2%E7%96%AB%E6%9D%A1%E5%B9%85%E9%94%994%E5%AD%97%23&Refer=top) `443.9K 🔥`
 1. [宋雨琦vocal实力](https://s.weibo.com/weibo?q=%23%E5%AE%8B%E9%9B%A8%E7%90%A6vocal%E5%AE%9E%E5%8A%9B%23&Refer=top) `412.9K 🔥`
@@ -55,9 +56,8 @@
 1. [央视曝光注销支付宝学生账户骗局](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E6%9B%9D%E5%85%89%E6%B3%A8%E9%94%80%E6%94%AF%E4%BB%98%E5%AE%9D%E5%AD%A6%E7%94%9F%E8%B4%A6%E6%88%B7%E9%AA%97%E5%B1%80%23&Refer=top) `298.9K 🔥`
 1. [周生辰血书](https://s.weibo.com/weibo?q=%23%E5%91%A8%E7%94%9F%E8%BE%B0%E8%A1%80%E4%B9%A6%23&Refer=top) `288.1K 🔥`
 1. [虚竹小天山童姥对手戏](https://s.weibo.com/weibo?q=%23%E8%99%9A%E7%AB%B9%E5%B0%8F%E5%A4%A9%E5%B1%B1%E7%AB%A5%E5%A7%A5%E5%AF%B9%E6%89%8B%E6%88%8F%23&Refer=top) `283.8K 🔥`
-1. [乔一成误会叶小朗](https://s.weibo.com/weibo?q=%23%E4%B9%94%E4%B8%80%E6%88%90%E8%AF%AF%E4%BC%9A%E5%8F%B6%E5%B0%8F%E6%9C%97%23&Refer=top) `267.7K 🔥`
 
-数据更新于 2021-08-28 07:21:17
+数据更新于 2021-08-28 07:31:01
 
 <!-- END -->
 
