@@ -43,6 +43,7 @@
 1. [广电总局称严肃处理违法违规演艺人员](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E7%94%B5%E6%80%BB%E5%B1%80%E7%A7%B0%E4%B8%A5%E8%82%83%E5%A4%84%E7%90%86%E8%BF%9D%E6%B3%95%E8%BF%9D%E8%A7%84%E6%BC%94%E8%89%BA%E4%BA%BA%E5%91%98%23&Refer=top) `3.8M 🔥`
 1. [明星超话cp超话 取消排名](https://s.weibo.com/weibo?q=%E6%98%8E%E6%98%9F%E8%B6%85%E8%AF%9Dcp%E8%B6%85%E8%AF%9D%20%E5%8F%96%E6%B6%88%E6%8E%92%E5%90%8D&Refer=top) `3.7M 🔥`
 1. [多家明星工作室发布理智追星倡议书](https://s.weibo.com/weibo?q=%23%E5%A4%9A%E5%AE%B6%E6%98%8E%E6%98%9F%E5%B7%A5%E4%BD%9C%E5%AE%A4%E5%8F%91%E5%B8%83%E7%90%86%E6%99%BA%E8%BF%BD%E6%98%9F%E5%80%A1%E8%AE%AE%E4%B9%A6%23&Refer=top) `3.5M 🔥`
+1. [电视剧倩女幽魂出品方虚增收入4.6亿元](https://s.weibo.com/weibo?q=%23%E7%94%B5%E8%A7%86%E5%89%A7%E5%80%A9%E5%A5%B3%E5%B9%BD%E9%AD%82%E5%87%BA%E5%93%81%E6%96%B9%E8%99%9A%E5%A2%9E%E6%94%B6%E5%85%A54.6%E4%BA%BF%E5%85%83%23&Refer=top) `3.5M 🔥`
 1. [胡海泉顶风作wink](https://s.weibo.com/weibo?q=%23%E8%83%A1%E6%B5%B7%E6%B3%89%E9%A1%B6%E9%A3%8E%E4%BD%9Cwink%23&Refer=top) `3.4M 🔥`
 1. [ISIS宣布对喀布尔爆炸负责](https://s.weibo.com/weibo?q=%23ISIS%E5%AE%A3%E5%B8%83%E5%AF%B9%E5%96%80%E5%B8%83%E5%B0%94%E7%88%86%E7%82%B8%E8%B4%9F%E8%B4%A3%23&Refer=top) `2.8M 🔥`
 1. [万惠](https://s.weibo.com/weibo?q=%E4%B8%87%E6%83%A0&Refer=top) `2.7M 🔥`
@@ -55,9 +56,8 @@
 1. [女孩5岁练舞下腰致截瘫](https://s.weibo.com/weibo?q=%E5%A5%B3%E5%AD%A95%E5%B2%81%E7%BB%83%E8%88%9E%E4%B8%8B%E8%85%B0%E8%87%B4%E6%88%AA%E7%98%AB&Refer=top) `2.1M 🔥`
 1. [我国8.88亿人刷短视频](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD8.88%E4%BA%BF%E4%BA%BA%E5%88%B7%E7%9F%AD%E8%A7%86%E9%A2%91%23&Refer=top) `2.0M 🔥`
 1. [中美经贸团队保持正常沟通](https://s.weibo.com/weibo?q=%E4%B8%AD%E7%BE%8E%E7%BB%8F%E8%B4%B8%E5%9B%A2%E9%98%9F%E4%BF%9D%E6%8C%81%E6%AD%A3%E5%B8%B8%E6%B2%9F%E9%80%9A&Refer=top) `1.9M 🔥`
-1. [女子与公公发生口角后被杀害](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E4%B8%8E%E5%85%AC%E5%85%AC%E5%8F%91%E7%94%9F%E5%8F%A3%E8%A7%92%E5%90%8E%E8%A2%AB%E6%9D%80%E5%AE%B3%23&Refer=top) `1.9M 🔥`
 
-数据更新于 2021-08-27 18:26:24
+数据更新于 2021-08-27 18:37:45
 
 <!-- END -->
 
