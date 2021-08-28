@@ -33,11 +33,12 @@
 1. [xiaocaobao](https://s.weibo.com/weibo?q=xiaocaobao&Refer=top) `1.1M 🔥`
 1. [长时间使用耳机或致耳朵发炎](https://s.weibo.com/weibo?q=%23%E9%95%BF%E6%97%B6%E9%97%B4%E4%BD%BF%E7%94%A8%E8%80%B3%E6%9C%BA%E6%88%96%E8%87%B4%E8%80%B3%E6%9C%B5%E5%8F%91%E7%82%8E%23&Refer=top) `1.1M 🔥`
 1. [灵魂试图回到肉体](https://s.weibo.com/weibo?q=%23%E7%81%B5%E9%AD%82%E8%AF%95%E5%9B%BE%E5%9B%9E%E5%88%B0%E8%82%89%E4%BD%93%23&Refer=top) `1.0M 🔥`
+1. [微博全面下线明星排行榜单](https://s.weibo.com/weibo?q=%23%E5%BE%AE%E5%8D%9A%E5%85%A8%E9%9D%A2%E4%B8%8B%E7%BA%BF%E6%98%8E%E6%98%9F%E6%8E%92%E8%A1%8C%E6%A6%9C%E5%8D%95%23&Refer=top) `987.6K 🔥`
 1. [袁隆平爷爷的禾下乘凉梦成真了](https://s.weibo.com/weibo?q=%23%E8%A2%81%E9%9A%86%E5%B9%B3%E7%88%B7%E7%88%B7%E7%9A%84%E7%A6%BE%E4%B8%8B%E4%B9%98%E5%87%89%E6%A2%A6%E6%88%90%E7%9C%9F%E4%BA%86%23&Refer=top) `982.4K 🔥`
-1. [微博全面下线明星排行榜单](https://s.weibo.com/weibo?q=%23%E5%BE%AE%E5%8D%9A%E5%85%A8%E9%9D%A2%E4%B8%8B%E7%BA%BF%E6%98%8E%E6%98%9F%E6%8E%92%E8%A1%8C%E6%A6%9C%E5%8D%95%23&Refer=top) `980.8K 🔥`
 1. [男子劝人结账被杀案凶手被判死缓](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E5%8A%9D%E4%BA%BA%E7%BB%93%E8%B4%A6%E8%A2%AB%E6%9D%80%E6%A1%88%E5%87%B6%E6%89%8B%E8%A2%AB%E5%88%A4%E6%AD%BB%E7%BC%93%23&Refer=top) `961.1K 🔥`
 1. [大江意难平](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E6%B1%9F%E6%84%8F%E9%9A%BE%E5%B9%B3%23&Refer=top) `955.4K 🔥`
 1. [被陈建波气死](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E9%99%88%E5%BB%BA%E6%B3%A2%E6%B0%94%E6%AD%BB%23&Refer=top) `882.9K 🔥`
+1. [女子被刷脸背上万余元贷款](https://s.weibo.com/weibo?q=%E5%A5%B3%E5%AD%90%E8%A2%AB%E5%88%B7%E8%84%B8%E8%83%8C%E4%B8%8A%E4%B8%87%E4%BD%99%E5%85%83%E8%B4%B7%E6%AC%BE&Refer=top) `881.9K 🔥`
 1. [一剪指甲就假装晕倒的狗子](https://s.weibo.com/weibo?q=%23%E4%B8%80%E5%89%AA%E6%8C%87%E7%94%B2%E5%B0%B1%E5%81%87%E8%A3%85%E6%99%95%E5%80%92%E7%9A%84%E7%8B%97%E5%AD%90%23&Refer=top) `876.6K 🔥`
 1. [周杰伦新歌MV前奏](https://s.weibo.com/weibo?q=%E5%91%A8%E6%9D%B0%E4%BC%A6%E6%96%B0%E6%AD%8CMV%E5%89%8D%E5%A5%8F&Refer=top) `863.9K 🔥`
 1. [南方宿舍里的最大威胁](https://s.weibo.com/weibo?q=%23%E5%8D%97%E6%96%B9%E5%AE%BF%E8%88%8D%E9%87%8C%E7%9A%84%E6%9C%80%E5%A4%A7%E5%A8%81%E8%83%81%23&Refer=top) `863.0K 🔥`
@@ -55,9 +56,8 @@
 1. [央视评主流价值不容做空](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E8%AF%84%E4%B8%BB%E6%B5%81%E4%BB%B7%E5%80%BC%E4%B8%8D%E5%AE%B9%E5%81%9A%E7%A9%BA%23&Refer=top) `805.2K 🔥`
 1. [成都27岁男子被室友连砍数刀重伤](https://s.weibo.com/weibo?q=%23%E6%88%90%E9%83%BD27%E5%B2%81%E7%94%B7%E5%AD%90%E8%A2%AB%E5%AE%A4%E5%8F%8B%E8%BF%9E%E7%A0%8D%E6%95%B0%E5%88%80%E9%87%8D%E4%BC%A4%23&Refer=top) `802.6K 🔥`
 1. [我国已迎回716位在韩志愿军烈士遗骸](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%9B%BD%E5%B7%B2%E8%BF%8E%E5%9B%9E716%E4%BD%8D%E5%9C%A8%E9%9F%A9%E5%BF%97%E6%84%BF%E5%86%9B%E7%83%88%E5%A3%AB%E9%81%97%E9%AA%B8%23&Refer=top) `802.3K 🔥`
-1. [00后少年40分钟造一部手机](https://s.weibo.com/weibo?q=%2300%E5%90%8E%E5%B0%91%E5%B9%B440%E5%88%86%E9%92%9F%E9%80%A0%E4%B8%80%E9%83%A8%E6%89%8B%E6%9C%BA%23&Refer=top) `801.9K 🔥`
 
-数据更新于 2021-08-28 20:04:22
+数据更新于 2021-08-28 20:17:03
 
 <!-- END -->
 
