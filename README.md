@@ -25,16 +25,16 @@
 1. [妈妈捐书意外发现竟混入暑假作业](https://s.weibo.com/weibo?q=%E5%A6%88%E5%A6%88%E6%8D%90%E4%B9%A6%E6%84%8F%E5%A4%96%E5%8F%91%E7%8E%B0%E7%AB%9F%E6%B7%B7%E5%85%A5%E6%9A%91%E5%81%87%E4%BD%9C%E4%B8%9A&Refer=top) `1.4M 🔥`
 1. [容嬷嬷的针为啥又狠又准](https://s.weibo.com/weibo?q=%23%E5%AE%B9%E5%AC%B7%E5%AC%B7%E7%9A%84%E9%92%88%E4%B8%BA%E5%95%A5%E5%8F%88%E7%8B%A0%E5%8F%88%E5%87%86%23&Refer=top) `1.3M 🔥`
 1. [中国人没见过的中国](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E4%BA%BA%E6%B2%A1%E8%A7%81%E8%BF%87%E7%9A%84%E4%B8%AD%E5%9B%BD%23&Refer=top) `1.3M 🔥`
+1. [新型第三代毒品有多危险](https://s.weibo.com/weibo?q=%23%E6%96%B0%E5%9E%8B%E7%AC%AC%E4%B8%89%E4%BB%A3%E6%AF%92%E5%93%81%E6%9C%89%E5%A4%9A%E5%8D%B1%E9%99%A9%23&Refer=top) `1.1M 🔥`
 1. [xiaocaobao](https://s.weibo.com/weibo?q=xiaocaobao&Refer=top) `1.1M 🔥`
+1. [大润发销售发臭隔夜肉被罚139万](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E6%B6%A6%E5%8F%91%E9%94%80%E5%94%AE%E5%8F%91%E8%87%AD%E9%9A%94%E5%A4%9C%E8%82%89%E8%A2%AB%E7%BD%9A139%E4%B8%87%23&Refer=top) `1.1M 🔥`
 1. [长时间使用耳机或致耳朵发炎](https://s.weibo.com/weibo?q=%23%E9%95%BF%E6%97%B6%E9%97%B4%E4%BD%BF%E7%94%A8%E8%80%B3%E6%9C%BA%E6%88%96%E8%87%B4%E8%80%B3%E6%9C%B5%E5%8F%91%E7%82%8E%23&Refer=top) `1.1M 🔥`
 1. [灵魂试图回到肉体](https://s.weibo.com/weibo?q=%23%E7%81%B5%E9%AD%82%E8%AF%95%E5%9B%BE%E5%9B%9E%E5%88%B0%E8%82%89%E4%BD%93%23&Refer=top) `1.0M 🔥`
 1. [男子劝人结账被杀案凶手被判死缓](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E5%8A%9D%E4%BA%BA%E7%BB%93%E8%B4%A6%E8%A2%AB%E6%9D%80%E6%A1%88%E5%87%B6%E6%89%8B%E8%A2%AB%E5%88%A4%E6%AD%BB%E7%BC%93%23&Refer=top) `961.1K 🔥`
 1. [大江意难平](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E6%B1%9F%E6%84%8F%E9%9A%BE%E5%B9%B3%23&Refer=top) `955.4K 🔥`
 1. [被陈建波气死](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E9%99%88%E5%BB%BA%E6%B3%A2%E6%B0%94%E6%AD%BB%23&Refer=top) `882.9K 🔥`
-1. [新型第三代毒品有多危险](https://s.weibo.com/weibo?q=%23%E6%96%B0%E5%9E%8B%E7%AC%AC%E4%B8%89%E4%BB%A3%E6%AF%92%E5%93%81%E6%9C%89%E5%A4%9A%E5%8D%B1%E9%99%A9%23&Refer=top) `865.3K 🔥`
 1. [周杰伦新歌MV前奏](https://s.weibo.com/weibo?q=%E5%91%A8%E6%9D%B0%E4%BC%A6%E6%96%B0%E6%AD%8CMV%E5%89%8D%E5%A5%8F&Refer=top) `863.9K 🔥`
-1. [袁隆平爷爷的禾下乘凉梦成真了](https://s.weibo.com/weibo?q=%23%E8%A2%81%E9%9A%86%E5%B9%B3%E7%88%B7%E7%88%B7%E7%9A%84%E7%A6%BE%E4%B8%8B%E4%B9%98%E5%87%89%E6%A2%A6%E6%88%90%E7%9C%9F%E4%BA%86%23&Refer=top) `845.6K 🔥`
-1. [大润发销售发臭隔夜肉被罚139万](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E6%B6%A6%E5%8F%91%E9%94%80%E5%94%AE%E5%8F%91%E8%87%AD%E9%9A%94%E5%A4%9C%E8%82%89%E8%A2%AB%E7%BD%9A139%E4%B8%87%23&Refer=top) `830.5K 🔥`
+1. [袁隆平爷爷的禾下乘凉梦成真了](https://s.weibo.com/weibo?q=%23%E8%A2%81%E9%9A%86%E5%B9%B3%E7%88%B7%E7%88%B7%E7%9A%84%E7%A6%BE%E4%B8%8B%E4%B9%98%E5%87%89%E6%A2%A6%E6%88%90%E7%9C%9F%E4%BA%86%23&Refer=top) `847.1K 🔥`
 1. [原来彩虹的全貌是圆形的](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E5%BD%A9%E8%99%B9%E7%9A%84%E5%85%A8%E8%B2%8C%E6%98%AF%E5%9C%86%E5%BD%A2%E7%9A%84%23&Refer=top) `829.4K 🔥`
 1. [高考落榜姑娘写小说一部卖47万](https://s.weibo.com/weibo?q=%23%E9%AB%98%E8%80%83%E8%90%BD%E6%A6%9C%E5%A7%91%E5%A8%98%E5%86%99%E5%B0%8F%E8%AF%B4%E4%B8%80%E9%83%A8%E5%8D%9647%E4%B8%87%23&Refer=top) `825.5K 🔥`
 1. [照顾3年的女友姑妈竟是女友本人](https://s.weibo.com/weibo?q=%23%E7%85%A7%E9%A1%BE3%E5%B9%B4%E7%9A%84%E5%A5%B3%E5%8F%8B%E5%A7%91%E5%A6%88%E7%AB%9F%E6%98%AF%E5%A5%B3%E5%8F%8B%E6%9C%AC%E4%BA%BA%23&Refer=top) `820.9K 🔥`
@@ -57,7 +57,7 @@
 1. [司机太困自抽耳光还是撞了车](https://s.weibo.com/weibo?q=%23%E5%8F%B8%E6%9C%BA%E5%A4%AA%E5%9B%B0%E8%87%AA%E6%8A%BD%E8%80%B3%E5%85%89%E8%BF%98%E6%98%AF%E6%92%9E%E4%BA%86%E8%BD%A6%23&Refer=top) `737.5K 🔥`
 1. [朱丹泰终于死了](https://s.weibo.com/weibo?q=%23%E6%9C%B1%E4%B8%B9%E6%B3%B0%E7%BB%88%E4%BA%8E%E6%AD%BB%E4%BA%86%23&Refer=top) `737.0K 🔥`
 
-数据更新于 2021-08-28 16:35:56
+数据更新于 2021-08-28 16:44:27
 
 <!-- END -->
 
