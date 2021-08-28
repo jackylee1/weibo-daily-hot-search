@@ -57,7 +57,7 @@
 1. [司机太困自抽耳光还是撞了车](https://s.weibo.com/weibo?q=%23%E5%8F%B8%E6%9C%BA%E5%A4%AA%E5%9B%B0%E8%87%AA%E6%8A%BD%E8%80%B3%E5%85%89%E8%BF%98%E6%98%AF%E6%92%9E%E4%BA%86%E8%BD%A6%23&Refer=top) `737.5K 🔥`
 1. [朱丹泰终于死了](https://s.weibo.com/weibo?q=%23%E6%9C%B1%E4%B8%B9%E6%B3%B0%E7%BB%88%E4%BA%8E%E6%AD%BB%E4%BA%86%23&Refer=top) `737.0K 🔥`
 
-数据更新于 2021-08-28 16:51:26
+数据更新于 2021-08-28 16:57:04
 
 <!-- END -->
 
