@@ -26,8 +26,8 @@
 1. [容嬷嬷的针为啥又狠又准](https://s.weibo.com/weibo?q=%23%E5%AE%B9%E5%AC%B7%E5%AC%B7%E7%9A%84%E9%92%88%E4%B8%BA%E5%95%A5%E5%8F%88%E7%8B%A0%E5%8F%88%E5%87%86%23&Refer=top) `1.3M 🔥`
 1. [中国人没见过的中国](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E4%BA%BA%E6%B2%A1%E8%A7%81%E8%BF%87%E7%9A%84%E4%B8%AD%E5%9B%BD%23&Refer=top) `1.3M 🔥`
 1. [长时间使用耳机或致耳朵发炎](https://s.weibo.com/weibo?q=%23%E9%95%BF%E6%97%B6%E9%97%B4%E4%BD%BF%E7%94%A8%E8%80%B3%E6%9C%BA%E6%88%96%E8%87%B4%E8%80%B3%E6%9C%B5%E5%8F%91%E7%82%8E%23&Refer=top) `1.1M 🔥`
+1. [灵魂试图回到肉体](https://s.weibo.com/weibo?q=%23%E7%81%B5%E9%AD%82%E8%AF%95%E5%9B%BE%E5%9B%9E%E5%88%B0%E8%82%89%E4%BD%93%23&Refer=top) `1.0M 🔥`
 1. [大江意难平](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E6%B1%9F%E6%84%8F%E9%9A%BE%E5%B9%B3%23&Refer=top) `955.4K 🔥`
-1. [灵魂试图回到肉体](https://s.weibo.com/weibo?q=%23%E7%81%B5%E9%AD%82%E8%AF%95%E5%9B%BE%E5%9B%9E%E5%88%B0%E8%82%89%E4%BD%93%23&Refer=top) `901.6K 🔥`
 1. [被陈建波气死](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E9%99%88%E5%BB%BA%E6%B3%A2%E6%B0%94%E6%AD%BB%23&Refer=top) `882.9K 🔥`
 1. [周杰伦新歌MV前奏](https://s.weibo.com/weibo?q=%E5%91%A8%E6%9D%B0%E4%BC%A6%E6%96%B0%E6%AD%8CMV%E5%89%8D%E5%A5%8F&Refer=top) `863.9K 🔥`
 1. [原来彩虹的全貌是圆形的](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E5%BD%A9%E8%99%B9%E7%9A%84%E5%85%A8%E8%B2%8C%E6%98%AF%E5%9C%86%E5%BD%A2%E7%9A%84%23&Refer=top) `829.4K 🔥`
@@ -57,7 +57,7 @@
 1. [港普四美头像集体换光头](https://s.weibo.com/weibo?q=%23%E6%B8%AF%E6%99%AE%E5%9B%9B%E7%BE%8E%E5%A4%B4%E5%83%8F%E9%9B%86%E4%BD%93%E6%8D%A2%E5%85%89%E5%A4%B4%23&Refer=top) `684.3K 🔥`
 1. [云南妈妈自学植物染承包女儿所有衣服](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E5%A6%88%E5%A6%88%E8%87%AA%E5%AD%A6%E6%A4%8D%E7%89%A9%E6%9F%93%E6%89%BF%E5%8C%85%E5%A5%B3%E5%84%BF%E6%89%80%E6%9C%89%E8%A1%A3%E6%9C%8D%23&Refer=top) `671.0K 🔥`
 
-数据更新于 2021-08-28 14:19:06
+数据更新于 2021-08-28 14:38:06
 
 <!-- END -->
 
