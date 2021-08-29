@@ -51,13 +51,13 @@
 1. [云南将停办独生子女父母光荣证](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E5%B0%86%E5%81%9C%E5%8A%9E%E7%8B%AC%E7%94%9F%E5%AD%90%E5%A5%B3%E7%88%B6%E6%AF%8D%E5%85%89%E8%8D%A3%E8%AF%81%23&Refer=top) `583.0K 🔥`
 1. [70秒打卡惊艳了整个夏天的浪漫](https://s.weibo.com/weibo?q=%2370%E7%A7%92%E6%89%93%E5%8D%A1%E6%83%8A%E8%89%B3%E4%BA%86%E6%95%B4%E4%B8%AA%E5%A4%8F%E5%A4%A9%E7%9A%84%E6%B5%AA%E6%BC%AB%23&Refer=top) `563.5K 🔥`
 1. [失控玩家](https://s.weibo.com/weibo?q=%E5%A4%B1%E6%8E%A7%E7%8E%A9%E5%AE%B6&Refer=top) `556.7K 🔥`
+1. [德尔塔毒株致美国新冠疫苗有效性降低](https://s.weibo.com/weibo?q=%23%E5%BE%B7%E5%B0%94%E5%A1%94%E6%AF%92%E6%A0%AA%E8%87%B4%E7%BE%8E%E5%9B%BD%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E6%9C%89%E6%95%88%E6%80%A7%E9%99%8D%E4%BD%8E%23&Refer=top) `556.7K 🔥`
+1. [来自工科爸爸的奖励](https://s.weibo.com/weibo?q=%23%E6%9D%A5%E8%87%AA%E5%B7%A5%E7%A7%91%E7%88%B8%E7%88%B8%E7%9A%84%E5%A5%96%E5%8A%B1%23&Refer=top) `555.8K 🔥`
+1. [东京残奥会](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E4%BA%AC%E6%AE%8B%E5%A5%A5%E4%BC%9A%23&Refer=top) `554.6K 🔥`
 1. [别轻易带狗狗坐电动车](https://s.weibo.com/weibo?q=%23%E5%88%AB%E8%BD%BB%E6%98%93%E5%B8%A6%E7%8B%97%E7%8B%97%E5%9D%90%E7%94%B5%E5%8A%A8%E8%BD%A6%23&Refer=top) `538.5K 🔥`
-1. [云南虫谷王的献祭片头](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E8%99%AB%E8%B0%B7%E7%8E%8B%E7%9A%84%E7%8C%AE%E7%A5%AD%E7%89%87%E5%A4%B4%23&Refer=top) `532.3K 🔥`
-1. [中国有多少位财神爷](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E6%9C%89%E5%A4%9A%E5%B0%91%E4%BD%8D%E8%B4%A2%E7%A5%9E%E7%88%B7%23&Refer=top) `531.1K 🔥`
-1. [西班牙公司发明种子纸用完可种植物](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E7%8F%AD%E7%89%99%E5%85%AC%E5%8F%B8%E5%8F%91%E6%98%8E%E7%A7%8D%E5%AD%90%E7%BA%B8%E7%94%A8%E5%AE%8C%E5%8F%AF%E7%A7%8D%E6%A4%8D%E7%89%A9%23&Refer=top) `528.7K 🔥`
-1. [QG夺冠](https://s.weibo.com/weibo?q=%23QG%E5%A4%BA%E5%86%A0%23&Refer=top) `519.6K 🔥`
+1. [云南虫谷王的献祭片头](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E8%99%AB%E8%B0%B7%E7%8E%8B%E7%9A%84%E7%8C%AE%E7%A5%AD%E7%89%87%E5%A4%B4%23&Refer=top) `532.6K 🔥`
 
-数据更新于 2021-08-29 14:18:41
+数据更新于 2021-08-29 14:37:42
 
 <!-- END -->
 
