@@ -48,16 +48,16 @@
 1. [外卖员街头殴打送快递老人](https://s.weibo.com/weibo?q=%23%E5%A4%96%E5%8D%96%E5%91%98%E8%A1%97%E5%A4%B4%E6%AE%B4%E6%89%93%E9%80%81%E5%BF%AB%E9%80%92%E8%80%81%E4%BA%BA%23&Refer=top) `347.3K 🔥`
 1. [如何评价扫黑风暴里的大江](https://s.weibo.com/weibo?q=%23%E5%A6%82%E4%BD%95%E8%AF%84%E4%BB%B7%E6%89%AB%E9%BB%91%E9%A3%8E%E6%9A%B4%E9%87%8C%E7%9A%84%E5%A4%A7%E6%B1%9F%23&Refer=top) `344.0K 🔥`
 1. [前奥委会主席罗格去世](https://s.weibo.com/weibo?q=%23%E5%89%8D%E5%A5%A5%E5%A7%94%E4%BC%9A%E4%B8%BB%E5%B8%AD%E7%BD%97%E6%A0%BC%E5%8E%BB%E4%B8%96%23&Refer=top) `339.4K 🔥`
+1. [央视曝光零基础医美手术速成班](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E6%9B%9D%E5%85%89%E9%9B%B6%E5%9F%BA%E7%A1%80%E5%8C%BB%E7%BE%8E%E6%89%8B%E6%9C%AF%E9%80%9F%E6%88%90%E7%8F%AD%23&Refer=top) `337.1K 🔥`
 1. [新疆长寿村的长寿秘密](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%96%86%E9%95%BF%E5%AF%BF%E6%9D%91%E7%9A%84%E9%95%BF%E5%AF%BF%E7%A7%98%E5%AF%86%23&Refer=top) `335.6K 🔥`
-1. [东京地铁泼硫酸男子已被捕](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E4%BA%AC%E5%9C%B0%E9%93%81%E6%B3%BC%E7%A1%AB%E9%85%B8%E7%94%B7%E5%AD%90%E5%B7%B2%E8%A2%AB%E6%8D%95%23&Refer=top) `334.0K 🔥`
+1. [东京地铁泼硫酸男子已被捕](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E4%BA%AC%E5%9C%B0%E9%93%81%E6%B3%BC%E7%A1%AB%E9%85%B8%E7%94%B7%E5%AD%90%E5%B7%B2%E8%A2%AB%E6%8D%95%23&Refer=top) `334.9K 🔥`
+1. [害怕开学的主要原因](https://s.weibo.com/weibo?q=%23%E5%AE%B3%E6%80%95%E5%BC%80%E5%AD%A6%E7%9A%84%E4%B8%BB%E8%A6%81%E5%8E%9F%E5%9B%A0%23&Refer=top) `327.9K 🔥`
 1. [美军官要求问责美军高层后被免职](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%86%9B%E5%AE%98%E8%A6%81%E6%B1%82%E9%97%AE%E8%B4%A3%E7%BE%8E%E5%86%9B%E9%AB%98%E5%B1%82%E5%90%8E%E8%A2%AB%E5%85%8D%E8%81%8C%23&Refer=top) `327.3K 🔥`
 1. [母乳喂养一定比奶粉喂养好嘛](https://s.weibo.com/weibo?q=%23%E6%AF%8D%E4%B9%B3%E5%96%82%E5%85%BB%E4%B8%80%E5%AE%9A%E6%AF%94%E5%A5%B6%E7%B2%89%E5%96%82%E5%85%BB%E5%A5%BD%E5%98%9B%23&Refer=top) `321.7K 🔥`
 1. [男子骑动感单车减肥磨出老年膝](https://s.weibo.com/weibo?q=%E7%94%B7%E5%AD%90%E9%AA%91%E5%8A%A8%E6%84%9F%E5%8D%95%E8%BD%A6%E5%87%8F%E8%82%A5%E7%A3%A8%E5%87%BA%E8%80%81%E5%B9%B4%E8%86%9D&Refer=top) `320.9K 🔥`
-1. [男子上缴模型手枪吓到民警](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E4%B8%8A%E7%BC%B4%E6%A8%A1%E5%9E%8B%E6%89%8B%E6%9E%AA%E5%90%93%E5%88%B0%E6%B0%91%E8%AD%A6%23&Refer=top) `312.8K 🔥`
-1. [央视曝光零基础医美手术速成班](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E6%9B%9D%E5%85%89%E9%9B%B6%E5%9F%BA%E7%A1%80%E5%8C%BB%E7%BE%8E%E6%89%8B%E6%9C%AF%E9%80%9F%E6%88%90%E7%8F%AD%23&Refer=top) `312.8K 🔥`
-1. [害怕开学的主要原因](https://s.weibo.com/weibo?q=%23%E5%AE%B3%E6%80%95%E5%BC%80%E5%AD%A6%E7%9A%84%E4%B8%BB%E8%A6%81%E5%8E%9F%E5%9B%A0%23&Refer=top) `312.5K 🔥`
+1. [失控玩家](https://s.weibo.com/weibo?q=%E5%A4%B1%E6%8E%A7%E7%8E%A9%E5%AE%B6&Refer=top) `316.1K 🔥`
 
-数据更新于 2021-08-30 10:15:05
+数据更新于 2021-08-30 10:34:40
 
 <!-- END -->
 
