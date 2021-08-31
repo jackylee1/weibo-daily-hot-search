@@ -37,12 +37,12 @@
 1. [把家装修成了教室](https://s.weibo.com/weibo?q=%23%E6%8A%8A%E5%AE%B6%E8%A3%85%E4%BF%AE%E6%88%90%E4%BA%86%E6%95%99%E5%AE%A4%23&Refer=top) `907.4K 🔥`
 1. [少年回应三年前倒挂6次救女孩](https://s.weibo.com/weibo?q=%23%E5%B0%91%E5%B9%B4%E5%9B%9E%E5%BA%94%E4%B8%89%E5%B9%B4%E5%89%8D%E5%80%92%E6%8C%826%E6%AC%A1%E6%95%91%E5%A5%B3%E5%AD%A9%23&Refer=top) `902.4K 🔥`
 1. [韩国房价创14年来最高涨幅](https://s.weibo.com/weibo?q=%23%E9%9F%A9%E5%9B%BD%E6%88%BF%E4%BB%B7%E5%88%9B14%E5%B9%B4%E6%9D%A5%E6%9C%80%E9%AB%98%E6%B6%A8%E5%B9%85%23&Refer=top) `881.5K 🔥`
+1. [iPhone卫星功能仅用于紧急通信](https://s.weibo.com/weibo?q=%23iPhone%E5%8D%AB%E6%98%9F%E5%8A%9F%E8%83%BD%E4%BB%85%E7%94%A8%E4%BA%8E%E7%B4%A7%E6%80%A5%E9%80%9A%E4%BF%A1%23&Refer=top) `853.3K 🔥`
 1. [官方回应摊主用路边积水蒸包子](https://s.weibo.com/weibo?q=%23%E5%AE%98%E6%96%B9%E5%9B%9E%E5%BA%94%E6%91%8A%E4%B8%BB%E7%94%A8%E8%B7%AF%E8%BE%B9%E7%A7%AF%E6%B0%B4%E8%92%B8%E5%8C%85%E5%AD%90%23&Refer=top) `823.5K 🔥`
 1. [我们的歌第三季官宣定档](https://s.weibo.com/weibo?q=%23%E6%88%91%E4%BB%AC%E7%9A%84%E6%AD%8C%E7%AC%AC%E4%B8%89%E5%AD%A3%E5%AE%98%E5%AE%A3%E5%AE%9A%E6%A1%A3%23&Refer=top) `822.3K 🔥`
-1. [iPhone卫星功能仅用于紧急通信](https://s.weibo.com/weibo?q=%23iPhone%E5%8D%AB%E6%98%9F%E5%8A%9F%E8%83%BD%E4%BB%85%E7%94%A8%E4%BA%8E%E7%B4%A7%E6%80%A5%E9%80%9A%E4%BF%A1%23&Refer=top) `822.1K 🔥`
 1. [尿毒症女孩起诉父母遗弃法院未受理](https://s.weibo.com/weibo?q=%23%E5%B0%BF%E6%AF%92%E7%97%87%E5%A5%B3%E5%AD%A9%E8%B5%B7%E8%AF%89%E7%88%B6%E6%AF%8D%E9%81%97%E5%BC%83%E6%B3%95%E9%99%A2%E6%9C%AA%E5%8F%97%E7%90%86%23&Refer=top) `821.7K 🔥`
 1. [忘记涂牙齿了](https://s.weibo.com/weibo?q=%23%E5%BF%98%E8%AE%B0%E6%B6%82%E7%89%99%E9%BD%BF%E4%BA%86%23&Refer=top) `819.8K 🔥`
-1. [山东省出现炭疽死亡病例](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E4%B8%9C%E7%9C%81%E5%87%BA%E7%8E%B0%E7%82%AD%E7%96%BD%E6%AD%BB%E4%BA%A1%E7%97%85%E4%BE%8B%23&Refer=top) `806.4K 🔥`
+1. [山东省出现炭疽死亡病例](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E4%B8%9C%E7%9C%81%E5%87%BA%E7%8E%B0%E7%82%AD%E7%96%BD%E6%AD%BB%E4%BA%A1%E7%97%85%E4%BE%8B%23&Refer=top) `812.8K 🔥`
 1. [张艺兴 偶像和演员都要有态度](https://s.weibo.com/weibo?q=%E5%BC%A0%E8%89%BA%E5%85%B4%20%E5%81%B6%E5%83%8F%E5%92%8C%E6%BC%94%E5%91%98%E9%83%BD%E8%A6%81%E6%9C%89%E6%80%81%E5%BA%A6&Refer=top) `804.5K 🔥`
 1. [惊艳了一个时代的男明星](https://s.weibo.com/weibo?q=%23%E6%83%8A%E8%89%B3%E4%BA%86%E4%B8%80%E4%B8%AA%E6%97%B6%E4%BB%A3%E7%9A%84%E7%94%B7%E6%98%8E%E6%98%9F%23&Refer=top) `799.6K 🔥`
 1. [地球最北岛屿被意外发现](https://s.weibo.com/weibo?q=%23%E5%9C%B0%E7%90%83%E6%9C%80%E5%8C%97%E5%B2%9B%E5%B1%BF%E8%A2%AB%E6%84%8F%E5%A4%96%E5%8F%91%E7%8E%B0%23&Refer=top) `780.6K 🔥`
@@ -57,7 +57,7 @@
 1. [乔七七结婚](https://s.weibo.com/weibo?q=%23%E4%B9%94%E4%B8%83%E4%B8%83%E7%BB%93%E5%A9%9A%23&Refer=top) `741.2K 🔥`
 1. [奥运冠军王曼昱返回家乡](https://s.weibo.com/weibo?q=%E5%A5%A5%E8%BF%90%E5%86%A0%E5%86%9B%E7%8E%8B%E6%9B%BC%E6%98%B1%E8%BF%94%E5%9B%9E%E5%AE%B6%E4%B9%A1&Refer=top) `736.3K 🔥`
 
-数据更新于 2021-08-31 18:25:31
+数据更新于 2021-08-31 18:37:16
 
 <!-- END -->
 
