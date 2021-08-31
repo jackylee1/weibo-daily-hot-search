@@ -19,9 +19,9 @@
 1. [不得利用晨午检和自习课进行学科教学](https://s.weibo.com/weibo?q=%23%E4%B8%8D%E5%BE%97%E5%88%A9%E7%94%A8%E6%99%A8%E5%8D%88%E6%A3%80%E5%92%8C%E8%87%AA%E4%B9%A0%E8%AF%BE%E8%BF%9B%E8%A1%8C%E5%AD%A6%E7%A7%91%E6%95%99%E5%AD%A6%23&Refer=top) `1.5M 🔥`
 1. [薇娅带货的低脂全麦欧包低标能量](https://s.weibo.com/weibo?q=%23%E8%96%87%E5%A8%85%E5%B8%A6%E8%B4%A7%E7%9A%84%E4%BD%8E%E8%84%82%E5%85%A8%E9%BA%A6%E6%AC%A7%E5%8C%85%E4%BD%8E%E6%A0%87%E8%83%BD%E9%87%8F%23&Refer=top) `1.5M 🔥`
 1. [男子相亲找老伴见面现场果断报警](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E7%9B%B8%E4%BA%B2%E6%89%BE%E8%80%81%E4%BC%B4%E8%A7%81%E9%9D%A2%E7%8E%B0%E5%9C%BA%E6%9E%9C%E6%96%AD%E6%8A%A5%E8%AD%A6%23&Refer=top) `1.3M 🔥`
+1. [住建部谈青年买不起租不好房](https://s.weibo.com/weibo?q=%23%E4%BD%8F%E5%BB%BA%E9%83%A8%E8%B0%88%E9%9D%92%E5%B9%B4%E4%B9%B0%E4%B8%8D%E8%B5%B7%E7%A7%9F%E4%B8%8D%E5%A5%BD%E6%88%BF%23&Refer=top) `1.3M 🔥`
 1. [男子赌博6小时花光100万员工工资](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E8%B5%8C%E5%8D%9A6%E5%B0%8F%E6%97%B6%E8%8A%B1%E5%85%89100%E4%B8%87%E5%91%98%E5%B7%A5%E5%B7%A5%E8%B5%84%23&Refer=top) `1.2M 🔥`
 1. [躲在毛巾下忍受疼痛的马龙](https://s.weibo.com/weibo?q=%23%E8%BA%B2%E5%9C%A8%E6%AF%9B%E5%B7%BE%E4%B8%8B%E5%BF%8D%E5%8F%97%E7%96%BC%E7%97%9B%E7%9A%84%E9%A9%AC%E9%BE%99%23&Refer=top) `1.2M 🔥`
-1. [住建部谈青年买不起租不好房](https://s.weibo.com/weibo?q=%23%E4%BD%8F%E5%BB%BA%E9%83%A8%E8%B0%88%E9%9D%92%E5%B9%B4%E4%B9%B0%E4%B8%8D%E8%B5%B7%E7%A7%9F%E4%B8%8D%E5%A5%BD%E6%88%BF%23&Refer=top) `1.2M 🔥`
 1. [云南虫谷下饭剧](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E8%99%AB%E8%B0%B7%E4%B8%8B%E9%A5%AD%E5%89%A7%23&Refer=top) `1.1M 🔥`
 1. [9张图记住这个八月](https://s.weibo.com/weibo?q=%239%E5%BC%A0%E5%9B%BE%E8%AE%B0%E4%BD%8F%E8%BF%99%E4%B8%AA%E5%85%AB%E6%9C%88%23&Refer=top) `1.1M 🔥`
 1. [LV自行车售价20万](https://s.weibo.com/weibo?q=%23LV%E8%87%AA%E8%A1%8C%E8%BD%A6%E5%94%AE%E4%BB%B720%E4%B8%87%23&Refer=top) `1.1M 🔥`
@@ -57,7 +57,7 @@
 1. [台军战机降落时刹不住车一头栽土里](https://s.weibo.com/weibo?q=%23%E5%8F%B0%E5%86%9B%E6%88%98%E6%9C%BA%E9%99%8D%E8%90%BD%E6%97%B6%E5%88%B9%E4%B8%8D%E4%BD%8F%E8%BD%A6%E4%B8%80%E5%A4%B4%E6%A0%BD%E5%9C%9F%E9%87%8C%23&Refer=top) `720.3K 🔥`
 1. [全运会西安城市形象片](https://s.weibo.com/weibo?q=%23%E5%85%A8%E8%BF%90%E4%BC%9A%E8%A5%BF%E5%AE%89%E5%9F%8E%E5%B8%82%E5%BD%A2%E8%B1%A1%E7%89%87%23&Refer=top) `714.4K 🔥`
 
-数据更新于 2021-08-31 17:24:41
+数据更新于 2021-08-31 17:34:03
 
 <!-- END -->
 
