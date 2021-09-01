@@ -24,6 +24,7 @@
 1. [女主人拿走鹅蛋被公鹅追咬大半年](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E4%B8%BB%E4%BA%BA%E6%8B%BF%E8%B5%B0%E9%B9%85%E8%9B%8B%E8%A2%AB%E5%85%AC%E9%B9%85%E8%BF%BD%E5%92%AC%E5%A4%A7%E5%8D%8A%E5%B9%B4%23&Refer=top) `1.5M 🔥`
 1. [太了吧体](https://s.weibo.com/weibo?q=%23%E5%A4%AA%E4%BA%86%E5%90%A7%E4%BD%93%23&Refer=top) `1.4M 🔥`
 1. [苏炳添杨倩孙颖莎的开学寄语](https://s.weibo.com/weibo?q=%23%E8%8B%8F%E7%82%B3%E6%B7%BB%E6%9D%A8%E5%80%A9%E5%AD%99%E9%A2%96%E8%8E%8E%E7%9A%84%E5%BC%80%E5%AD%A6%E5%AF%84%E8%AF%AD%23&Refer=top) `1.4M 🔥`
+1. [西安警方介入地铁女乘客被拖离事件](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E5%AE%89%E8%AD%A6%E6%96%B9%E4%BB%8B%E5%85%A5%E5%9C%B0%E9%93%81%E5%A5%B3%E4%B9%98%E5%AE%A2%E8%A2%AB%E6%8B%96%E7%A6%BB%E4%BA%8B%E4%BB%B6%23&Refer=top) `1.4M 🔥`
 1. [买个床上的桌子写作业](https://s.weibo.com/weibo?q=%23%E4%B9%B0%E4%B8%AA%E5%BA%8A%E4%B8%8A%E7%9A%84%E6%A1%8C%E5%AD%90%E5%86%99%E4%BD%9C%E4%B8%9A%23&Refer=top) `1.3M 🔥`
 1. [新中国历史上首个教育督导问责文件](https://s.weibo.com/weibo?q=%23%E6%96%B0%E4%B8%AD%E5%9B%BD%E5%8E%86%E5%8F%B2%E4%B8%8A%E9%A6%96%E4%B8%AA%E6%95%99%E8%82%B2%E7%9D%A3%E5%AF%BC%E9%97%AE%E8%B4%A3%E6%96%87%E4%BB%B6%23&Refer=top) `1.3M 🔥`
 1. [扫黑风暴何勇炸烂尾楼](https://s.weibo.com/weibo?q=%23%E6%89%AB%E9%BB%91%E9%A3%8E%E6%9A%B4%E4%BD%95%E5%8B%87%E7%82%B8%E7%83%82%E5%B0%BE%E6%A5%BC%23&Refer=top) `1.2M 🔥`
@@ -55,9 +56,8 @@
 1. [塔利班将于9月3日宣布组建新政府](https://s.weibo.com/weibo?q=%23%E5%A1%94%E5%88%A9%E7%8F%AD%E5%B0%86%E4%BA%8E9%E6%9C%883%E6%97%A5%E5%AE%A3%E5%B8%83%E7%BB%84%E5%BB%BA%E6%96%B0%E6%94%BF%E5%BA%9C%23&Refer=top) `584.8K 🔥`
 1. [西安地铁回应女乘客被保安拖拽](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E5%AE%89%E5%9C%B0%E9%93%81%E5%9B%9E%E5%BA%94%E5%A5%B3%E4%B9%98%E5%AE%A2%E8%A2%AB%E4%BF%9D%E5%AE%89%E6%8B%96%E6%8B%BD%23&Refer=top) `583.2K 🔥`
 1. [只有撒贝宁敢在央视这么放肆](https://s.weibo.com/weibo?q=%23%E5%8F%AA%E6%9C%89%E6%92%92%E8%B4%9D%E5%AE%81%E6%95%A2%E5%9C%A8%E5%A4%AE%E8%A7%86%E8%BF%99%E4%B9%88%E6%94%BE%E8%82%86%23&Refer=top) `581.9K 🔥`
-1. [以前8090后开学的第一天](https://s.weibo.com/weibo?q=%23%E4%BB%A5%E5%89%8D8090%E5%90%8E%E5%BC%80%E5%AD%A6%E7%9A%84%E7%AC%AC%E4%B8%80%E5%A4%A9%23&Refer=top) `579.8K 🔥`
 
-数据更新于 2021-09-01 14:04:58
+数据更新于 2021-09-01 14:22:21
 
 <!-- END -->
 
