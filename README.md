@@ -47,17 +47,17 @@
 1. [李冰终于回来了](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E5%86%B0%E7%BB%88%E4%BA%8E%E5%9B%9E%E6%9D%A5%E4%BA%86%23&Refer=top) `223.8K 🔥`
 1. [脱口秀吐槽职场有多欢乐](https://s.weibo.com/weibo?q=%23%E8%84%B1%E5%8F%A3%E7%A7%80%E5%90%90%E6%A7%BD%E8%81%8C%E5%9C%BA%E6%9C%89%E5%A4%9A%E6%AC%A2%E4%B9%90%23&Refer=top) `223.8K 🔥`
 1. [北京环球影城票价公布](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E7%8E%AF%E7%90%83%E5%BD%B1%E5%9F%8E%E7%A5%A8%E4%BB%B7%E5%85%AC%E5%B8%83%23&Refer=top) `219.9K 🔥`
+1. [女儿护爹有多硬核](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%84%BF%E6%8A%A4%E7%88%B9%E6%9C%89%E5%A4%9A%E7%A1%AC%E6%A0%B8%23&Refer=top) `213.6K 🔥`
 1. [这节奏一般人真跟不上](https://s.weibo.com/weibo?q=%23%E8%BF%99%E8%8A%82%E5%A5%8F%E4%B8%80%E8%88%AC%E4%BA%BA%E7%9C%9F%E8%B7%9F%E4%B8%8D%E4%B8%8A%23&Refer=top) `209.1K 🔥`
 1. [广东一制毒窝点发现542枚恐龙蛋化石](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E4%B8%9C%E4%B8%80%E5%88%B6%E6%AF%92%E7%AA%9D%E7%82%B9%E5%8F%91%E7%8E%B0542%E6%9E%9A%E6%81%90%E9%BE%99%E8%9B%8B%E5%8C%96%E7%9F%B3%23&Refer=top) `206.5K 🔥`
 1. [腾讯视频优化超前点播](https://s.weibo.com/weibo?q=%23%E8%85%BE%E8%AE%AF%E8%A7%86%E9%A2%91%E4%BC%98%E5%8C%96%E8%B6%85%E5%89%8D%E7%82%B9%E6%92%AD%23&Refer=top) `193.8K 🔥`
 1. [拉齐尼](https://s.weibo.com/weibo?q=%E6%8B%89%E9%BD%90%E5%B0%BC&Refer=top) `192.6K 🔥`
-1. [女儿护爹有多硬核](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%84%BF%E6%8A%A4%E7%88%B9%E6%9C%89%E5%A4%9A%E7%A1%AC%E6%A0%B8%23&Refer=top) `191.6K 🔥`
 1. [开学第一课太好哭了](https://s.weibo.com/weibo?q=%23%E5%BC%80%E5%AD%A6%E7%AC%AC%E4%B8%80%E8%AF%BE%E5%A4%AA%E5%A5%BD%E5%93%AD%E4%BA%86%23&Refer=top) `189.5K 🔥`
 1. [询问退票遭火车站工作人员喇叭敲头](https://s.weibo.com/weibo?q=%E8%AF%A2%E9%97%AE%E9%80%80%E7%A5%A8%E9%81%AD%E7%81%AB%E8%BD%A6%E7%AB%99%E5%B7%A5%E4%BD%9C%E4%BA%BA%E5%91%98%E5%96%87%E5%8F%AD%E6%95%B2%E5%A4%B4&Refer=top) `182.0K 🔥`
 1. [北京环球度假区小黄人雪糕40元一个](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E7%8E%AF%E7%90%83%E5%BA%A6%E5%81%87%E5%8C%BA%E5%B0%8F%E9%BB%84%E4%BA%BA%E9%9B%AA%E7%B3%9540%E5%85%83%E4%B8%80%E4%B8%AA%23&Refer=top) `170.9K 🔥`
 1. [亲爱的爸妈大结局](https://s.weibo.com/weibo?q=%23%E4%BA%B2%E7%88%B1%E7%9A%84%E7%88%B8%E5%A6%88%E5%A4%A7%E7%BB%93%E5%B1%80%23&Refer=top) `162.1K 🔥`
 
-数据更新于 2021-09-02 06:40:49
+数据更新于 2021-09-02 06:46:57
 
 <!-- END -->
 
