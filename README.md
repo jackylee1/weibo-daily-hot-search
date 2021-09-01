@@ -14,12 +14,13 @@
 1. [苏炳添杨倩孙颖莎的开学寄语](https://s.weibo.com/weibo?q=%23%E8%8B%8F%E7%82%B3%E6%B7%BB%E6%9D%A8%E5%80%A9%E5%AD%99%E9%A2%96%E8%8E%8E%E7%9A%84%E5%BC%80%E5%AD%A6%E5%AF%84%E8%AF%AD%23&Refer=top) `1.4M 🔥`
 1. [樊振东刘诗雯机场照](https://s.weibo.com/weibo?q=%E6%A8%8A%E6%8C%AF%E4%B8%9C%E5%88%98%E8%AF%97%E9%9B%AF%E6%9C%BA%E5%9C%BA%E7%85%A7&Refer=top) `1.1M 🔥`
 1. [腾讯放弃音乐版权独家授权权利](https://s.weibo.com/weibo?q=%23%E8%85%BE%E8%AE%AF%E6%94%BE%E5%BC%83%E9%9F%B3%E4%B9%90%E7%89%88%E6%9D%83%E7%8B%AC%E5%AE%B6%E6%8E%88%E6%9D%83%E6%9D%83%E5%88%A9%23&Refer=top) `1.1M 🔥`
+1. [小狗被遗弃在17楼边缘淋雨2天2夜](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E7%8B%97%E8%A2%AB%E9%81%97%E5%BC%83%E5%9C%A817%E6%A5%BC%E8%BE%B9%E7%BC%98%E6%B7%8B%E9%9B%A82%E5%A4%A92%E5%A4%9C%23&Refer=top) `962.3K 🔥`
 1. [丁磊回应腾讯放弃音乐版权独家授权](https://s.weibo.com/weibo?q=%23%E4%B8%81%E7%A3%8A%E5%9B%9E%E5%BA%94%E8%85%BE%E8%AE%AF%E6%94%BE%E5%BC%83%E9%9F%B3%E4%B9%90%E7%89%88%E6%9D%83%E7%8B%AC%E5%AE%B6%E6%8E%88%E6%9D%83%23&Refer=top) `851.0K 🔥`
 1. [孙兴被判死刑](https://s.weibo.com/weibo?q=%23%E5%AD%99%E5%85%B4%E8%A2%AB%E5%88%A4%E6%AD%BB%E5%88%91%23&Refer=top) `793.4K 🔥`
 1. [九月文案](https://s.weibo.com/weibo?q=%23%E4%B9%9D%E6%9C%88%E6%96%87%E6%A1%88%23&Refer=top) `783.1K 🔥`
 1. [电子驾照来了](https://s.weibo.com/weibo?q=%E7%94%B5%E5%AD%90%E9%A9%BE%E7%85%A7%E6%9D%A5%E4%BA%86&Refer=top) `757.5K 🔥`
-1. [小狗被遗弃在17楼边缘淋雨2天2夜](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E7%8B%97%E8%A2%AB%E9%81%97%E5%BC%83%E5%9C%A817%E6%A5%BC%E8%BE%B9%E7%BC%98%E6%B7%8B%E9%9B%A82%E5%A4%A92%E5%A4%9C%23&Refer=top) `748.3K 🔥`
 1. [被全世界禁养的猫](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E5%85%A8%E4%B8%96%E7%95%8C%E7%A6%81%E5%85%BB%E7%9A%84%E7%8C%AB%23&Refer=top) `662.3K 🔥`
+1. [新中国历史上首个教育督导问责文件](https://s.weibo.com/weibo?q=%23%E6%96%B0%E4%B8%AD%E5%9B%BD%E5%8E%86%E5%8F%B2%E4%B8%8A%E9%A6%96%E4%B8%AA%E6%95%99%E8%82%B2%E7%9D%A3%E5%AF%BC%E9%97%AE%E8%B4%A3%E6%96%87%E4%BB%B6%23&Refer=top) `633.1K 🔥`
 1. [男子买到9天后生产的月饼](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E4%B9%B0%E5%88%B09%E5%A4%A9%E5%90%8E%E7%94%9F%E4%BA%A7%E7%9A%84%E6%9C%88%E9%A5%BC%23&Refer=top) `605.2K 🔥`
 1. [谢谢大师我悟了](https://s.weibo.com/weibo?q=%23%E8%B0%A2%E8%B0%A2%E5%A4%A7%E5%B8%88%E6%88%91%E6%82%9F%E4%BA%86%23&Refer=top) `602.0K 🔥`
 1. [乔二强孙小茉离婚](https://s.weibo.com/weibo?q=%23%E4%B9%94%E4%BA%8C%E5%BC%BA%E5%AD%99%E5%B0%8F%E8%8C%89%E7%A6%BB%E5%A9%9A%23&Refer=top) `599.2K 🔥`
@@ -55,9 +56,8 @@
 1. [化学女硕士做文物修复师8年](https://s.weibo.com/weibo?q=%23%E5%8C%96%E5%AD%A6%E5%A5%B3%E7%A1%95%E5%A3%AB%E5%81%9A%E6%96%87%E7%89%A9%E4%BF%AE%E5%A4%8D%E5%B8%888%E5%B9%B4%23&Refer=top) `369.2K 🔥`
 1. [100周年纪念币](https://s.weibo.com/weibo?q=100%E5%91%A8%E5%B9%B4%E7%BA%AA%E5%BF%B5%E5%B8%81&Refer=top) `367.0K 🔥`
 1. [人类幼崽的脚有多灵活](https://s.weibo.com/weibo?q=%23%E4%BA%BA%E7%B1%BB%E5%B9%BC%E5%B4%BD%E7%9A%84%E8%84%9A%E6%9C%89%E5%A4%9A%E7%81%B5%E6%B4%BB%23&Refer=top) `365.4K 🔥`
-1. [拜登就结束在阿富汗军事行动发表讲话](https://s.weibo.com/weibo?q=%23%E6%8B%9C%E7%99%BB%E5%B0%B1%E7%BB%93%E6%9D%9F%E5%9C%A8%E9%98%BF%E5%AF%8C%E6%B1%97%E5%86%9B%E4%BA%8B%E8%A1%8C%E5%8A%A8%E5%8F%91%E8%A1%A8%E8%AE%B2%E8%AF%9D%23&Refer=top) `362.7K 🔥`
 
-数据更新于 2021-09-01 10:49:41
+数据更新于 2021-09-01 10:55:54
 
 <!-- END -->
 
