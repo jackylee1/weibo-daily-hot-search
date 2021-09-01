@@ -11,8 +11,8 @@
 1. [巨人教育宣布倒闭](https://s.weibo.com/weibo?q=%23%E5%B7%A8%E4%BA%BA%E6%95%99%E8%82%B2%E5%AE%A3%E5%B8%83%E5%80%92%E9%97%AD%23&Refer=top) `3.3M 🔥`
 1. [郎平卸任中国女排主教练](https://s.weibo.com/weibo?q=%23%E9%83%8E%E5%B9%B3%E5%8D%B8%E4%BB%BB%E4%B8%AD%E5%9B%BD%E5%A5%B3%E6%8E%92%E4%B8%BB%E6%95%99%E7%BB%83%23&Refer=top) `2.9M 🔥`
 1. [郑州别下了](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E%E5%88%AB%E4%B8%8B%E4%BA%86%23&Refer=top) `2.7M 🔥`
+1. [地铁安全员拖拽乘客合理吗](https://s.weibo.com/weibo?q=%23%E5%9C%B0%E9%93%81%E5%AE%89%E5%85%A8%E5%91%98%E6%8B%96%E6%8B%BD%E4%B9%98%E5%AE%A2%E5%90%88%E7%90%86%E5%90%97%23&Refer=top) `2.3M 🔥`
 1. [一年级新生哭着折返4次抱妈妈](https://s.weibo.com/weibo?q=%23%E4%B8%80%E5%B9%B4%E7%BA%A7%E6%96%B0%E7%94%9F%E5%93%AD%E7%9D%80%E6%8A%98%E8%BF%944%E6%AC%A1%E6%8A%B1%E5%A6%88%E5%A6%88%23&Refer=top) `2.3M 🔥`
-1. [地铁安全员拖拽乘客合理吗](https://s.weibo.com/weibo?q=%23%E5%9C%B0%E9%93%81%E5%AE%89%E5%85%A8%E5%91%98%E6%8B%96%E6%8B%BD%E4%B9%98%E5%AE%A2%E5%90%88%E7%90%86%E5%90%97%23&Refer=top) `2.2M 🔥`
 1. [中方愿为阿富汗提供力所能及支持](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E6%96%B9%E6%84%BF%E4%B8%BA%E9%98%BF%E5%AF%8C%E6%B1%97%E6%8F%90%E4%BE%9B%E5%8A%9B%E6%89%80%E8%83%BD%E5%8F%8A%E6%94%AF%E6%8C%81%23&Refer=top) `2.2M 🔥`
 1. [薇娅停止与田园主义全麦面包合作](https://s.weibo.com/weibo?q=%23%E8%96%87%E5%A8%85%E5%81%9C%E6%AD%A2%E4%B8%8E%E7%94%B0%E5%9B%AD%E4%B8%BB%E4%B9%89%E5%85%A8%E9%BA%A6%E9%9D%A2%E5%8C%85%E5%90%88%E4%BD%9C%23&Refer=top) `2.1M 🔥`
 1. [宝马16.33亿购下华晨中华](https://s.weibo.com/weibo?q=%23%E5%AE%9D%E9%A9%AC16.33%E4%BA%BF%E8%B4%AD%E4%B8%8B%E5%8D%8E%E6%99%A8%E4%B8%AD%E5%8D%8E%23&Refer=top) `2.0M 🔥`
@@ -23,6 +23,7 @@
 1. [成都公积金可以按月提取了](https://s.weibo.com/weibo?q=%23%E6%88%90%E9%83%BD%E5%85%AC%E7%A7%AF%E9%87%91%E5%8F%AF%E4%BB%A5%E6%8C%89%E6%9C%88%E6%8F%90%E5%8F%96%E4%BA%86%23&Refer=top) `1.5M 🔥`
 1. [女主人拿走鹅蛋被公鹅追咬大半年](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E4%B8%BB%E4%BA%BA%E6%8B%BF%E8%B5%B0%E9%B9%85%E8%9B%8B%E8%A2%AB%E5%85%AC%E9%B9%85%E8%BF%BD%E5%92%AC%E5%A4%A7%E5%8D%8A%E5%B9%B4%23&Refer=top) `1.5M 🔥`
 1. [苏炳添杨倩孙颖莎的开学寄语](https://s.weibo.com/weibo?q=%23%E8%8B%8F%E7%82%B3%E6%B7%BB%E6%9D%A8%E5%80%A9%E5%AD%99%E9%A2%96%E8%8E%8E%E7%9A%84%E5%BC%80%E5%AD%A6%E5%AF%84%E8%AF%AD%23&Refer=top) `1.4M 🔥`
+1. [太了吧体](https://s.weibo.com/weibo?q=%23%E5%A4%AA%E4%BA%86%E5%90%A7%E4%BD%93%23&Refer=top) `1.3M 🔥`
 1. [买个床上的桌子写作业](https://s.weibo.com/weibo?q=%23%E4%B9%B0%E4%B8%AA%E5%BA%8A%E4%B8%8A%E7%9A%84%E6%A1%8C%E5%AD%90%E5%86%99%E4%BD%9C%E4%B8%9A%23&Refer=top) `1.3M 🔥`
 1. [新中国历史上首个教育督导问责文件](https://s.weibo.com/weibo?q=%23%E6%96%B0%E4%B8%AD%E5%9B%BD%E5%8E%86%E5%8F%B2%E4%B8%8A%E9%A6%96%E4%B8%AA%E6%95%99%E8%82%B2%E7%9D%A3%E5%AF%BC%E9%97%AE%E8%B4%A3%E6%96%87%E4%BB%B6%23&Refer=top) `1.3M 🔥`
 1. [扫黑风暴何勇炸烂尾楼](https://s.weibo.com/weibo?q=%23%E6%89%AB%E9%BB%91%E9%A3%8E%E6%9A%B4%E4%BD%95%E5%8B%87%E7%82%B8%E7%83%82%E5%B0%BE%E6%A5%BC%23&Refer=top) `1.2M 🔥`
@@ -45,8 +46,8 @@
 1. [43岁高位截瘫大哥成吵架情侣传话人](https://s.weibo.com/weibo?q=%2343%E5%B2%81%E9%AB%98%E4%BD%8D%E6%88%AA%E7%98%AB%E5%A4%A7%E5%93%A5%E6%88%90%E5%90%B5%E6%9E%B6%E6%83%85%E4%BE%A3%E4%BC%A0%E8%AF%9D%E4%BA%BA%23&Refer=top) `722.1K 🔥`
 1. [原来喜羊羊和懒羊羊不是一个品种的羊](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E5%96%9C%E7%BE%8A%E7%BE%8A%E5%92%8C%E6%87%92%E7%BE%8A%E7%BE%8A%E4%B8%8D%E6%98%AF%E4%B8%80%E4%B8%AA%E5%93%81%E7%A7%8D%E7%9A%84%E7%BE%8A%23&Refer=top) `706.1K 🔥`
 1. [拜登称为美国撤军决定负全部责任](https://s.weibo.com/weibo?q=%23%E6%8B%9C%E7%99%BB%E7%A7%B0%E4%B8%BA%E7%BE%8E%E5%9B%BD%E6%92%A4%E5%86%9B%E5%86%B3%E5%AE%9A%E8%B4%9F%E5%85%A8%E9%83%A8%E8%B4%A3%E4%BB%BB%23&Refer=top) `705.5K 🔥`
+1. [西安草莓音乐节官宣](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E5%AE%89%E8%8D%89%E8%8E%93%E9%9F%B3%E4%B9%90%E8%8A%82%E5%AE%98%E5%AE%A3%23&Refer=top) `700.4K 🔥`
 1. [被全世界禁养的猫](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E5%85%A8%E4%B8%96%E7%95%8C%E7%A6%81%E5%85%BB%E7%9A%84%E7%8C%AB%23&Refer=top) `662.3K 🔥`
-1. [太了吧体](https://s.weibo.com/weibo?q=%23%E5%A4%AA%E4%BA%86%E5%90%A7%E4%BD%93%23&Refer=top) `644.6K 🔥`
 1. [央视主播提醒美当心挖坑埋了自己](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E4%B8%BB%E6%92%AD%E6%8F%90%E9%86%92%E7%BE%8E%E5%BD%93%E5%BF%83%E6%8C%96%E5%9D%91%E5%9F%8B%E4%BA%86%E8%87%AA%E5%B7%B1%23&Refer=top) `642.0K 🔥`
 1. [男子买到9天后生产的月饼](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E4%B9%B0%E5%88%B09%E5%A4%A9%E5%90%8E%E7%94%9F%E4%BA%A7%E7%9A%84%E6%9C%88%E9%A5%BC%23&Refer=top) `605.2K 🔥`
 1. [谢谢大师我悟了](https://s.weibo.com/weibo?q=%23%E8%B0%A2%E8%B0%A2%E5%A4%A7%E5%B8%88%E6%88%91%E6%82%9F%E4%BA%86%23&Refer=top) `602.0K 🔥`
@@ -55,9 +56,8 @@
 1. [西安地铁回应女乘客被保安拖拽](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E5%AE%89%E5%9C%B0%E9%93%81%E5%9B%9E%E5%BA%94%E5%A5%B3%E4%B9%98%E5%AE%A2%E8%A2%AB%E4%BF%9D%E5%AE%89%E6%8B%96%E6%8B%BD%23&Refer=top) `583.2K 🔥`
 1. [只有撒贝宁敢在央视这么放肆](https://s.weibo.com/weibo?q=%23%E5%8F%AA%E6%9C%89%E6%92%92%E8%B4%9D%E5%AE%81%E6%95%A2%E5%9C%A8%E5%A4%AE%E8%A7%86%E8%BF%99%E4%B9%88%E6%94%BE%E8%82%86%23&Refer=top) `581.9K 🔥`
 1. [以前8090后开学的第一天](https://s.weibo.com/weibo?q=%23%E4%BB%A5%E5%89%8D8090%E5%90%8E%E5%BC%80%E5%AD%A6%E7%9A%84%E7%AC%AC%E4%B8%80%E5%A4%A9%23&Refer=top) `579.8K 🔥`
-1. [为什么家长要给孩子设置青少年模式](https://s.weibo.com/weibo?q=%23%E4%B8%BA%E4%BB%80%E4%B9%88%E5%AE%B6%E9%95%BF%E8%A6%81%E7%BB%99%E5%AD%A9%E5%AD%90%E8%AE%BE%E7%BD%AE%E9%9D%92%E5%B0%91%E5%B9%B4%E6%A8%A1%E5%BC%8F%23&Refer=top) `577.4K 🔥`
 
-数据更新于 2021-09-01 13:41:17
+数据更新于 2021-09-01 13:47:55
 
 <!-- END -->
 
