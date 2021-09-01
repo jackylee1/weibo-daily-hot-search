@@ -18,6 +18,7 @@
 1. [孙兴被判死刑](https://s.weibo.com/weibo?q=%23%E5%AD%99%E5%85%B4%E8%A2%AB%E5%88%A4%E6%AD%BB%E5%88%91%23&Refer=top) `793.4K 🔥`
 1. [九月文案](https://s.weibo.com/weibo?q=%23%E4%B9%9D%E6%9C%88%E6%96%87%E6%A1%88%23&Refer=top) `783.1K 🔥`
 1. [电子驾照来了](https://s.weibo.com/weibo?q=%E7%94%B5%E5%AD%90%E9%A9%BE%E7%85%A7%E6%9D%A5%E4%BA%86&Refer=top) `757.5K 🔥`
+1. [小狗被遗弃在17楼边缘淋雨2天2夜](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E7%8B%97%E8%A2%AB%E9%81%97%E5%BC%83%E5%9C%A817%E6%A5%BC%E8%BE%B9%E7%BC%98%E6%B7%8B%E9%9B%A82%E5%A4%A92%E5%A4%9C%23&Refer=top) `748.3K 🔥`
 1. [被全世界禁养的猫](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E5%85%A8%E4%B8%96%E7%95%8C%E7%A6%81%E5%85%BB%E7%9A%84%E7%8C%AB%23&Refer=top) `662.3K 🔥`
 1. [男子买到9天后生产的月饼](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E4%B9%B0%E5%88%B09%E5%A4%A9%E5%90%8E%E7%94%9F%E4%BA%A7%E7%9A%84%E6%9C%88%E9%A5%BC%23&Refer=top) `605.2K 🔥`
 1. [谢谢大师我悟了](https://s.weibo.com/weibo?q=%23%E8%B0%A2%E8%B0%A2%E5%A4%A7%E5%B8%88%E6%88%91%E6%82%9F%E4%BA%86%23&Refer=top) `602.0K 🔥`
@@ -55,9 +56,8 @@
 1. [100周年纪念币](https://s.weibo.com/weibo?q=100%E5%91%A8%E5%B9%B4%E7%BA%AA%E5%BF%B5%E5%B8%81&Refer=top) `367.0K 🔥`
 1. [人类幼崽的脚有多灵活](https://s.weibo.com/weibo?q=%23%E4%BA%BA%E7%B1%BB%E5%B9%BC%E5%B4%BD%E7%9A%84%E8%84%9A%E6%9C%89%E5%A4%9A%E7%81%B5%E6%B4%BB%23&Refer=top) `365.4K 🔥`
 1. [拜登就结束在阿富汗军事行动发表讲话](https://s.weibo.com/weibo?q=%23%E6%8B%9C%E7%99%BB%E5%B0%B1%E7%BB%93%E6%9D%9F%E5%9C%A8%E9%98%BF%E5%AF%8C%E6%B1%97%E5%86%9B%E4%BA%8B%E8%A1%8C%E5%8A%A8%E5%8F%91%E8%A1%A8%E8%AE%B2%E8%AF%9D%23&Refer=top) `362.7K 🔥`
-1. [健身视频千万不要开弹幕](https://s.weibo.com/weibo?q=%23%E5%81%A5%E8%BA%AB%E8%A7%86%E9%A2%91%E5%8D%83%E4%B8%87%E4%B8%8D%E8%A6%81%E5%BC%80%E5%BC%B9%E5%B9%95%23&Refer=top) `361.6K 🔥`
 
-数据更新于 2021-09-01 10:37:44
+数据更新于 2021-09-01 10:49:41
 
 <!-- END -->
 
