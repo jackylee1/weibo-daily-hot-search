@@ -24,6 +24,7 @@
 1. [中方愿为阿富汗提供力所能及支持](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E6%96%B9%E6%84%BF%E4%B8%BA%E9%98%BF%E5%AF%8C%E6%B1%97%E6%8F%90%E4%BE%9B%E5%8A%9B%E6%89%80%E8%83%BD%E5%8F%8A%E6%94%AF%E6%8C%81%23&Refer=top) `2.2M 🔥`
 1. [薇娅停止与田园主义全麦面包合作](https://s.weibo.com/weibo?q=%23%E8%96%87%E5%A8%85%E5%81%9C%E6%AD%A2%E4%B8%8E%E7%94%B0%E5%9B%AD%E4%B8%BB%E4%B9%89%E5%85%A8%E9%BA%A6%E9%9D%A2%E5%8C%85%E5%90%88%E4%BD%9C%23&Refer=top) `2.1M 🔥`
 1. [头等舱男子疑辱骂空姐手脏](https://s.weibo.com/weibo?q=%23%E5%A4%B4%E7%AD%89%E8%88%B1%E7%94%B7%E5%AD%90%E7%96%91%E8%BE%B1%E9%AA%82%E7%A9%BA%E5%A7%90%E6%89%8B%E8%84%8F%23&Refer=top) `2.1M 🔥`
+1. [李阳家暴事件后半部分音频](https://s.weibo.com/weibo?q=%E6%9D%8E%E9%98%B3%E5%AE%B6%E6%9A%B4%E4%BA%8B%E4%BB%B6%E5%90%8E%E5%8D%8A%E9%83%A8%E5%88%86%E9%9F%B3%E9%A2%91&Refer=top) `2.0M 🔥`
 1. [宝马16.33亿购下华晨中华](https://s.weibo.com/weibo?q=%23%E5%AE%9D%E9%A9%AC16.33%E4%BA%BF%E8%B4%AD%E4%B8%8B%E5%8D%8E%E6%99%A8%E4%B8%AD%E5%8D%8E%23&Refer=top) `2.0M 🔥`
 1. [李子柒品牌助理回应报警](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E5%AD%90%E6%9F%92%E5%93%81%E7%89%8C%E5%8A%A9%E7%90%86%E5%9B%9E%E5%BA%94%E6%8A%A5%E8%AD%A6%23&Refer=top) `1.8M 🔥`
 1. [开学第一天](https://s.weibo.com/weibo?q=%23%E5%BC%80%E5%AD%A6%E7%AC%AC%E4%B8%80%E5%A4%A9%23&Refer=top) `1.7M 🔥`
@@ -46,6 +47,7 @@
 1. [班主任为1年级新生手写姓名牌](https://s.weibo.com/weibo?q=%23%E7%8F%AD%E4%B8%BB%E4%BB%BB%E4%B8%BA1%E5%B9%B4%E7%BA%A7%E6%96%B0%E7%94%9F%E6%89%8B%E5%86%99%E5%A7%93%E5%90%8D%E7%89%8C%23&Refer=top) `1.2M 🔥`
 1. [原来包子是按皮算重量的](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E5%8C%85%E5%AD%90%E6%98%AF%E6%8C%89%E7%9A%AE%E7%AE%97%E9%87%8D%E9%87%8F%E7%9A%84%23&Refer=top) `1.1M 🔥`
 1. [樊振东刘诗雯机场照](https://s.weibo.com/weibo?q=%E6%A8%8A%E6%8C%AF%E4%B8%9C%E5%88%98%E8%AF%97%E9%9B%AF%E6%9C%BA%E5%9C%BA%E7%85%A7&Refer=top) `1.1M 🔥`
+1. [帅哥真的很影响干饭](https://s.weibo.com/weibo?q=%23%E5%B8%85%E5%93%A5%E7%9C%9F%E7%9A%84%E5%BE%88%E5%BD%B1%E5%93%8D%E5%B9%B2%E9%A5%AD%23&Refer=top) `1.1M 🔥`
 1. [九月文案](https://s.weibo.com/weibo?q=%23%E4%B9%9D%E6%9C%88%E6%96%87%E6%A1%88%23&Refer=top) `1.1M 🔥`
 1. [男子闯入游泳馆女更衣室称不识字](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E9%97%AF%E5%85%A5%E6%B8%B8%E6%B3%B3%E9%A6%86%E5%A5%B3%E6%9B%B4%E8%A1%A3%E5%AE%A4%E7%A7%B0%E4%B8%8D%E8%AF%86%E5%AD%97%23&Refer=top) `1.1M 🔥`
 1. [女子用假表掉包男友40万真表](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E7%94%A8%E5%81%87%E8%A1%A8%E6%8E%89%E5%8C%85%E7%94%B7%E5%8F%8B40%E4%B8%87%E7%9C%9F%E8%A1%A8%23&Refer=top) `1.1M 🔥`
@@ -54,10 +56,8 @@
 1. [熬夜对皮肤的危害可逆吗](https://s.weibo.com/weibo?q=%23%E7%86%AC%E5%A4%9C%E5%AF%B9%E7%9A%AE%E8%82%A4%E7%9A%84%E5%8D%B1%E5%AE%B3%E5%8F%AF%E9%80%86%E5%90%97%23&Refer=top) `1.0M 🔥`
 1. [恒大集团举行保交楼军令状签署大会](https://s.weibo.com/weibo?q=%23%E6%81%92%E5%A4%A7%E9%9B%86%E5%9B%A2%E4%B8%BE%E8%A1%8C%E4%BF%9D%E4%BA%A4%E6%A5%BC%E5%86%9B%E4%BB%A4%E7%8A%B6%E7%AD%BE%E7%BD%B2%E5%A4%A7%E4%BC%9A%23&Refer=top) `1.0M 🔥`
 1. [西安草莓音乐节官宣](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E5%AE%89%E8%8D%89%E8%8E%93%E9%9F%B3%E4%B9%90%E8%8A%82%E5%AE%98%E5%AE%A3%23&Refer=top) `1.0M 🔥`
-1. [孙颖莎拿锅铲和小学生打乒乓球](https://s.weibo.com/weibo?q=%23%E5%AD%99%E9%A2%96%E8%8E%8E%E6%8B%BF%E9%94%85%E9%93%B2%E5%92%8C%E5%B0%8F%E5%AD%A6%E7%94%9F%E6%89%93%E4%B9%92%E4%B9%93%E7%90%83%23&Refer=top) `1.0M 🔥`
-1. [广东一制毒窝点发现542枚恐龙蛋化石](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E4%B8%9C%E4%B8%80%E5%88%B6%E6%AF%92%E7%AA%9D%E7%82%B9%E5%8F%91%E7%8E%B0542%E6%9E%9A%E6%81%90%E9%BE%99%E8%9B%8B%E5%8C%96%E7%9F%B3%23&Refer=top) `995.9K 🔥`
 
-数据更新于 2021-09-01 21:26:12
+数据更新于 2021-09-01 21:36:41
 
 <!-- END -->
 
