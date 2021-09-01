@@ -22,7 +22,7 @@
 1. [地铁安全员拖拽乘客合理吗](https://s.weibo.com/weibo?q=%23%E5%9C%B0%E9%93%81%E5%AE%89%E5%85%A8%E5%91%98%E6%8B%96%E6%8B%BD%E4%B9%98%E5%AE%A2%E5%90%88%E7%90%86%E5%90%97%23&Refer=top) `2.3M 🔥`
 1. [李阳家暴事件后半部分音频](https://s.weibo.com/weibo?q=%E6%9D%8E%E9%98%B3%E5%AE%B6%E6%9A%B4%E4%BA%8B%E4%BB%B6%E5%90%8E%E5%8D%8A%E9%83%A8%E5%88%86%E9%9F%B3%E9%A2%91&Refer=top) `2.3M 🔥`
 1. [一年级新生哭着折返4次抱妈妈](https://s.weibo.com/weibo?q=%23%E4%B8%80%E5%B9%B4%E7%BA%A7%E6%96%B0%E7%94%9F%E5%93%AD%E7%9D%80%E6%8A%98%E8%BF%944%E6%AC%A1%E6%8A%B1%E5%A6%88%E5%A6%88%23&Refer=top) `2.3M 🔥`
-1. [开学第一课](https://s.weibo.com/weibo?q=%23%E5%BC%80%E5%AD%A6%E7%AC%AC%E4%B8%80%E8%AF%BE%23&Refer=top) `2.2M 🔥`
+1. [开学第一课](https://s.weibo.com/weibo?q=%23%E5%BC%80%E5%AD%A6%E7%AC%AC%E4%B8%80%E8%AF%BE%23&Refer=top) `2.3M 🔥`
 1. [中方愿为阿富汗提供力所能及支持](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E6%96%B9%E6%84%BF%E4%B8%BA%E9%98%BF%E5%AF%8C%E6%B1%97%E6%8F%90%E4%BE%9B%E5%8A%9B%E6%89%80%E8%83%BD%E5%8F%8A%E6%94%AF%E6%8C%81%23&Refer=top) `2.2M 🔥`
 1. [薇娅停止与田园主义全麦面包合作](https://s.weibo.com/weibo?q=%23%E8%96%87%E5%A8%85%E5%81%9C%E6%AD%A2%E4%B8%8E%E7%94%B0%E5%9B%AD%E4%B8%BB%E4%B9%89%E5%85%A8%E9%BA%A6%E9%9D%A2%E5%8C%85%E5%90%88%E4%BD%9C%23&Refer=top) `2.1M 🔥`
 1. [头等舱男子疑辱骂空姐手脏](https://s.weibo.com/weibo?q=%23%E5%A4%B4%E7%AD%89%E8%88%B1%E7%94%B7%E5%AD%90%E7%96%91%E8%BE%B1%E9%AA%82%E7%A9%BA%E5%A7%90%E6%89%8B%E8%84%8F%23&Refer=top) `2.1M 🔥`
@@ -39,6 +39,7 @@
 1. [苏炳添杨倩孙颖莎的开学寄语](https://s.weibo.com/weibo?q=%23%E8%8B%8F%E7%82%B3%E6%B7%BB%E6%9D%A8%E5%80%A9%E5%AD%99%E9%A2%96%E8%8E%8E%E7%9A%84%E5%BC%80%E5%AD%A6%E5%AF%84%E8%AF%AD%23&Refer=top) `1.4M 🔥`
 1. [学校出现学生欺凌情况将被问责](https://s.weibo.com/weibo?q=%23%E5%AD%A6%E6%A0%A1%E5%87%BA%E7%8E%B0%E5%AD%A6%E7%94%9F%E6%AC%BA%E5%87%8C%E6%83%85%E5%86%B5%E5%B0%86%E8%A2%AB%E9%97%AE%E8%B4%A3%23&Refer=top) `1.4M 🔥`
 1. [张家齐全运会证件照好奶](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%AE%B6%E9%BD%90%E5%85%A8%E8%BF%90%E4%BC%9A%E8%AF%81%E4%BB%B6%E7%85%A7%E5%A5%BD%E5%A5%B6%23&Refer=top) `1.4M 🔥`
+1. [乔七七离婚](https://s.weibo.com/weibo?q=%23%E4%B9%94%E4%B8%83%E4%B8%83%E7%A6%BB%E5%A9%9A%23&Refer=top) `1.3M 🔥`
 1. [买个床上的桌子写作业](https://s.weibo.com/weibo?q=%23%E4%B9%B0%E4%B8%AA%E5%BA%8A%E4%B8%8A%E7%9A%84%E6%A1%8C%E5%AD%90%E5%86%99%E4%BD%9C%E4%B8%9A%23&Refer=top) `1.3M 🔥`
 1. [新中国历史上首个教育督导问责文件](https://s.weibo.com/weibo?q=%23%E6%96%B0%E4%B8%AD%E5%9B%BD%E5%8E%86%E5%8F%B2%E4%B8%8A%E9%A6%96%E4%B8%AA%E6%95%99%E8%82%B2%E7%9D%A3%E5%AF%BC%E9%97%AE%E8%B4%A3%E6%96%87%E4%BB%B6%23&Refer=top) `1.3M 🔥`
 1. [马龙孙颖莎全红婵全运会证件照](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E9%BE%99%E5%AD%99%E9%A2%96%E8%8E%8E%E5%85%A8%E7%BA%A2%E5%A9%B5%E5%85%A8%E8%BF%90%E4%BC%9A%E8%AF%81%E4%BB%B6%E7%85%A7%23&Refer=top) `1.3M 🔥`
@@ -53,11 +54,10 @@
 1. [女子用假表掉包男友40万真表](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E7%94%A8%E5%81%87%E8%A1%A8%E6%8E%89%E5%8C%85%E7%94%B7%E5%8F%8B40%E4%B8%87%E7%9C%9F%E8%A1%A8%23&Refer=top) `1.1M 🔥`
 1. [取消大小周后降薪公司需要补偿吗](https://s.weibo.com/weibo?q=%23%E5%8F%96%E6%B6%88%E5%A4%A7%E5%B0%8F%E5%91%A8%E5%90%8E%E9%99%8D%E8%96%AA%E5%85%AC%E5%8F%B8%E9%9C%80%E8%A6%81%E8%A1%A5%E5%81%BF%E5%90%97%23&Refer=top) `1.1M 🔥`
 1. [腾讯放弃音乐版权独家授权权利](https://s.weibo.com/weibo?q=%23%E8%85%BE%E8%AE%AF%E6%94%BE%E5%BC%83%E9%9F%B3%E4%B9%90%E7%89%88%E6%9D%83%E7%8B%AC%E5%AE%B6%E6%8E%88%E6%9D%83%E6%9D%83%E5%88%A9%23&Refer=top) `1.1M 🔥`
+1. [张桂梅说自己的理想是当一名物理学家](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%A1%82%E6%A2%85%E8%AF%B4%E8%87%AA%E5%B7%B1%E7%9A%84%E7%90%86%E6%83%B3%E6%98%AF%E5%BD%93%E4%B8%80%E5%90%8D%E7%89%A9%E7%90%86%E5%AD%A6%E5%AE%B6%23&Refer=top) `1.0M 🔥`
 1. [熬夜对皮肤的危害可逆吗](https://s.weibo.com/weibo?q=%23%E7%86%AC%E5%A4%9C%E5%AF%B9%E7%9A%AE%E8%82%A4%E7%9A%84%E5%8D%B1%E5%AE%B3%E5%8F%AF%E9%80%86%E5%90%97%23&Refer=top) `1.0M 🔥`
-1. [询问退票遭火车站工作人员喇叭敲头](https://s.weibo.com/weibo?q=%E8%AF%A2%E9%97%AE%E9%80%80%E7%A5%A8%E9%81%AD%E7%81%AB%E8%BD%A6%E7%AB%99%E5%B7%A5%E4%BD%9C%E4%BA%BA%E5%91%98%E5%96%87%E5%8F%AD%E6%95%B2%E5%A4%B4&Refer=top) `1.0M 🔥`
-1. [恒大集团举行保交楼军令状签署大会](https://s.weibo.com/weibo?q=%23%E6%81%92%E5%A4%A7%E9%9B%86%E5%9B%A2%E4%B8%BE%E8%A1%8C%E4%BF%9D%E4%BA%A4%E6%A5%BC%E5%86%9B%E4%BB%A4%E7%8A%B6%E7%AD%BE%E7%BD%B2%E5%A4%A7%E4%BC%9A%23&Refer=top) `1.0M 🔥`
 
-数据更新于 2021-09-01 22:04:21
+数据更新于 2021-09-01 22:20:39
 
 <!-- END -->
 
