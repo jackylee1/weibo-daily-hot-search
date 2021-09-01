@@ -27,6 +27,7 @@
 1. [太了吧体](https://s.weibo.com/weibo?q=%23%E5%A4%AA%E4%BA%86%E5%90%A7%E4%BD%93%23&Refer=top) `1.4M 🔥`
 1. [苏炳添杨倩孙颖莎的开学寄语](https://s.weibo.com/weibo?q=%23%E8%8B%8F%E7%82%B3%E6%B7%BB%E6%9D%A8%E5%80%A9%E5%AD%99%E9%A2%96%E8%8E%8E%E7%9A%84%E5%BC%80%E5%AD%A6%E5%AF%84%E8%AF%AD%23&Refer=top) `1.4M 🔥`
 1. [女生千万别穿睡裙睡觉](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E7%94%9F%E5%8D%83%E4%B8%87%E5%88%AB%E7%A9%BF%E7%9D%A1%E8%A3%99%E7%9D%A1%E8%A7%89%23&Refer=top) `1.4M 🔥`
+1. [腾讯视频优化超前点播](https://s.weibo.com/weibo?q=%E8%85%BE%E8%AE%AF%E8%A7%86%E9%A2%91%E4%BC%98%E5%8C%96%E8%B6%85%E5%89%8D%E7%82%B9%E6%92%AD&Refer=top) `1.4M 🔥`
 1. [学校出现学生欺凌情况将被问责](https://s.weibo.com/weibo?q=%23%E5%AD%A6%E6%A0%A1%E5%87%BA%E7%8E%B0%E5%AD%A6%E7%94%9F%E6%AC%BA%E5%87%8C%E6%83%85%E5%86%B5%E5%B0%86%E8%A2%AB%E9%97%AE%E8%B4%A3%23&Refer=top) `1.4M 🔥`
 1. [买个床上的桌子写作业](https://s.weibo.com/weibo?q=%23%E4%B9%B0%E4%B8%AA%E5%BA%8A%E4%B8%8A%E7%9A%84%E6%A1%8C%E5%AD%90%E5%86%99%E4%BD%9C%E4%B8%9A%23&Refer=top) `1.3M 🔥`
 1. [新中国历史上首个教育督导问责文件](https://s.weibo.com/weibo?q=%23%E6%96%B0%E4%B8%AD%E5%9B%BD%E5%8E%86%E5%8F%B2%E4%B8%8A%E9%A6%96%E4%B8%AA%E6%95%99%E8%82%B2%E7%9D%A3%E5%AF%BC%E9%97%AE%E8%B4%A3%E6%96%87%E4%BB%B6%23&Refer=top) `1.3M 🔥`
@@ -37,6 +38,7 @@
 1. [九月文案](https://s.weibo.com/weibo?q=%23%E4%B9%9D%E6%9C%88%E6%96%87%E6%A1%88%23&Refer=top) `1.1M 🔥`
 1. [腾讯放弃音乐版权独家授权权利](https://s.weibo.com/weibo?q=%23%E8%85%BE%E8%AE%AF%E6%94%BE%E5%BC%83%E9%9F%B3%E4%B9%90%E7%89%88%E6%9D%83%E7%8B%AC%E5%AE%B6%E6%8E%88%E6%9D%83%E6%9D%83%E5%88%A9%23&Refer=top) `1.1M 🔥`
 1. [在家里上了个大学](https://s.weibo.com/weibo?q=%23%E5%9C%A8%E5%AE%B6%E9%87%8C%E4%B8%8A%E4%BA%86%E4%B8%AA%E5%A4%A7%E5%AD%A6%23&Refer=top) `1.0M 🔥`
+1. [恒大集团举行保交楼军令状签署大会](https://s.weibo.com/weibo?q=%23%E6%81%92%E5%A4%A7%E9%9B%86%E5%9B%A2%E4%B8%BE%E8%A1%8C%E4%BF%9D%E4%BA%A4%E6%A5%BC%E5%86%9B%E4%BB%A4%E7%8A%B6%E7%AD%BE%E7%BD%B2%E5%A4%A7%E4%BC%9A%23&Refer=top) `1.0M 🔥`
 1. [西安草莓音乐节官宣](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E5%AE%89%E8%8D%89%E8%8E%93%E9%9F%B3%E4%B9%90%E8%8A%82%E5%AE%98%E5%AE%A3%23&Refer=top) `1.0M 🔥`
 1. [孙颖莎拿锅铲和小学生打乒乓球](https://s.weibo.com/weibo?q=%23%E5%AD%99%E9%A2%96%E8%8E%8E%E6%8B%BF%E9%94%85%E9%93%B2%E5%92%8C%E5%B0%8F%E5%AD%A6%E7%94%9F%E6%89%93%E4%B9%92%E4%B9%93%E7%90%83%23&Refer=top) `1.0M 🔥`
 1. [成都地铁可以戴口罩刷脸了](https://s.weibo.com/weibo?q=%23%E6%88%90%E9%83%BD%E5%9C%B0%E9%93%81%E5%8F%AF%E4%BB%A5%E6%88%B4%E5%8F%A3%E7%BD%A9%E5%88%B7%E8%84%B8%E4%BA%86%23&Refer=top) `987.5K 🔥`
@@ -51,13 +53,11 @@
 1. [孙兴被判死刑](https://s.weibo.com/weibo?q=%23%E5%AD%99%E5%85%B4%E8%A2%AB%E5%88%A4%E6%AD%BB%E5%88%91%23&Refer=top) `793.4K 🔥`
 1. [我哥的干爹是颗树](https://s.weibo.com/weibo?q=%23%E6%88%91%E5%93%A5%E7%9A%84%E5%B9%B2%E7%88%B9%E6%98%AF%E9%A2%97%E6%A0%91%23&Refer=top) `779.9K 🔥`
 1. [长津湖定档国庆](https://s.weibo.com/weibo?q=%23%E9%95%BF%E6%B4%A5%E6%B9%96%E5%AE%9A%E6%A1%A3%E5%9B%BD%E5%BA%86%23&Refer=top) `778.9K 🔥`
-1. [恒大集团举行保交楼军令状签署大会](https://s.weibo.com/weibo?q=%23%E6%81%92%E5%A4%A7%E9%9B%86%E5%9B%A2%E4%B8%BE%E8%A1%8C%E4%BF%9D%E4%BA%A4%E6%A5%BC%E5%86%9B%E4%BB%A4%E7%8A%B6%E7%AD%BE%E7%BD%B2%E5%A4%A7%E4%BC%9A%23&Refer=top) `762.9K 🔥`
 1. [大量论文在百度文库售卖姓名学号全泄露](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E9%87%8F%E8%AE%BA%E6%96%87%E5%9C%A8%E7%99%BE%E5%BA%A6%E6%96%87%E5%BA%93%E5%94%AE%E5%8D%96%E5%A7%93%E5%90%8D%E5%AD%A6%E5%8F%B7%E5%85%A8%E6%B3%84%E9%9C%B2%23&Refer=top) `762.3K 🔥`
 1. [高中宿舍后遗症](https://s.weibo.com/weibo?q=%23%E9%AB%98%E4%B8%AD%E5%AE%BF%E8%88%8D%E5%90%8E%E9%81%97%E7%97%87%23&Refer=top) `760.7K 🔥`
 1. [电子驾照来了](https://s.weibo.com/weibo?q=%E7%94%B5%E5%AD%90%E9%A9%BE%E7%85%A7%E6%9D%A5%E4%BA%86&Refer=top) `757.5K 🔥`
-1. [父亲半夜院中独自剥玉米](https://s.weibo.com/weibo?q=%E7%88%B6%E4%BA%B2%E5%8D%8A%E5%A4%9C%E9%99%A2%E4%B8%AD%E7%8B%AC%E8%87%AA%E5%89%A5%E7%8E%89%E7%B1%B3&Refer=top) `749.3K 🔥`
 
-数据更新于 2021-09-01 17:09:33
+数据更新于 2021-09-01 17:25:45
 
 <!-- END -->
 
