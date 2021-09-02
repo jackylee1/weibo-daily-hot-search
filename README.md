@@ -10,16 +10,16 @@
 1. [广电总局要求不得播出偶像养成节目](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E7%94%B5%E6%80%BB%E5%B1%80%E8%A6%81%E6%B1%82%E4%B8%8D%E5%BE%97%E6%92%AD%E5%87%BA%E5%81%B6%E5%83%8F%E5%85%BB%E6%88%90%E8%8A%82%E7%9B%AE%23&Refer=top) `4.4M 🔥`
 1. [请再看看你们誓死保卫的家乡](https://s.weibo.com/weibo?q=%23%E8%AF%B7%E5%86%8D%E7%9C%8B%E7%9C%8B%E4%BD%A0%E4%BB%AC%E8%AA%93%E6%AD%BB%E4%BF%9D%E5%8D%AB%E7%9A%84%E5%AE%B6%E4%B9%A1%23&Refer=top) `3.5M 🔥`
 1. [抑郁症女孩跳楼被消防员一把抱下](https://s.weibo.com/weibo?q=%23%E6%8A%91%E9%83%81%E7%97%87%E5%A5%B3%E5%AD%A9%E8%B7%B3%E6%A5%BC%E8%A2%AB%E6%B6%88%E9%98%B2%E5%91%98%E4%B8%80%E6%8A%8A%E6%8A%B1%E4%B8%8B%23&Refer=top) `3.1M 🔥`
+1. [官方回应西安地铁保安拖拽女子事件](https://s.weibo.com/weibo?q=%23%E5%AE%98%E6%96%B9%E5%9B%9E%E5%BA%94%E8%A5%BF%E5%AE%89%E5%9C%B0%E9%93%81%E4%BF%9D%E5%AE%89%E6%8B%96%E6%8B%BD%E5%A5%B3%E5%AD%90%E4%BA%8B%E4%BB%B6%23&Refer=top) `2.8M 🔥`
 1. [世界大学排名北大清华并列第16名](https://s.weibo.com/weibo?q=%E4%B8%96%E7%95%8C%E5%A4%A7%E5%AD%A6%E6%8E%92%E5%90%8D%E5%8C%97%E5%A4%A7%E6%B8%85%E5%8D%8E%E5%B9%B6%E5%88%97%E7%AC%AC16%E5%90%8D&Refer=top) `2.7M 🔥`
 1. [本专科生每年最高助学贷款12000元](https://s.weibo.com/weibo?q=%23%E6%9C%AC%E4%B8%93%E7%A7%91%E7%94%9F%E6%AF%8F%E5%B9%B4%E6%9C%80%E9%AB%98%E5%8A%A9%E5%AD%A6%E8%B4%B7%E6%AC%BE12000%E5%85%83%23&Refer=top) `2.6M 🔥`
 1. [团伙闲鱼低价卖二手苹果机诈骗141万](https://s.weibo.com/weibo?q=%23%E5%9B%A2%E4%BC%99%E9%97%B2%E9%B1%BC%E4%BD%8E%E4%BB%B7%E5%8D%96%E4%BA%8C%E6%89%8B%E8%8B%B9%E6%9E%9C%E6%9C%BA%E8%AF%88%E9%AA%97141%E4%B8%87%23&Refer=top) `2.4M 🔥`
 1. [乔家的儿女是中国版顶楼吧](https://s.weibo.com/weibo?q=%23%E4%B9%94%E5%AE%B6%E7%9A%84%E5%84%BF%E5%A5%B3%E6%98%AF%E4%B8%AD%E5%9B%BD%E7%89%88%E9%A1%B6%E6%A5%BC%E5%90%A7%23&Refer=top) `2.3M 🔥`
 1. [小鹏汽车宣布取消大小周](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E9%B9%8F%E6%B1%BD%E8%BD%A6%E5%AE%A3%E5%B8%83%E5%8F%96%E6%B6%88%E5%A4%A7%E5%B0%8F%E5%91%A8%23&Refer=top) `2.2M 🔥`
-1. [官方回应西安地铁保安拖拽女子事件](https://s.weibo.com/weibo?q=%23%E5%AE%98%E6%96%B9%E5%9B%9E%E5%BA%94%E8%A5%BF%E5%AE%89%E5%9C%B0%E9%93%81%E4%BF%9D%E5%AE%89%E6%8B%96%E6%8B%BD%E5%A5%B3%E5%AD%90%E4%BA%8B%E4%BB%B6%23&Refer=top) `2.1M 🔥`
 1. [广电总局杜绝娘炮等畸形审美](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E7%94%B5%E6%80%BB%E5%B1%80%E6%9D%9C%E7%BB%9D%E5%A8%98%E7%82%AE%E7%AD%89%E7%95%B8%E5%BD%A2%E5%AE%A1%E7%BE%8E%23&Refer=top) `1.9M 🔥`
+1. [网易云音乐去除独家标志](https://s.weibo.com/weibo?q=%23%E7%BD%91%E6%98%93%E4%BA%91%E9%9F%B3%E4%B9%90%E5%8E%BB%E9%99%A4%E7%8B%AC%E5%AE%B6%E6%A0%87%E5%BF%97%23&Refer=top) `1.7M 🔥`
 1. [开学第一课](https://s.weibo.com/weibo?q=%23%E5%BC%80%E5%AD%A6%E7%AC%AC%E4%B8%80%E8%AF%BE%23&Refer=top) `1.7M 🔥`
 1. [一年级男孩不愿上学被女警抱进教室](https://s.weibo.com/weibo?q=%23%E4%B8%80%E5%B9%B4%E7%BA%A7%E7%94%B7%E5%AD%A9%E4%B8%8D%E6%84%BF%E4%B8%8A%E5%AD%A6%E8%A2%AB%E5%A5%B3%E8%AD%A6%E6%8A%B1%E8%BF%9B%E6%95%99%E5%AE%A4%23&Refer=top) `1.6M 🔥`
-1. [网易云音乐去除独家标志](https://s.weibo.com/weibo?q=%23%E7%BD%91%E6%98%93%E4%BA%91%E9%9F%B3%E4%B9%90%E5%8E%BB%E9%99%A4%E7%8B%AC%E5%AE%B6%E6%A0%87%E5%BF%97%23&Refer=top) `1.6M 🔥`
 1. [男子6岁吞哨子怕被骂瞒了20年](https://s.weibo.com/weibo?q=%E7%94%B7%E5%AD%906%E5%B2%81%E5%90%9E%E5%93%A8%E5%AD%90%E6%80%95%E8%A2%AB%E9%AA%82%E7%9E%92%E4%BA%8620%E5%B9%B4&Refer=top) `1.6M 🔥`
 1. [西安地铁涉事保安已停职](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E5%AE%89%E5%9C%B0%E9%93%81%E6%B6%89%E4%BA%8B%E4%BF%9D%E5%AE%89%E5%B7%B2%E5%81%9C%E8%81%8C%23&Refer=top) `1.6M 🔥`
 1. [央视曝光钱大妈加盟商亏损内幕](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E6%9B%9D%E5%85%89%E9%92%B1%E5%A4%A7%E5%A6%88%E5%8A%A0%E7%9B%9F%E5%95%86%E4%BA%8F%E6%8D%9F%E5%86%85%E5%B9%95%23&Refer=top) `1.6M 🔥`
@@ -57,7 +57,7 @@
 1. [河南大蒜受疫情影响销量下降5成](https://s.weibo.com/weibo?q=%23%E6%B2%B3%E5%8D%97%E5%A4%A7%E8%92%9C%E5%8F%97%E7%96%AB%E6%83%85%E5%BD%B1%E5%93%8D%E9%94%80%E9%87%8F%E4%B8%8B%E9%99%8D5%E6%88%90%23&Refer=top) `682.1K 🔥`
 1. [军训中的社交天花板](https://s.weibo.com/weibo?q=%23%E5%86%9B%E8%AE%AD%E4%B8%AD%E7%9A%84%E7%A4%BE%E4%BA%A4%E5%A4%A9%E8%8A%B1%E6%9D%BF%23&Refer=top) `676.0K 🔥`
 
-数据更新于 2021-09-02 15:47:29
+数据更新于 2021-09-02 15:54:01
 
 <!-- END -->
 
