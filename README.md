@@ -20,7 +20,7 @@
 1. [小鹏汽车宣布取消大小周](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E9%B9%8F%E6%B1%BD%E8%BD%A6%E5%AE%A3%E5%B8%83%E5%8F%96%E6%B6%88%E5%A4%A7%E5%B0%8F%E5%91%A8%23&Refer=top) `2.2M 🔥`
 1. [研究生宿舍的上床下桌](https://s.weibo.com/weibo?q=%23%E7%A0%94%E7%A9%B6%E7%94%9F%E5%AE%BF%E8%88%8D%E7%9A%84%E4%B8%8A%E5%BA%8A%E4%B8%8B%E6%A1%8C%23&Refer=top) `2.1M 🔥`
 1. [郭老师账号全平台封禁](https://s.weibo.com/weibo?q=%E9%83%AD%E8%80%81%E5%B8%88%E8%B4%A6%E5%8F%B7%E5%85%A8%E5%B9%B3%E5%8F%B0%E5%B0%81%E7%A6%81&Refer=top) `2.1M 🔥`
-1. [6767个账号在西安地铁事件中被禁言](https://s.weibo.com/weibo?q=%236767%E4%B8%AA%E8%B4%A6%E5%8F%B7%E5%9C%A8%E8%A5%BF%E5%AE%89%E5%9C%B0%E9%93%81%E4%BA%8B%E4%BB%B6%E4%B8%AD%E8%A2%AB%E7%A6%81%E8%A8%80%23&Refer=top) `2.0M 🔥`
+1. [6767个账号在西安地铁事件中被禁言](https://s.weibo.com/weibo?q=%236767%E4%B8%AA%E8%B4%A6%E5%8F%B7%E5%9C%A8%E8%A5%BF%E5%AE%89%E5%9C%B0%E9%93%81%E4%BA%8B%E4%BB%B6%E4%B8%AD%E8%A2%AB%E7%A6%81%E8%A8%80%23&Refer=top) `2.1M 🔥`
 1. [广电总局杜绝娘炮等畸形审美](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E7%94%B5%E6%80%BB%E5%B1%80%E6%9D%9C%E7%BB%9D%E5%A8%98%E7%82%AE%E7%AD%89%E7%95%B8%E5%BD%A2%E5%AE%A1%E7%BE%8E%23&Refer=top) `1.9M 🔥`
 1. [不到2小时的航程他们走了71年](https://s.weibo.com/weibo?q=%23%E4%B8%8D%E5%88%B02%E5%B0%8F%E6%97%B6%E7%9A%84%E8%88%AA%E7%A8%8B%E4%BB%96%E4%BB%AC%E8%B5%B0%E4%BA%8671%E5%B9%B4%23&Refer=top) `1.8M 🔥`
 1. [网易云音乐去除独家标志](https://s.weibo.com/weibo?q=%23%E7%BD%91%E6%98%93%E4%BA%91%E9%9F%B3%E4%B9%90%E5%8E%BB%E9%99%A4%E7%8B%AC%E5%AE%B6%E6%A0%87%E5%BF%97%23&Refer=top) `1.7M 🔥`
@@ -43,6 +43,7 @@
 1. [女儿第一天上幼儿园父女俩抱团哭](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%84%BF%E7%AC%AC%E4%B8%80%E5%A4%A9%E4%B8%8A%E5%B9%BC%E5%84%BF%E5%9B%AD%E7%88%B6%E5%A5%B3%E4%BF%A9%E6%8A%B1%E5%9B%A2%E5%93%AD%23&Refer=top) `1.2M 🔥`
 1. [吃过这些面包的人都长大了吧](https://s.weibo.com/weibo?q=%23%E5%90%83%E8%BF%87%E8%BF%99%E4%BA%9B%E9%9D%A2%E5%8C%85%E7%9A%84%E4%BA%BA%E9%83%BD%E9%95%BF%E5%A4%A7%E4%BA%86%E5%90%A7%23&Refer=top) `1.2M 🔥`
 1. [张桂梅说自己的理想是当一名物理学家](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%A1%82%E6%A2%85%E8%AF%B4%E8%87%AA%E5%B7%B1%E7%9A%84%E7%90%86%E6%83%B3%E6%98%AF%E5%BD%93%E4%B8%80%E5%90%8D%E7%89%A9%E7%90%86%E5%AD%A6%E5%AE%B6%23&Refer=top) `1.2M 🔥`
+1. [这个赠品就很离谱](https://s.weibo.com/weibo?q=%23%E8%BF%99%E4%B8%AA%E8%B5%A0%E5%93%81%E5%B0%B1%E5%BE%88%E7%A6%BB%E8%B0%B1%23&Refer=top) `1.1M 🔥`
 1. [上海一奶奶送孙子上错幼儿园](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E4%B8%80%E5%A5%B6%E5%A5%B6%E9%80%81%E5%AD%99%E5%AD%90%E4%B8%8A%E9%94%99%E5%B9%BC%E5%84%BF%E5%9B%AD%23&Refer=top) `1.1M 🔥`
 1. [终于知道丹顶鹤为什么叫仙鹤了](https://s.weibo.com/weibo?q=%23%E7%BB%88%E4%BA%8E%E7%9F%A5%E9%81%93%E4%B8%B9%E9%A1%B6%E9%B9%A4%E4%B8%BA%E4%BB%80%E4%B9%88%E5%8F%AB%E4%BB%99%E9%B9%A4%E4%BA%86%23&Refer=top) `1.1M 🔥`
 1. [你吃火锅时最讨厌什么](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E5%90%83%E7%81%AB%E9%94%85%E6%97%B6%E6%9C%80%E8%AE%A8%E5%8E%8C%E4%BB%80%E4%B9%88%23&Refer=top) `1.0M 🔥`
@@ -55,9 +56,8 @@
 1. [杀人犯潜逃17年被抓时已成高管](https://s.weibo.com/weibo?q=%23%E6%9D%80%E4%BA%BA%E7%8A%AF%E6%BD%9C%E9%80%8317%E5%B9%B4%E8%A2%AB%E6%8A%93%E6%97%B6%E5%B7%B2%E6%88%90%E9%AB%98%E7%AE%A1%23&Refer=top) `910.3K 🔥`
 1. [广电总局通知坚决抵制违法失德人员](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E7%94%B5%E6%80%BB%E5%B1%80%E9%80%9A%E7%9F%A5%E5%9D%9A%E5%86%B3%E6%8A%B5%E5%88%B6%E8%BF%9D%E6%B3%95%E5%A4%B1%E5%BE%B7%E4%BA%BA%E5%91%98%23&Refer=top) `899.9K 🔥`
 1. [钱大妈回应央视曝光](https://s.weibo.com/weibo?q=%23%E9%92%B1%E5%A4%A7%E5%A6%88%E5%9B%9E%E5%BA%94%E5%A4%AE%E8%A7%86%E6%9B%9D%E5%85%89%23&Refer=top) `878.3K 🔥`
-1. [大学没谈过恋爱会有遗憾吗](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%AD%A6%E6%B2%A1%E8%B0%88%E8%BF%87%E6%81%8B%E7%88%B1%E4%BC%9A%E6%9C%89%E9%81%97%E6%86%BE%E5%90%97%23&Refer=top) `870.1K 🔥`
 
-数据更新于 2021-09-02 19:11:41
+数据更新于 2021-09-02 19:23:49
 
 <!-- END -->
 
