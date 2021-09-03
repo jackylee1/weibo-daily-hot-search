@@ -7,9 +7,9 @@
 <!-- BEGIN -->
 
 1. [128GiPhone12价格低至4799元](https://s.weibo.com/weibo?q=%23128GiPhone12%E4%BB%B7%E6%A0%BC%E4%BD%8E%E8%87%B34799%E5%85%83%23&Refer=top) `6.0M 🔥`
+1. [喜茶店员拿错饮料顾客喝下后入院洗胃](https://s.weibo.com/weibo?q=%23%E5%96%9C%E8%8C%B6%E5%BA%97%E5%91%98%E6%8B%BF%E9%94%99%E9%A5%AE%E6%96%99%E9%A1%BE%E5%AE%A2%E5%96%9D%E4%B8%8B%E5%90%8E%E5%85%A5%E9%99%A2%E6%B4%97%E8%83%83%23&Refer=top) `4.9M 🔥`
 1. [日本为啥打死不认错](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E4%B8%BA%E5%95%A5%E6%89%93%E6%AD%BB%E4%B8%8D%E8%AE%A4%E9%94%99%23&Refer=top) `4.5M 🔥`
 1. [抗日战争胜利76周年](https://s.weibo.com/weibo?q=%23%E6%8A%97%E6%97%A5%E6%88%98%E4%BA%89%E8%83%9C%E5%88%A976%E5%91%A8%E5%B9%B4%23&Refer=top) `4.4M 🔥`
-1. [喜茶店员拿错饮料顾客喝下后入院洗胃](https://s.weibo.com/weibo?q=%23%E5%96%9C%E8%8C%B6%E5%BA%97%E5%91%98%E6%8B%BF%E9%94%99%E9%A5%AE%E6%96%99%E9%A1%BE%E5%AE%A2%E5%96%9D%E4%B8%8B%E5%90%8E%E5%85%A5%E9%99%A2%E6%B4%97%E8%83%83%23&Refer=top) `3.9M 🔥`
 1. [清华大学2021级本科生开学典礼](https://s.weibo.com/weibo?q=%23%E6%B8%85%E5%8D%8E%E5%A4%A7%E5%AD%A62021%E7%BA%A7%E6%9C%AC%E7%A7%91%E7%94%9F%E5%BC%80%E5%AD%A6%E5%85%B8%E7%A4%BC%23&Refer=top) `3.2M 🔥`
 1. [航天员刘伯明的卧室外面是地球](https://s.weibo.com/weibo?q=%23%E8%88%AA%E5%A4%A9%E5%91%98%E5%88%98%E4%BC%AF%E6%98%8E%E7%9A%84%E5%8D%A7%E5%AE%A4%E5%A4%96%E9%9D%A2%E6%98%AF%E5%9C%B0%E7%90%83%23&Refer=top) `3.2M 🔥`
 1. [恭喜恭喜是首抗日歌曲](https://s.weibo.com/weibo?q=%23%E6%81%AD%E5%96%9C%E6%81%AD%E5%96%9C%E6%98%AF%E9%A6%96%E6%8A%97%E6%97%A5%E6%AD%8C%E6%9B%B2%23&Refer=top) `2.4M 🔥`
@@ -20,6 +20,7 @@
 1. [日本侵略者低头认罪瞬间](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E4%BE%B5%E7%95%A5%E8%80%85%E4%BD%8E%E5%A4%B4%E8%AE%A4%E7%BD%AA%E7%9E%AC%E9%97%B4%23&Refer=top) `1.7M 🔥`
 1. [禁止劣迹艺人转移阵地复出](https://s.weibo.com/weibo?q=%23%E7%A6%81%E6%AD%A2%E5%8A%A3%E8%BF%B9%E8%89%BA%E4%BA%BA%E8%BD%AC%E7%A7%BB%E9%98%B5%E5%9C%B0%E5%A4%8D%E5%87%BA%23&Refer=top) `1.6M 🔥`
 1. [汶川地震失去右腿女孩残奥夺金](https://s.weibo.com/weibo?q=%23%E6%B1%B6%E5%B7%9D%E5%9C%B0%E9%9C%87%E5%A4%B1%E5%8E%BB%E5%8F%B3%E8%85%BF%E5%A5%B3%E5%AD%A9%E6%AE%8B%E5%A5%A5%E5%A4%BA%E9%87%91%23&Refer=top) `1.6M 🔥`
+1. [非师范生有必要考教资吗](https://s.weibo.com/weibo?q=%23%E9%9D%9E%E5%B8%88%E8%8C%83%E7%94%9F%E6%9C%89%E5%BF%85%E8%A6%81%E8%80%83%E6%95%99%E8%B5%84%E5%90%97%23&Refer=top) `1.5M 🔥`
 1. [美军撤离阿富汗前射击平民画面曝光](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%86%9B%E6%92%A4%E7%A6%BB%E9%98%BF%E5%AF%8C%E6%B1%97%E5%89%8D%E5%B0%84%E5%87%BB%E5%B9%B3%E6%B0%91%E7%94%BB%E9%9D%A2%E6%9B%9D%E5%85%89%23&Refer=top) `1.5M 🔥`
 1. [纽约5小时降水量约合5万个泳池](https://s.weibo.com/weibo?q=%23%E7%BA%BD%E7%BA%A65%E5%B0%8F%E6%97%B6%E9%99%8D%E6%B0%B4%E9%87%8F%E7%BA%A6%E5%90%885%E4%B8%87%E4%B8%AA%E6%B3%B3%E6%B1%A0%23&Refer=top) `1.5M 🔥`
 1. [杭州游客赶回黄山擦洗刻字](https://s.weibo.com/weibo?q=%23%E6%9D%AD%E5%B7%9E%E6%B8%B8%E5%AE%A2%E8%B5%B6%E5%9B%9E%E9%BB%84%E5%B1%B1%E6%93%A6%E6%B4%97%E5%88%BB%E5%AD%97%23&Refer=top) `1.4M 🔥`
@@ -55,9 +56,8 @@
 1. [入学要求房产套内面积大于60平](https://s.weibo.com/weibo?q=%23%E5%85%A5%E5%AD%A6%E8%A6%81%E6%B1%82%E6%88%BF%E4%BA%A7%E5%A5%97%E5%86%85%E9%9D%A2%E7%A7%AF%E5%A4%A7%E4%BA%8E60%E5%B9%B3%23&Refer=top) `997.9K 🔥`
 1. [李铁承认国足表现不好](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E9%93%81%E6%89%BF%E8%AE%A4%E5%9B%BD%E8%B6%B3%E8%A1%A8%E7%8E%B0%E4%B8%8D%E5%A5%BD%23&Refer=top) `995.1K 🔥`
 1. [男子抱婴儿跳楼医生冒险翻护栏夺娃](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E6%8A%B1%E5%A9%B4%E5%84%BF%E8%B7%B3%E6%A5%BC%E5%8C%BB%E7%94%9F%E5%86%92%E9%99%A9%E7%BF%BB%E6%8A%A4%E6%A0%8F%E5%A4%BA%E5%A8%83%23&Refer=top) `968.3K 🔥`
-1. [湖南双峰现丁达尔现象](https://s.weibo.com/weibo?q=%E6%B9%96%E5%8D%97%E5%8F%8C%E5%B3%B0%E7%8E%B0%E4%B8%81%E8%BE%BE%E5%B0%94%E7%8E%B0%E8%B1%A1&Refer=top) `959.2K 🔥`
 
-数据更新于 2021-09-03 19:52:34
+数据更新于 2021-09-03 19:58:50
 
 <!-- END -->
 
