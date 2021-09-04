@@ -17,10 +17,10 @@
 1. [一生一世定档](https://s.weibo.com/weibo?q=%23%E4%B8%80%E7%94%9F%E4%B8%80%E4%B8%96%E5%AE%9A%E6%A1%A3%23&Refer=top) `1.5M 🔥`
 1. [25岁博士设遗嘱捐出全部存款](https://s.weibo.com/weibo?q=%2325%E5%B2%81%E5%8D%9A%E5%A3%AB%E8%AE%BE%E9%81%97%E5%98%B1%E6%8D%90%E5%87%BA%E5%85%A8%E9%83%A8%E5%AD%98%E6%AC%BE%23&Refer=top) `1.4M 🔥`
 1. [塔利班士兵鸣枪庆祝致17死41伤](https://s.weibo.com/weibo?q=%23%E5%A1%94%E5%88%A9%E7%8F%AD%E5%A3%AB%E5%85%B5%E9%B8%A3%E6%9E%AA%E5%BA%86%E7%A5%9D%E8%87%B417%E6%AD%BB41%E4%BC%A4%23&Refer=top) `1.4M 🔥`
+1. [腾讯宣布引进VALORANT](https://s.weibo.com/weibo?q=%23%E8%85%BE%E8%AE%AF%E5%AE%A3%E5%B8%83%E5%BC%95%E8%BF%9BVALORANT%23&Refer=top) `1.3M 🔥`
 1. [喜茶发文致歉](https://s.weibo.com/weibo?q=%23%E5%96%9C%E8%8C%B6%E5%8F%91%E6%96%87%E8%87%B4%E6%AD%89%23&Refer=top) `1.3M 🔥`
 1. [孩子捐献遗体后夫妻也签下捐献书](https://s.weibo.com/weibo?q=%23%E5%AD%A9%E5%AD%90%E6%8D%90%E7%8C%AE%E9%81%97%E4%BD%93%E5%90%8E%E5%A4%AB%E5%A6%BB%E4%B9%9F%E7%AD%BE%E4%B8%8B%E6%8D%90%E7%8C%AE%E4%B9%A6%23&Refer=top) `1.2M 🔥`
 1. [新冠疫苗加强针要不要打](https://s.weibo.com/weibo?q=%23%E6%96%B0%E5%86%A0%E7%96%AB%E8%8B%97%E5%8A%A0%E5%BC%BA%E9%92%88%E8%A6%81%E4%B8%8D%E8%A6%81%E6%89%93%23&Refer=top) `1.2M 🔥`
-1. [腾讯宣布引进VALORANT](https://s.weibo.com/weibo?q=%23%E8%85%BE%E8%AE%AF%E5%AE%A3%E5%B8%83%E5%BC%95%E8%BF%9BVALORANT%23&Refer=top) `1.2M 🔥`
 1. [鱼界的颜值天花板](https://s.weibo.com/weibo?q=%23%E9%B1%BC%E7%95%8C%E7%9A%84%E9%A2%9C%E5%80%BC%E5%A4%A9%E8%8A%B1%E6%9D%BF%23&Refer=top) `1.2M 🔥`
 1. [刘伯明说冰箱里的苹果不舍得吃](https://s.weibo.com/weibo?q=%23%E5%88%98%E4%BC%AF%E6%98%8E%E8%AF%B4%E5%86%B0%E7%AE%B1%E9%87%8C%E7%9A%84%E8%8B%B9%E6%9E%9C%E4%B8%8D%E8%88%8D%E5%BE%97%E5%90%83%23&Refer=top) `1.1M 🔥`
 1. [当你忘记把狗狗的毯子打开](https://s.weibo.com/weibo?q=%23%E5%BD%93%E4%BD%A0%E5%BF%98%E8%AE%B0%E6%8A%8A%E7%8B%97%E7%8B%97%E7%9A%84%E6%AF%AF%E5%AD%90%E6%89%93%E5%BC%80%23&Refer=top) `1.0M 🔥`
@@ -57,7 +57,7 @@
 1. [幼儿园广播半夜放儿歌惊醒周边居民](https://s.weibo.com/weibo?q=%23%E5%B9%BC%E5%84%BF%E5%9B%AD%E5%B9%BF%E6%92%AD%E5%8D%8A%E5%A4%9C%E6%94%BE%E5%84%BF%E6%AD%8C%E6%83%8A%E9%86%92%E5%91%A8%E8%BE%B9%E5%B1%85%E6%B0%91%23&Refer=top) `595.2K 🔥`
 1. [航天员刘伯明的卧室外面是地球](https://s.weibo.com/weibo?q=%23%E8%88%AA%E5%A4%A9%E5%91%98%E5%88%98%E4%BC%AF%E6%98%8E%E7%9A%84%E5%8D%A7%E5%AE%A4%E5%A4%96%E9%9D%A2%E6%98%AF%E5%9C%B0%E7%90%83%23&Refer=top) `592.9K 🔥`
 
-数据更新于 2021-09-04 17:50:43
+数据更新于 2021-09-04 17:57:16
 
 <!-- END -->
 
