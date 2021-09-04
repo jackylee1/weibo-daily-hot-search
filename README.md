@@ -16,8 +16,8 @@
 1. [女生因病休学一年后考上清华](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E7%94%9F%E5%9B%A0%E7%97%85%E4%BC%91%E5%AD%A6%E4%B8%80%E5%B9%B4%E5%90%8E%E8%80%83%E4%B8%8A%E6%B8%85%E5%8D%8E%23&Refer=top) `1.6M 🔥`
 1. [塔利班士兵鸣枪庆祝致17死41伤](https://s.weibo.com/weibo?q=%23%E5%A1%94%E5%88%A9%E7%8F%AD%E5%A3%AB%E5%85%B5%E9%B8%A3%E6%9E%AA%E5%BA%86%E7%A5%9D%E8%87%B417%E6%AD%BB41%E4%BC%A4%23&Refer=top) `1.6M 🔥`
 1. [一生一世定档](https://s.weibo.com/weibo?q=%23%E4%B8%80%E7%94%9F%E4%B8%80%E4%B8%96%E5%AE%9A%E6%A1%A3%23&Refer=top) `1.5M 🔥`
+1. [腾讯宣布引进VALORANT](https://s.weibo.com/weibo?q=%23%E8%85%BE%E8%AE%AF%E5%AE%A3%E5%B8%83%E5%BC%95%E8%BF%9BVALORANT%23&Refer=top) `1.5M 🔥`
 1. [25岁博士设遗嘱捐出全部存款](https://s.weibo.com/weibo?q=%2325%E5%B2%81%E5%8D%9A%E5%A3%AB%E8%AE%BE%E9%81%97%E5%98%B1%E6%8D%90%E5%87%BA%E5%85%A8%E9%83%A8%E5%AD%98%E6%AC%BE%23&Refer=top) `1.4M 🔥`
-1. [腾讯宣布引进VALORANT](https://s.weibo.com/weibo?q=%23%E8%85%BE%E8%AE%AF%E5%AE%A3%E5%B8%83%E5%BC%95%E8%BF%9BVALORANT%23&Refer=top) `1.4M 🔥`
 1. [喜茶发文致歉](https://s.weibo.com/weibo?q=%23%E5%96%9C%E8%8C%B6%E5%8F%91%E6%96%87%E8%87%B4%E6%AD%89%23&Refer=top) `1.3M 🔥`
 1. [他们好像小说里的男女主角](https://s.weibo.com/weibo?q=%23%E4%BB%96%E4%BB%AC%E5%A5%BD%E5%83%8F%E5%B0%8F%E8%AF%B4%E9%87%8C%E7%9A%84%E7%94%B7%E5%A5%B3%E4%B8%BB%E8%A7%92%23&Refer=top) `1.3M 🔥`
 1. [孩子捐献遗体后夫妻也签下捐献书](https://s.weibo.com/weibo?q=%23%E5%AD%A9%E5%AD%90%E6%8D%90%E7%8C%AE%E9%81%97%E4%BD%93%E5%90%8E%E5%A4%AB%E5%A6%BB%E4%B9%9F%E7%AD%BE%E4%B8%8B%E6%8D%90%E7%8C%AE%E4%B9%A6%23&Refer=top) `1.2M 🔥`
@@ -57,7 +57,7 @@
 1. [中餐厅](https://s.weibo.com/weibo?q=%E4%B8%AD%E9%A4%90%E5%8E%85&Refer=top) `595.9K 🔥`
 1. [幼儿园广播半夜放儿歌惊醒周边居民](https://s.weibo.com/weibo?q=%23%E5%B9%BC%E5%84%BF%E5%9B%AD%E5%B9%BF%E6%92%AD%E5%8D%8A%E5%A4%9C%E6%94%BE%E5%84%BF%E6%AD%8C%E6%83%8A%E9%86%92%E5%91%A8%E8%BE%B9%E5%B1%85%E6%B0%91%23&Refer=top) `595.2K 🔥`
 
-数据更新于 2021-09-04 18:29:18
+数据更新于 2021-09-04 18:39:44
 
 <!-- END -->
 
