@@ -25,11 +25,11 @@
 1. [舞蹈生导师好像奥利奥](https://s.weibo.com/weibo?q=%23%E8%88%9E%E8%B9%88%E7%94%9F%E5%AF%BC%E5%B8%88%E5%A5%BD%E5%83%8F%E5%A5%A5%E5%88%A9%E5%A5%A5%23&Refer=top) `886.2K 🔥`
 1. [幼儿园监控里的暖心一幕](https://s.weibo.com/weibo?q=%23%E5%B9%BC%E5%84%BF%E5%9B%AD%E7%9B%91%E6%8E%A7%E9%87%8C%E7%9A%84%E6%9A%96%E5%BF%83%E4%B8%80%E5%B9%95%23&Refer=top) `882.8K 🔥`
 1. [西安一物理学硕士摆摊卖卤味](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E5%AE%89%E4%B8%80%E7%89%A9%E7%90%86%E5%AD%A6%E7%A1%95%E5%A3%AB%E6%91%86%E6%91%8A%E5%8D%96%E5%8D%A4%E5%91%B3%23&Refer=top) `857.1K 🔥`
+1. [刘伯明说冰箱里的苹果不舍得吃](https://s.weibo.com/weibo?q=%23%E5%88%98%E4%BC%AF%E6%98%8E%E8%AF%B4%E5%86%B0%E7%AE%B1%E9%87%8C%E7%9A%84%E8%8B%B9%E6%9E%9C%E4%B8%8D%E8%88%8D%E5%BE%97%E5%90%83%23&Refer=top) `845.1K 🔥`
 1. [北京暴雨](https://s.weibo.com/weibo?q=%E5%8C%97%E4%BA%AC%E6%9A%B4%E9%9B%A8&Refer=top) `797.4K 🔥`
 1. [乔四美经商头脑](https://s.weibo.com/weibo?q=%23%E4%B9%94%E5%9B%9B%E7%BE%8E%E7%BB%8F%E5%95%86%E5%A4%B4%E8%84%91%23&Refer=top) `751.7K 🔥`
 1. [对手犯规中国选手残奥银牌变金牌](https://s.weibo.com/weibo?q=%23%E5%AF%B9%E6%89%8B%E7%8A%AF%E8%A7%84%E4%B8%AD%E5%9B%BD%E9%80%89%E6%89%8B%E6%AE%8B%E5%A5%A5%E9%93%B6%E7%89%8C%E5%8F%98%E9%87%91%E7%89%8C%23&Refer=top) `745.2K 🔥`
 1. [雨后北京什刹海宛如江南](https://s.weibo.com/weibo?q=%23%E9%9B%A8%E5%90%8E%E5%8C%97%E4%BA%AC%E4%BB%80%E5%88%B9%E6%B5%B7%E5%AE%9B%E5%A6%82%E6%B1%9F%E5%8D%97%23&Refer=top) `700.5K 🔥`
-1. [刘伯明说冰箱里的苹果不舍得吃](https://s.weibo.com/weibo?q=%23%E5%88%98%E4%BC%AF%E6%98%8E%E8%AF%B4%E5%86%B0%E7%AE%B1%E9%87%8C%E7%9A%84%E8%8B%B9%E6%9E%9C%E4%B8%8D%E8%88%8D%E5%BE%97%E5%90%83%23&Refer=top) `682.1K 🔥`
 1. [官方回应房产面积不足不得入学](https://s.weibo.com/weibo?q=%23%E5%AE%98%E6%96%B9%E5%9B%9E%E5%BA%94%E6%88%BF%E4%BA%A7%E9%9D%A2%E7%A7%AF%E4%B8%8D%E8%B6%B3%E4%B8%8D%E5%BE%97%E5%85%A5%E5%AD%A6%23&Refer=top) `662.2K 🔥`
 1. [日本战犯供述刑讯赵一曼经过](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E6%88%98%E7%8A%AF%E4%BE%9B%E8%BF%B0%E5%88%91%E8%AE%AF%E8%B5%B5%E4%B8%80%E6%9B%BC%E7%BB%8F%E8%BF%87%23&Refer=top) `658.5K 🔥`
 1. [男童半夜走丢民警联系家属被当骗子](https://s.weibo.com/weibo?q=%E7%94%B7%E7%AB%A5%E5%8D%8A%E5%A4%9C%E8%B5%B0%E4%B8%A2%E6%B0%91%E8%AD%A6%E8%81%94%E7%B3%BB%E5%AE%B6%E5%B1%9E%E8%A2%AB%E5%BD%93%E9%AA%97%E5%AD%90&Refer=top) `658.0K 🔥`
@@ -50,14 +50,14 @@
 1. [黑龙江拖拉机与挂车相撞致15死](https://s.weibo.com/weibo?q=%23%E9%BB%91%E9%BE%99%E6%B1%9F%E6%8B%96%E6%8B%89%E6%9C%BA%E4%B8%8E%E6%8C%82%E8%BD%A6%E7%9B%B8%E6%92%9E%E8%87%B415%E6%AD%BB%23&Refer=top) `557.4K 🔥`
 1. [中级会计](https://s.weibo.com/weibo?q=%E4%B8%AD%E7%BA%A7%E4%BC%9A%E8%AE%A1&Refer=top) `549.3K 🔥`
 1. [辰时cp最强售后](https://s.weibo.com/weibo?q=%23%E8%BE%B0%E6%97%B6cp%E6%9C%80%E5%BC%BA%E5%94%AE%E5%90%8E%23&Refer=top) `543.2K 🔥`
+1. [程序员那么可爱定档](https://s.weibo.com/weibo?q=%23%E7%A8%8B%E5%BA%8F%E5%91%98%E9%82%A3%E4%B9%88%E5%8F%AF%E7%88%B1%E5%AE%9A%E6%A1%A3%23&Refer=top) `541.5K 🔥`
 1. [Uzi五杀](https://s.weibo.com/weibo?q=%23Uzi%E4%BA%94%E6%9D%80%23&Refer=top) `533.8K 🔥`
 1. [唐宫夜宴中国女团天花板](https://s.weibo.com/weibo?q=%23%E5%94%90%E5%AE%AB%E5%A4%9C%E5%AE%B4%E4%B8%AD%E5%9B%BD%E5%A5%B3%E5%9B%A2%E5%A4%A9%E8%8A%B1%E6%9D%BF%23&Refer=top) `507.4K 🔥`
 1. [安崎刘柏辛玫瑰少年舞台](https://s.weibo.com/weibo?q=%23%E5%AE%89%E5%B4%8E%E5%88%98%E6%9F%8F%E8%BE%9B%E7%8E%AB%E7%91%B0%E5%B0%91%E5%B9%B4%E8%88%9E%E5%8F%B0%23&Refer=top) `505.8K 🔥`
 1. [消防员车库发现牛奶饼干立马调监控](https://s.weibo.com/weibo?q=%23%E6%B6%88%E9%98%B2%E5%91%98%E8%BD%A6%E5%BA%93%E5%8F%91%E7%8E%B0%E7%89%9B%E5%A5%B6%E9%A5%BC%E5%B9%B2%E7%AB%8B%E9%A9%AC%E8%B0%83%E7%9B%91%E6%8E%A7%23&Refer=top) `503.2K 🔥`
 1. [山西一教师校外培训机构上课被调离岗位](https://s.weibo.com/weibo?q=%23%E5%B1%B1%E8%A5%BF%E4%B8%80%E6%95%99%E5%B8%88%E6%A0%A1%E5%A4%96%E5%9F%B9%E8%AE%AD%E6%9C%BA%E6%9E%84%E4%B8%8A%E8%AF%BE%E8%A2%AB%E8%B0%83%E7%A6%BB%E5%B2%97%E4%BD%8D%23&Refer=top) `499.8K 🔥`
-1. [50位东京奥运冠军全员征战全运](https://s.weibo.com/weibo?q=%2350%E4%BD%8D%E4%B8%9C%E4%BA%AC%E5%A5%A5%E8%BF%90%E5%86%A0%E5%86%9B%E5%85%A8%E5%91%98%E5%BE%81%E6%88%98%E5%85%A8%E8%BF%90%23&Refer=top) `477.6K 🔥`
 
-数据更新于 2021-09-04 13:06:28
+数据更新于 2021-09-04 13:20:47
 
 <!-- END -->
 
