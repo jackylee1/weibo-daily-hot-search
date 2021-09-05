@@ -11,6 +11,7 @@
 1. [为什么小孩子没有腰](https://s.weibo.com/weibo?q=%23%E4%B8%BA%E4%BB%80%E4%B9%88%E5%B0%8F%E5%AD%A9%E5%AD%90%E6%B2%A1%E6%9C%89%E8%85%B0%23&Refer=top) `1.2M 🔥`
 1. [影帝们的吃戏有多绝](https://s.weibo.com/weibo?q=%23%E5%BD%B1%E5%B8%9D%E4%BB%AC%E7%9A%84%E5%90%83%E6%88%8F%E6%9C%89%E5%A4%9A%E7%BB%9D%23&Refer=top) `1.1M 🔥`
 1. [男子被同桌喝酒朋友举报酒驾](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E8%A2%AB%E5%90%8C%E6%A1%8C%E5%96%9D%E9%85%92%E6%9C%8B%E5%8F%8B%E4%B8%BE%E6%8A%A5%E9%85%92%E9%A9%BE%23&Refer=top) `1.1M 🔥`
+1. [扁头最扁能有多夸张](https://s.weibo.com/weibo?q=%23%E6%89%81%E5%A4%B4%E6%9C%80%E6%89%81%E8%83%BD%E6%9C%89%E5%A4%9A%E5%A4%B8%E5%BC%A0%23&Refer=top) `736.4K 🔥`
 1. [安徽一00后高考作弊被判刑](https://s.weibo.com/weibo?q=%23%E5%AE%89%E5%BE%BD%E4%B8%8000%E5%90%8E%E9%AB%98%E8%80%83%E4%BD%9C%E5%BC%8A%E8%A2%AB%E5%88%A4%E5%88%91%23&Refer=top) `734.8K 🔥`
 1. [上海月饼店排队5小时](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E6%9C%88%E9%A5%BC%E5%BA%97%E6%8E%92%E9%98%9F5%E5%B0%8F%E6%97%B6%23&Refer=top) `642.6K 🔥`
 1. [S11出征仪式](https://s.weibo.com/weibo?q=%23S11%E5%87%BA%E5%BE%81%E4%BB%AA%E5%BC%8F%23&Refer=top) `608.7K 🔥`
@@ -18,7 +19,6 @@
 1. [十九届中央第七轮巡视反馈工作全部完成](https://s.weibo.com/weibo?q=%23%E5%8D%81%E4%B9%9D%E5%B1%8A%E4%B8%AD%E5%A4%AE%E7%AC%AC%E4%B8%83%E8%BD%AE%E5%B7%A1%E8%A7%86%E5%8F%8D%E9%A6%88%E5%B7%A5%E4%BD%9C%E5%85%A8%E9%83%A8%E5%AE%8C%E6%88%90%23&Refer=top) `590.7K 🔥`
 1. [一句话学会给男朋友画饼](https://s.weibo.com/weibo?q=%23%E4%B8%80%E5%8F%A5%E8%AF%9D%E5%AD%A6%E4%BC%9A%E7%BB%99%E7%94%B7%E6%9C%8B%E5%8F%8B%E7%94%BB%E9%A5%BC%23&Refer=top) `587.0K 🔥`
 1. [乔一成项南方分别](https://s.weibo.com/weibo?q=%23%E4%B9%94%E4%B8%80%E6%88%90%E9%A1%B9%E5%8D%97%E6%96%B9%E5%88%86%E5%88%AB%23&Refer=top) `576.4K 🔥`
-1. [扁头最扁能有多夸张](https://s.weibo.com/weibo?q=%23%E6%89%81%E5%A4%B4%E6%9C%80%E6%89%81%E8%83%BD%E6%9C%89%E5%A4%9A%E5%A4%B8%E5%BC%A0%23&Refer=top) `576.2K 🔥`
 1. [研究生期间是不是很难找到对象](https://s.weibo.com/weibo?q=%23%E7%A0%94%E7%A9%B6%E7%94%9F%E6%9C%9F%E9%97%B4%E6%98%AF%E4%B8%8D%E6%98%AF%E5%BE%88%E9%9A%BE%E6%89%BE%E5%88%B0%E5%AF%B9%E8%B1%A1%23&Refer=top) `515.8K 🔥`
 1. [土耳其小男孩被总统多次敲头](https://s.weibo.com/weibo?q=%23%E5%9C%9F%E8%80%B3%E5%85%B6%E5%B0%8F%E7%94%B7%E5%AD%A9%E8%A2%AB%E6%80%BB%E7%BB%9F%E5%A4%9A%E6%AC%A1%E6%95%B2%E5%A4%B4%23&Refer=top) `501.8K 🔥`
 1. [你好巴黎再见东京](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E5%A5%BD%E5%B7%B4%E9%BB%8E%E5%86%8D%E8%A7%81%E4%B8%9C%E4%BA%AC%23&Refer=top) `470.0K 🔥`
@@ -47,6 +47,7 @@
 1. [吃定可爱的他开机](https://s.weibo.com/weibo?q=%E5%90%83%E5%AE%9A%E5%8F%AF%E7%88%B1%E7%9A%84%E4%BB%96%E5%BC%80%E6%9C%BA&Refer=top) `200.9K 🔥`
 1. [和马看到川剧变脸的反应](https://s.weibo.com/weibo?q=%23%E5%92%8C%E9%A9%AC%E7%9C%8B%E5%88%B0%E5%B7%9D%E5%89%A7%E5%8F%98%E8%84%B8%E7%9A%84%E5%8F%8D%E5%BA%94%23&Refer=top) `196.0K 🔥`
 1. [驴友被困海拔4600米高山](https://s.weibo.com/weibo?q=%23%E9%A9%B4%E5%8F%8B%E8%A2%AB%E5%9B%B0%E6%B5%B7%E6%8B%944600%E7%B1%B3%E9%AB%98%E5%B1%B1%23&Refer=top) `195.9K 🔥`
+1. [人类幼崽的友情有多甜](https://s.weibo.com/weibo?q=%23%E4%BA%BA%E7%B1%BB%E5%B9%BC%E5%B4%BD%E7%9A%84%E5%8F%8B%E6%83%85%E6%9C%89%E5%A4%9A%E7%94%9C%23&Refer=top) `190.3K 🔥`
 1. [云南虫谷奇奇怪怪的冷知识](https://s.weibo.com/weibo?q=%23%E4%BA%91%E5%8D%97%E8%99%AB%E8%B0%B7%E5%A5%87%E5%A5%87%E6%80%AA%E6%80%AA%E7%9A%84%E5%86%B7%E7%9F%A5%E8%AF%86%23&Refer=top) `190.2K 🔥`
 1. [与君歌的意难平](https://s.weibo.com/weibo?q=%23%E4%B8%8E%E5%90%9B%E6%AD%8C%E7%9A%84%E6%84%8F%E9%9A%BE%E5%B9%B3%23&Refer=top) `187.7K 🔥`
 1. [成毅发博告别齐焱](https://s.weibo.com/weibo?q=%23%E6%88%90%E6%AF%85%E5%8F%91%E5%8D%9A%E5%91%8A%E5%88%AB%E9%BD%90%E7%84%B1%23&Refer=top) `186.5K 🔥`
@@ -55,9 +56,8 @@
 1. [LNG晋级世界赛](https://s.weibo.com/weibo?q=%23LNG%E6%99%8B%E7%BA%A7%E4%B8%96%E7%95%8C%E8%B5%9B%23&Refer=top) `161.7K 🔥`
 1. [残奥会闭幕式手臂舞绝了](https://s.weibo.com/weibo?q=%23%E6%AE%8B%E5%A5%A5%E4%BC%9A%E9%97%AD%E5%B9%95%E5%BC%8F%E6%89%8B%E8%87%82%E8%88%9E%E7%BB%9D%E4%BA%86%23&Refer=top) `160.6K 🔥`
 1. [医生等电梯前多看一眼救人一命](https://s.weibo.com/weibo?q=%23%E5%8C%BB%E7%94%9F%E7%AD%89%E7%94%B5%E6%A2%AF%E5%89%8D%E5%A4%9A%E7%9C%8B%E4%B8%80%E7%9C%BC%E6%95%91%E4%BA%BA%E4%B8%80%E5%91%BD%23&Refer=top) `155.9K 🔥`
-1. [残奥会闭幕式上一段用眼睛控制的表演](https://s.weibo.com/weibo?q=%23%E6%AE%8B%E5%A5%A5%E4%BC%9A%E9%97%AD%E5%B9%95%E5%BC%8F%E4%B8%8A%E4%B8%80%E6%AE%B5%E7%94%A8%E7%9C%BC%E7%9D%9B%E6%8E%A7%E5%88%B6%E7%9A%84%E8%A1%A8%E6%BC%94%23&Refer=top) `153.2K 🔥`
 
-数据更新于 2021-09-06 06:29:07
+数据更新于 2021-09-06 06:38:16
 
 <!-- END -->
 
