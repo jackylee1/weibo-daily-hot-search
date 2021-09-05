@@ -10,9 +10,9 @@
 1. [央视曝职业学校收费乱象](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E6%9B%9D%E8%81%8C%E4%B8%9A%E5%AD%A6%E6%A0%A1%E6%94%B6%E8%B4%B9%E4%B9%B1%E8%B1%A1%23&Refer=top) `1.9M 🔥`
 1. [一块月饼相当于一餐热卡需求](https://s.weibo.com/weibo?q=%23%E4%B8%80%E5%9D%97%E6%9C%88%E9%A5%BC%E7%9B%B8%E5%BD%93%E4%BA%8E%E4%B8%80%E9%A4%90%E7%83%AD%E5%8D%A1%E9%9C%80%E6%B1%82%23&Refer=top) `1.6M 🔥`
 1. [男子半夜疼醒竟因蟑螂钻进耳朵](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E5%8D%8A%E5%A4%9C%E7%96%BC%E9%86%92%E7%AB%9F%E5%9B%A0%E8%9F%91%E8%9E%82%E9%92%BB%E8%BF%9B%E8%80%B3%E6%9C%B5%23&Refer=top) `1.5M 🔥`
+1. [70后新生报到被误认为家长](https://s.weibo.com/weibo?q=%2370%E5%90%8E%E6%96%B0%E7%94%9F%E6%8A%A5%E5%88%B0%E8%A2%AB%E8%AF%AF%E8%AE%A4%E4%B8%BA%E5%AE%B6%E9%95%BF%23&Refer=top) `1.4M 🔥`
 1. [手机居然被白鲸捡回来了](https://s.weibo.com/weibo?q=%23%E6%89%8B%E6%9C%BA%E5%B1%85%E7%84%B6%E8%A2%AB%E7%99%BD%E9%B2%B8%E6%8D%A1%E5%9B%9E%E6%9D%A5%E4%BA%86%23&Refer=top) `1.3M 🔥`
 1. [黑龙江致15死车祸遇难者家属发声](https://s.weibo.com/weibo?q=%23%E9%BB%91%E9%BE%99%E6%B1%9F%E8%87%B415%E6%AD%BB%E8%BD%A6%E7%A5%B8%E9%81%87%E9%9A%BE%E8%80%85%E5%AE%B6%E5%B1%9E%E5%8F%91%E5%A3%B0%23&Refer=top) `1.2M 🔥`
-1. [70后新生报到被误认为家长](https://s.weibo.com/weibo?q=%2370%E5%90%8E%E6%96%B0%E7%94%9F%E6%8A%A5%E5%88%B0%E8%A2%AB%E8%AF%AF%E8%AE%A4%E4%B8%BA%E5%AE%B6%E9%95%BF%23&Refer=top) `1.0M 🔥`
 1. [广州新增本土无症状1例](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E5%B7%9E%E6%96%B0%E5%A2%9E%E6%9C%AC%E5%9C%9F%E6%97%A0%E7%97%87%E7%8A%B61%E4%BE%8B%23&Refer=top) `1.0M 🔥`
 1. [千万别去有宠物的公司上班](https://s.weibo.com/weibo?q=%23%E5%8D%83%E4%B8%87%E5%88%AB%E5%8E%BB%E6%9C%89%E5%AE%A0%E7%89%A9%E7%9A%84%E5%85%AC%E5%8F%B8%E4%B8%8A%E7%8F%AD%23&Refer=top) `951.8K 🔥`
 1. [弟弟见到退伍哥哥后激动到流泪](https://s.weibo.com/weibo?q=%23%E5%BC%9F%E5%BC%9F%E8%A7%81%E5%88%B0%E9%80%80%E4%BC%8D%E5%93%A5%E5%93%A5%E5%90%8E%E6%BF%80%E5%8A%A8%E5%88%B0%E6%B5%81%E6%B3%AA%23&Refer=top) `835.5K 🔥`
@@ -45,19 +45,19 @@
 1. [大江想和阳阳再回馄饨店](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E6%B1%9F%E6%83%B3%E5%92%8C%E9%98%B3%E9%98%B3%E5%86%8D%E5%9B%9E%E9%A6%84%E9%A5%A8%E5%BA%97%23&Refer=top) `377.2K 🔥`
 1. [美国每8人中有1人确诊新冠](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E6%AF%8F8%E4%BA%BA%E4%B8%AD%E6%9C%891%E4%BA%BA%E7%A1%AE%E8%AF%8A%E6%96%B0%E5%86%A0%23&Refer=top) `350.6K 🔥`
 1. [警方通报男子挤压幼儿肚子](https://s.weibo.com/weibo?q=%23%E8%AD%A6%E6%96%B9%E9%80%9A%E6%8A%A5%E7%94%B7%E5%AD%90%E6%8C%A4%E5%8E%8B%E5%B9%BC%E5%84%BF%E8%82%9A%E5%AD%90%23&Refer=top) `345.0K 🔥`
+1. [深圳一中学家委会发动所有班级为教师买礼品](https://s.weibo.com/weibo?q=%23%E6%B7%B1%E5%9C%B3%E4%B8%80%E4%B8%AD%E5%AD%A6%E5%AE%B6%E5%A7%94%E4%BC%9A%E5%8F%91%E5%8A%A8%E6%89%80%E6%9C%89%E7%8F%AD%E7%BA%A7%E4%B8%BA%E6%95%99%E5%B8%88%E4%B9%B0%E7%A4%BC%E5%93%81%23&Refer=top) `330.7K 🔥`
 1. [不要污名化伞兵](https://s.weibo.com/weibo?q=%23%E4%B8%8D%E8%A6%81%E6%B1%A1%E5%90%8D%E5%8C%96%E4%BC%9E%E5%85%B5%23&Refer=top) `330.5K 🔥`
-1. [深圳一中学家委会发动所有班级为教师买礼品](https://s.weibo.com/weibo?q=%23%E6%B7%B1%E5%9C%B3%E4%B8%80%E4%B8%AD%E5%AD%A6%E5%AE%B6%E5%A7%94%E4%BC%9A%E5%8F%91%E5%8A%A8%E6%89%80%E6%9C%89%E7%8F%AD%E7%BA%A7%E4%B8%BA%E6%95%99%E5%B8%88%E4%B9%B0%E7%A4%BC%E5%93%81%23&Refer=top) `326.9K 🔥`
 1. [东京残奥中国奖牌破200](https://s.weibo.com/weibo?q=%23%E4%B8%9C%E4%BA%AC%E6%AE%8B%E5%A5%A5%E4%B8%AD%E5%9B%BD%E5%A5%96%E7%89%8C%E7%A0%B4200%23&Refer=top) `326.4K 🔥`
 1. [塔利班与反塔力量激战450名士兵丧生](https://s.weibo.com/weibo?q=%23%E5%A1%94%E5%88%A9%E7%8F%AD%E4%B8%8E%E5%8F%8D%E5%A1%94%E5%8A%9B%E9%87%8F%E6%BF%80%E6%88%98450%E5%90%8D%E5%A3%AB%E5%85%B5%E4%B8%A7%E7%94%9F%23&Refer=top) `326.2K 🔥`
 1. [任嘉伦安全意识有多强](https://s.weibo.com/weibo?q=%23%E4%BB%BB%E5%98%89%E4%BC%A6%E5%AE%89%E5%85%A8%E6%84%8F%E8%AF%86%E6%9C%89%E5%A4%9A%E5%BC%BA%23&Refer=top) `326.2K 🔥`
 1. [乔家的儿女](https://s.weibo.com/weibo?q=%E4%B9%94%E5%AE%B6%E7%9A%84%E5%84%BF%E5%A5%B3&Refer=top) `326.2K 🔥`
 1. [吴晓亮演技](https://s.weibo.com/weibo?q=%23%E5%90%B4%E6%99%93%E4%BA%AE%E6%BC%94%E6%8A%80%23&Refer=top) `320.4K 🔥`
 1. [8090后当年的校园广播神曲](https://s.weibo.com/weibo?q=%238090%E5%90%8E%E5%BD%93%E5%B9%B4%E7%9A%84%E6%A0%A1%E5%9B%AD%E5%B9%BF%E6%92%AD%E7%A5%9E%E6%9B%B2%23&Refer=top) `312.2K 🔥`
-1. [饮酒史越长记忆损害越严重](https://s.weibo.com/weibo?q=%23%E9%A5%AE%E9%85%92%E5%8F%B2%E8%B6%8A%E9%95%BF%E8%AE%B0%E5%BF%86%E6%8D%9F%E5%AE%B3%E8%B6%8A%E4%B8%A5%E9%87%8D%23&Refer=top) `293.6K 🔥`
+1. [饮酒史越长记忆损害越严重](https://s.weibo.com/weibo?q=%23%E9%A5%AE%E9%85%92%E5%8F%B2%E8%B6%8A%E9%95%BF%E8%AE%B0%E5%BF%86%E6%8D%9F%E5%AE%B3%E8%B6%8A%E4%B8%A5%E9%87%8D%23&Refer=top) `307.4K 🔥`
 1. [我的砍价女王太好笑了吧](https://s.weibo.com/weibo?q=%23%E6%88%91%E7%9A%84%E7%A0%8D%E4%BB%B7%E5%A5%B3%E7%8E%8B%E5%A4%AA%E5%A5%BD%E7%AC%91%E4%BA%86%E5%90%A7%23&Refer=top) `293.4K 🔥`
 1. [工作前后生活有啥变化](https://s.weibo.com/weibo?q=%23%E5%B7%A5%E4%BD%9C%E5%89%8D%E5%90%8E%E7%94%9F%E6%B4%BB%E6%9C%89%E5%95%A5%E5%8F%98%E5%8C%96%23&Refer=top) `291.1K 🔥`
 
-数据更新于 2021-09-05 10:12:22
+数据更新于 2021-09-05 10:17:21
 
 <!-- END -->
 
