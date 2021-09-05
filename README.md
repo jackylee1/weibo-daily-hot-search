@@ -18,10 +18,10 @@
 1. [十九届中央第七轮巡视反馈工作全部完成](https://s.weibo.com/weibo?q=%23%E5%8D%81%E4%B9%9D%E5%B1%8A%E4%B8%AD%E5%A4%AE%E7%AC%AC%E4%B8%83%E8%BD%AE%E5%B7%A1%E8%A7%86%E5%8F%8D%E9%A6%88%E5%B7%A5%E4%BD%9C%E5%85%A8%E9%83%A8%E5%AE%8C%E6%88%90%23&Refer=top) `590.7K 🔥`
 1. [一句话学会给男朋友画饼](https://s.weibo.com/weibo?q=%23%E4%B8%80%E5%8F%A5%E8%AF%9D%E5%AD%A6%E4%BC%9A%E7%BB%99%E7%94%B7%E6%9C%8B%E5%8F%8B%E7%94%BB%E9%A5%BC%23&Refer=top) `587.0K 🔥`
 1. [乔一成项南方分别](https://s.weibo.com/weibo?q=%23%E4%B9%94%E4%B8%80%E6%88%90%E9%A1%B9%E5%8D%97%E6%96%B9%E5%88%86%E5%88%AB%23&Refer=top) `576.4K 🔥`
+1. [扁头最扁能有多夸张](https://s.weibo.com/weibo?q=%23%E6%89%81%E5%A4%B4%E6%9C%80%E6%89%81%E8%83%BD%E6%9C%89%E5%A4%9A%E5%A4%B8%E5%BC%A0%23&Refer=top) `576.2K 🔥`
 1. [研究生期间是不是很难找到对象](https://s.weibo.com/weibo?q=%23%E7%A0%94%E7%A9%B6%E7%94%9F%E6%9C%9F%E9%97%B4%E6%98%AF%E4%B8%8D%E6%98%AF%E5%BE%88%E9%9A%BE%E6%89%BE%E5%88%B0%E5%AF%B9%E8%B1%A1%23&Refer=top) `515.8K 🔥`
 1. [土耳其小男孩被总统多次敲头](https://s.weibo.com/weibo?q=%23%E5%9C%9F%E8%80%B3%E5%85%B6%E5%B0%8F%E7%94%B7%E5%AD%A9%E8%A2%AB%E6%80%BB%E7%BB%9F%E5%A4%9A%E6%AC%A1%E6%95%B2%E5%A4%B4%23&Refer=top) `501.8K 🔥`
 1. [你好巴黎再见东京](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E5%A5%BD%E5%B7%B4%E9%BB%8E%E5%86%8D%E8%A7%81%E4%B8%9C%E4%BA%AC%23&Refer=top) `470.0K 🔥`
-1. [扁头最扁能有多夸张](https://s.weibo.com/weibo?q=%23%E6%89%81%E5%A4%B4%E6%9C%80%E6%89%81%E8%83%BD%E6%9C%89%E5%A4%9A%E5%A4%B8%E5%BC%A0%23&Refer=top) `426.7K 🔥`
 1. [被德云团综第三期整破防了](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E5%BE%B7%E4%BA%91%E5%9B%A2%E7%BB%BC%E7%AC%AC%E4%B8%89%E6%9C%9F%E6%95%B4%E7%A0%B4%E9%98%B2%E4%BA%86%23&Refer=top) `421.9K 🔥`
 1. [你是我的荣耀泰语版预告](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E6%98%AF%E6%88%91%E7%9A%84%E8%8D%A3%E8%80%80%E6%B3%B0%E8%AF%AD%E7%89%88%E9%A2%84%E5%91%8A%23&Refer=top) `413.6K 🔥`
 1. [上海非学科类培训迅速升温](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E9%9D%9E%E5%AD%A6%E7%A7%91%E7%B1%BB%E5%9F%B9%E8%AE%AD%E8%BF%85%E9%80%9F%E5%8D%87%E6%B8%A9%23&Refer=top) `372.4K 🔥`
@@ -57,7 +57,7 @@
 1. [医生等电梯前多看一眼救人一命](https://s.weibo.com/weibo?q=%23%E5%8C%BB%E7%94%9F%E7%AD%89%E7%94%B5%E6%A2%AF%E5%89%8D%E5%A4%9A%E7%9C%8B%E4%B8%80%E7%9C%BC%E6%95%91%E4%BA%BA%E4%B8%80%E5%91%BD%23&Refer=top) `155.9K 🔥`
 1. [残奥会闭幕式上一段用眼睛控制的表演](https://s.weibo.com/weibo?q=%23%E6%AE%8B%E5%A5%A5%E4%BC%9A%E9%97%AD%E5%B9%95%E5%BC%8F%E4%B8%8A%E4%B8%80%E6%AE%B5%E7%94%A8%E7%9C%BC%E7%9D%9B%E6%8E%A7%E5%88%B6%E7%9A%84%E8%A1%A8%E6%BC%94%23&Refer=top) `153.2K 🔥`
 
-数据更新于 2021-09-06 06:14:17
+数据更新于 2021-09-06 06:29:07
 
 <!-- END -->
 
