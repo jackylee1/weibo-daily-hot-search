@@ -9,7 +9,7 @@
 1. [大学生领证1小时闹离婚女方索赔30万](https://s.weibo.com/weibo?q=%23%E5%A4%A7%E5%AD%A6%E7%94%9F%E9%A2%86%E8%AF%811%E5%B0%8F%E6%97%B6%E9%97%B9%E7%A6%BB%E5%A9%9A%E5%A5%B3%E6%96%B9%E7%B4%A2%E8%B5%9430%E4%B8%87%23&Refer=top) `5.8M 🔥`
 1. [酒店回应女子房间遭陌生男刷卡](https://s.weibo.com/weibo?q=%23%E9%85%92%E5%BA%97%E5%9B%9E%E5%BA%94%E5%A5%B3%E5%AD%90%E6%88%BF%E9%97%B4%E9%81%AD%E9%99%8C%E7%94%9F%E7%94%B7%E5%88%B7%E5%8D%A1%23&Refer=top) `4.3M 🔥`
 1. [丁宁宣布退役](https://s.weibo.com/weibo?q=%23%E4%B8%81%E5%AE%81%E5%AE%A3%E5%B8%83%E9%80%80%E5%BD%B9%23&Refer=top) `4.1M 🔥`
-1. [北大两次发函要求福建一学校更名](https://s.weibo.com/weibo?q=%23%E5%8C%97%E5%A4%A7%E4%B8%A4%E6%AC%A1%E5%8F%91%E5%87%BD%E8%A6%81%E6%B1%82%E7%A6%8F%E5%BB%BA%E4%B8%80%E5%AD%A6%E6%A0%A1%E6%9B%B4%E5%90%8D%23&Refer=top) `3.4M 🔥`
+1. [北大两次发函要求福建一学校更名](https://s.weibo.com/weibo?q=%23%E5%8C%97%E5%A4%A7%E4%B8%A4%E6%AC%A1%E5%8F%91%E5%87%BD%E8%A6%81%E6%B1%82%E7%A6%8F%E5%BB%BA%E4%B8%80%E5%AD%A6%E6%A0%A1%E6%9B%B4%E5%90%8D%23&Refer=top) `3.5M 🔥`
 1. [全红婵十四运会再现水花消失术](https://s.weibo.com/weibo?q=%23%E5%85%A8%E7%BA%A2%E5%A9%B5%E5%8D%81%E5%9B%9B%E8%BF%90%E4%BC%9A%E5%86%8D%E7%8E%B0%E6%B0%B4%E8%8A%B1%E6%B6%88%E5%A4%B1%E6%9C%AF%23&Refer=top) `3.4M 🔥`
 1. [福原爱发文祝福丁宁](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%8E%9F%E7%88%B1%E5%8F%91%E6%96%87%E7%A5%9D%E7%A6%8F%E4%B8%81%E5%AE%81%23&Refer=top) `3.2M 🔥`
 1. [医生提醒过敏性鼻炎不能使用抗生素](https://s.weibo.com/weibo?q=%23%E5%8C%BB%E7%94%9F%E6%8F%90%E9%86%92%E8%BF%87%E6%95%8F%E6%80%A7%E9%BC%BB%E7%82%8E%E4%B8%8D%E8%83%BD%E4%BD%BF%E7%94%A8%E6%8A%97%E7%94%9F%E7%B4%A0%23&Refer=top) `3.1M 🔥`
@@ -18,7 +18,7 @@
 1. [体重18公斤北航新生到校报到](https://s.weibo.com/weibo?q=%23%E4%BD%93%E9%87%8D18%E5%85%AC%E6%96%A4%E5%8C%97%E8%88%AA%E6%96%B0%E7%94%9F%E5%88%B0%E6%A0%A1%E6%8A%A5%E5%88%B0%23&Refer=top) `2.3M 🔥`
 1. [全红婵张家齐9月6日亮相十四运会](https://s.weibo.com/weibo?q=%23%E5%85%A8%E7%BA%A2%E5%A9%B5%E5%BC%A0%E5%AE%B6%E9%BD%909%E6%9C%886%E6%97%A5%E4%BA%AE%E7%9B%B8%E5%8D%81%E5%9B%9B%E8%BF%90%E4%BC%9A%23&Refer=top) `2.2M 🔥`
 1. [微信聊天记录云存储有必要吗](https://s.weibo.com/weibo?q=%23%E5%BE%AE%E4%BF%A1%E8%81%8A%E5%A4%A9%E8%AE%B0%E5%BD%95%E4%BA%91%E5%AD%98%E5%82%A8%E6%9C%89%E5%BF%85%E8%A6%81%E5%90%97%23&Refer=top) `2.2M 🔥`
-1. [三星堆再次出土一件青铜神树](https://s.weibo.com/weibo?q=%23%E4%B8%89%E6%98%9F%E5%A0%86%E5%86%8D%E6%AC%A1%E5%87%BA%E5%9C%9F%E4%B8%80%E4%BB%B6%E9%9D%92%E9%93%9C%E7%A5%9E%E6%A0%91%23&Refer=top) `1.9M 🔥`
+1. [三星堆再次出土一件青铜神树](https://s.weibo.com/weibo?q=%23%E4%B8%89%E6%98%9F%E5%A0%86%E5%86%8D%E6%AC%A1%E5%87%BA%E5%9C%9F%E4%B8%80%E4%BB%B6%E9%9D%92%E9%93%9C%E7%A5%9E%E6%A0%91%23&Refer=top) `2.0M 🔥`
 1. [考研生活真有那么苦吗](https://s.weibo.com/weibo?q=%23%E8%80%83%E7%A0%94%E7%94%9F%E6%B4%BB%E7%9C%9F%E6%9C%89%E9%82%A3%E4%B9%88%E8%8B%A6%E5%90%97%23&Refer=top) `1.7M 🔥`
 1. [丁宁入学北大](https://s.weibo.com/weibo?q=%23%E4%B8%81%E5%AE%81%E5%85%A5%E5%AD%A6%E5%8C%97%E5%A4%A7%23&Refer=top) `1.5M 🔥`
 1. [没有培训班的孩子周末](https://s.weibo.com/weibo?q=%23%E6%B2%A1%E6%9C%89%E5%9F%B9%E8%AE%AD%E7%8F%AD%E7%9A%84%E5%AD%A9%E5%AD%90%E5%91%A8%E6%9C%AB%23&Refer=top) `1.4M 🔥`
@@ -38,6 +38,7 @@
 1. [几内亚发生军事政变](https://s.weibo.com/weibo?q=%23%E5%87%A0%E5%86%85%E4%BA%9A%E5%8F%91%E7%94%9F%E5%86%9B%E4%BA%8B%E6%94%BF%E5%8F%98%23&Refer=top) `1.1M 🔥`
 1. [有个白富美女友是什么体验](https://s.weibo.com/weibo?q=%23%E6%9C%89%E4%B8%AA%E7%99%BD%E5%AF%8C%E7%BE%8E%E5%A5%B3%E5%8F%8B%E6%98%AF%E4%BB%80%E4%B9%88%E4%BD%93%E9%AA%8C%23&Refer=top) `1.1M 🔥`
 1. [全红婵带领广东队夺得10米台女团冠军](https://s.weibo.com/weibo?q=%E5%85%A8%E7%BA%A2%E5%A9%B5%E5%B8%A6%E9%A2%86%E5%B9%BF%E4%B8%9C%E9%98%9F%E5%A4%BA%E5%BE%9710%E7%B1%B3%E5%8F%B0%E5%A5%B3%E5%9B%A2%E5%86%A0%E5%86%9B&Refer=top) `1.1M 🔥`
+1. [原来蚝油是要放冰箱的](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E8%9A%9D%E6%B2%B9%E6%98%AF%E8%A6%81%E6%94%BE%E5%86%B0%E7%AE%B1%E7%9A%84%23&Refer=top) `1.1M 🔥`
 1. [男子被同桌喝酒朋友举报酒驾](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E8%A2%AB%E5%90%8C%E6%A1%8C%E5%96%9D%E9%85%92%E6%9C%8B%E5%8F%8B%E4%B8%BE%E6%8A%A5%E9%85%92%E9%A9%BE%23&Refer=top) `1.1M 🔥`
 1. [这个电话真的很重要](https://s.weibo.com/weibo?q=%23%E8%BF%99%E4%B8%AA%E7%94%B5%E8%AF%9D%E7%9C%9F%E7%9A%84%E5%BE%88%E9%87%8D%E8%A6%81%23&Refer=top) `1.0M 🔥`
 1. [刘国梁说丁宁真正乒乓生涯才刚开始](https://s.weibo.com/weibo?q=%23%E5%88%98%E5%9B%BD%E6%A2%81%E8%AF%B4%E4%B8%81%E5%AE%81%E7%9C%9F%E6%AD%A3%E4%B9%92%E4%B9%93%E7%94%9F%E6%B6%AF%E6%89%8D%E5%88%9A%E5%BC%80%E5%A7%8B%23&Refer=top) `981.1K 🔥`
@@ -55,9 +56,8 @@
 1. [中央军委举行晋升上将军衔仪式](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%A4%AE%E5%86%9B%E5%A7%94%E4%B8%BE%E8%A1%8C%E6%99%8B%E5%8D%87%E4%B8%8A%E5%B0%86%E5%86%9B%E8%A1%94%E4%BB%AA%E5%BC%8F%23&Refer=top) `729.3K 🔥`
 1. [被大湾区的普通话笑死](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E5%A4%A7%E6%B9%BE%E5%8C%BA%E7%9A%84%E6%99%AE%E9%80%9A%E8%AF%9D%E7%AC%91%E6%AD%BB%23&Refer=top) `727.3K 🔥`
 1. [一生一世开播](https://s.weibo.com/weibo?q=%23%E4%B8%80%E7%94%9F%E4%B8%80%E4%B8%96%E5%BC%80%E6%92%AD%23&Refer=top) `724.7K 🔥`
-1. [北大教授戴锦华称不能让流量主导文化生产](https://s.weibo.com/weibo?q=%23%E5%8C%97%E5%A4%A7%E6%95%99%E6%8E%88%E6%88%B4%E9%94%A6%E5%8D%8E%E7%A7%B0%E4%B8%8D%E8%83%BD%E8%AE%A9%E6%B5%81%E9%87%8F%E4%B8%BB%E5%AF%BC%E6%96%87%E5%8C%96%E7%94%9F%E4%BA%A7%23&Refer=top) `721.2K 🔥`
 
-数据更新于 2021-09-06 20:13:43
+数据更新于 2021-09-06 20:46:43
 
 <!-- END -->
 
