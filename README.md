@@ -27,7 +27,7 @@
 1. [北京环球影城的威震天](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E7%8E%AF%E7%90%83%E5%BD%B1%E5%9F%8E%E7%9A%84%E5%A8%81%E9%9C%87%E5%A4%A9%23&Refer=top) `990.5K 🔥`
 1. [从大学宿舍关系里你学到了什么](https://s.weibo.com/weibo?q=%23%E4%BB%8E%E5%A4%A7%E5%AD%A6%E5%AE%BF%E8%88%8D%E5%85%B3%E7%B3%BB%E9%87%8C%E4%BD%A0%E5%AD%A6%E5%88%B0%E4%BA%86%E4%BB%80%E4%B9%88%23&Refer=top) `977.0K 🔥`
 1. [原来蚝油是要放冰箱的](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E8%9A%9D%E6%B2%B9%E6%98%AF%E8%A6%81%E6%94%BE%E5%86%B0%E7%AE%B1%E7%9A%84%23&Refer=top) `962.0K 🔥`
-1. [湿发纯欲妆](https://s.weibo.com/weibo?q=%23%E6%B9%BF%E5%8F%91%E7%BA%AF%E6%AC%B2%E5%A6%86%23&Refer=top) `957.6K 🔥`
+1. [湿发纯欲妆](https://s.weibo.com/weibo?q=%23%E6%B9%BF%E5%8F%91%E7%BA%AF%E6%AC%B2%E5%A6%86%23&Refer=top) `958.9K 🔥`
 1. [乔四美好勇](https://s.weibo.com/weibo?q=%23%E4%B9%94%E5%9B%9B%E7%BE%8E%E5%A5%BD%E5%8B%87%23&Refer=top) `899.8K 🔥`
 1. [72岁老人为杭州城种十万株凌霄花](https://s.weibo.com/weibo?q=72%E5%B2%81%E8%80%81%E4%BA%BA%E4%B8%BA%E6%9D%AD%E5%B7%9E%E5%9F%8E%E7%A7%8D%E5%8D%81%E4%B8%87%E6%A0%AA%E5%87%8C%E9%9C%84%E8%8A%B1&Refer=top) `895.4K 🔥`
 1. [原来高情商沟通是糊弄学](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E9%AB%98%E6%83%85%E5%95%86%E6%B2%9F%E9%80%9A%E6%98%AF%E7%B3%8A%E5%BC%84%E5%AD%A6%23&Refer=top) `883.0K 🔥`
@@ -57,7 +57,7 @@
 1. [错换人生28年案将于9月18日再次开庭](https://s.weibo.com/weibo?q=%23%E9%94%99%E6%8D%A2%E4%BA%BA%E7%94%9F28%E5%B9%B4%E6%A1%88%E5%B0%86%E4%BA%8E9%E6%9C%8818%E6%97%A5%E5%86%8D%E6%AC%A1%E5%BC%80%E5%BA%AD%23&Refer=top) `591.6K 🔥`
 1. [9月15日起内地居民赴港免14日隔离](https://s.weibo.com/weibo?q=%239%E6%9C%8815%E6%97%A5%E8%B5%B7%E5%86%85%E5%9C%B0%E5%B1%85%E6%B0%91%E8%B5%B4%E6%B8%AF%E5%85%8D14%E6%97%A5%E9%9A%94%E7%A6%BB%23&Refer=top) `579.4K 🔥`
 
-数据更新于 2021-09-07 17:42:41
+数据更新于 2021-09-07 17:49:05
 
 <!-- END -->
 
