@@ -57,7 +57,7 @@
 1. [8个电竞项目入选亚运会](https://s.weibo.com/weibo?q=%238%E4%B8%AA%E7%94%B5%E7%AB%9E%E9%A1%B9%E7%9B%AE%E5%85%A5%E9%80%89%E4%BA%9A%E8%BF%90%E4%BC%9A%23&Refer=top) `503.0K 🔥`
 1. [安徽一财政所长办公室内猝死](https://s.weibo.com/weibo?q=%23%E5%AE%89%E5%BE%BD%E4%B8%80%E8%B4%A2%E6%94%BF%E6%89%80%E9%95%BF%E5%8A%9E%E5%85%AC%E5%AE%A4%E5%86%85%E7%8C%9D%E6%AD%BB%23&Refer=top) `486.0K 🔥`
 
-数据更新于 2021-09-07 15:33:23
+数据更新于 2021-09-07 15:39:51
 
 <!-- END -->
 
