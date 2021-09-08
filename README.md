@@ -10,6 +10,7 @@
 1. [西南大学核酸异常学生排除感染](https://s.weibo.com/weibo?q=%23%E8%A5%BF%E5%8D%97%E5%A4%A7%E5%AD%A6%E6%A0%B8%E9%85%B8%E5%BC%82%E5%B8%B8%E5%AD%A6%E7%94%9F%E6%8E%92%E9%99%A4%E6%84%9F%E6%9F%93%23&Refer=top) `2.6M 🔥`
 1. [国足vs日本](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E8%B6%B3vs%E6%97%A5%E6%9C%AC%23&Refer=top) `2.6M 🔥`
 1. [妈妈为让女儿长高每天逼其跳绳3000个](https://s.weibo.com/weibo?q=%23%E5%A6%88%E5%A6%88%E4%B8%BA%E8%AE%A9%E5%A5%B3%E5%84%BF%E9%95%BF%E9%AB%98%E6%AF%8F%E5%A4%A9%E9%80%BC%E5%85%B6%E8%B7%B3%E7%BB%B33000%E4%B8%AA%23&Refer=top) `2.3M 🔥`
+1. [国庆节放假7天](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E5%BA%86%E8%8A%82%E6%94%BE%E5%81%877%E5%A4%A9%23&Refer=top) `1.6M 🔥`
 1. [乔祖望去世](https://s.weibo.com/weibo?q=%23%E4%B9%94%E7%A5%96%E6%9C%9B%E5%8E%BB%E4%B8%96%23&Refer=top) `1.4M 🔥`
 1. [坐高铁千万不要玩手机](https://s.weibo.com/weibo?q=%23%E5%9D%90%E9%AB%98%E9%93%81%E5%8D%83%E4%B8%87%E4%B8%8D%E8%A6%81%E7%8E%A9%E6%89%8B%E6%9C%BA%23&Refer=top) `1.4M 🔥`
 1. [国家反诈app觉得委屈](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E5%AE%B6%E5%8F%8D%E8%AF%88app%E8%A7%89%E5%BE%97%E5%A7%94%E5%B1%88%23&Refer=top) `1.3M 🔥`
@@ -19,8 +20,10 @@
 1. [爸爸介绍相亲对象有多硬核](https://s.weibo.com/weibo?q=%23%E7%88%B8%E7%88%B8%E4%BB%8B%E7%BB%8D%E7%9B%B8%E4%BA%B2%E5%AF%B9%E8%B1%A1%E6%9C%89%E5%A4%9A%E7%A1%AC%E6%A0%B8%23&Refer=top) `931.0K 🔥`
 1. [蛏子天生就要被吃掉](https://s.weibo.com/weibo?q=%23%E8%9B%8F%E5%AD%90%E5%A4%A9%E7%94%9F%E5%B0%B1%E8%A6%81%E8%A2%AB%E5%90%83%E6%8E%89%23&Refer=top) `908.2K 🔥`
 1. [养乐多回应被罚](https://s.weibo.com/weibo?q=%23%E5%85%BB%E4%B9%90%E5%A4%9A%E5%9B%9E%E5%BA%94%E8%A2%AB%E7%BD%9A%23&Refer=top) `896.5K 🔥`
+1. [癌症晚期女子拍快乐抗癌日记](https://s.weibo.com/weibo?q=%23%E7%99%8C%E7%97%87%E6%99%9A%E6%9C%9F%E5%A5%B3%E5%AD%90%E6%8B%8D%E5%BF%AB%E4%B9%90%E6%8A%97%E7%99%8C%E6%97%A5%E8%AE%B0%23&Refer=top) `867.3K 🔥`
 1. [阿富汗塔利班宣布组建新政府](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E5%A1%94%E5%88%A9%E7%8F%AD%E5%AE%A3%E5%B8%83%E7%BB%84%E5%BB%BA%E6%96%B0%E6%94%BF%E5%BA%9C%23&Refer=top) `855.4K 🔥`
 1. [男子箱子内藏女尸打车被识破](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E7%AE%B1%E5%AD%90%E5%86%85%E8%97%8F%E5%A5%B3%E5%B0%B8%E6%89%93%E8%BD%A6%E8%A2%AB%E8%AF%86%E7%A0%B4%23&Refer=top) `826.1K 🔥`
+1. [14岁男孩驾车上路谎称自己39岁](https://s.weibo.com/weibo?q=%2314%E5%B2%81%E7%94%B7%E5%AD%A9%E9%A9%BE%E8%BD%A6%E4%B8%8A%E8%B7%AF%E8%B0%8E%E7%A7%B0%E8%87%AA%E5%B7%B139%E5%B2%81%23&Refer=top) `781.2K 🔥`
 1. [被白宇演的病人整破防了](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E7%99%BD%E5%AE%87%E6%BC%94%E7%9A%84%E7%97%85%E4%BA%BA%E6%95%B4%E7%A0%B4%E9%98%B2%E4%BA%86%23&Refer=top) `763.8K 🔥`
 1. [苹果秋季发布会9月15日举办](https://s.weibo.com/weibo?q=%23%E8%8B%B9%E6%9E%9C%E7%A7%8B%E5%AD%A3%E5%8F%91%E5%B8%83%E4%BC%9A9%E6%9C%8815%E6%97%A5%E4%B8%BE%E5%8A%9E%23&Refer=top) `752.6K 🔥`
 1. [乔四美去西藏怀念的是自己吗](https://s.weibo.com/weibo?q=%23%E4%B9%94%E5%9B%9B%E7%BE%8E%E5%8E%BB%E8%A5%BF%E8%97%8F%E6%80%80%E5%BF%B5%E7%9A%84%E6%98%AF%E8%87%AA%E5%B7%B1%E5%90%97%23&Refer=top) `738.2K 🔥`
@@ -42,6 +45,8 @@
 1. [刘怡潼恭贺刘奕君再就业](https://s.weibo.com/weibo?q=%23%E5%88%98%E6%80%A1%E6%BD%BC%E6%81%AD%E8%B4%BA%E5%88%98%E5%A5%95%E5%90%9B%E5%86%8D%E5%B0%B1%E4%B8%9A%23&Refer=top) `513.3K 🔥`
 1. [男生用东西有多费](https://s.weibo.com/weibo?q=%23%E7%94%B7%E7%94%9F%E7%94%A8%E4%B8%9C%E8%A5%BF%E6%9C%89%E5%A4%9A%E8%B4%B9%23&Refer=top) `498.4K 🔥`
 1. [央视对话直播反诈民警陈国平](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E5%AF%B9%E8%AF%9D%E7%9B%B4%E6%92%AD%E5%8F%8D%E8%AF%88%E6%B0%91%E8%AD%A6%E9%99%88%E5%9B%BD%E5%B9%B3%23&Refer=top) `473.4K 🔥`
+1. [日本队员回欧洲的场面让武磊扎心了](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E9%98%9F%E5%91%98%E5%9B%9E%E6%AC%A7%E6%B4%B2%E7%9A%84%E5%9C%BA%E9%9D%A2%E8%AE%A9%E6%AD%A6%E7%A3%8A%E6%89%8E%E5%BF%83%E4%BA%86%23&Refer=top) `415.6K 🔥`
+1. [驾校教练怕被查载着学员冲卡](https://s.weibo.com/weibo?q=%E9%A9%BE%E6%A0%A1%E6%95%99%E7%BB%83%E6%80%95%E8%A2%AB%E6%9F%A5%E8%BD%BD%E7%9D%80%E5%AD%A6%E5%91%98%E5%86%B2%E5%8D%A1&Refer=top) `388.4K 🔥`
 1. [何广智的段子太好笑了](https://s.weibo.com/weibo?q=%23%E4%BD%95%E5%B9%BF%E6%99%BA%E7%9A%84%E6%AE%B5%E5%AD%90%E5%A4%AA%E5%A5%BD%E7%AC%91%E4%BA%86%23&Refer=top) `378.4K 🔥`
 1. [全红婵的亲笔签名](https://s.weibo.com/weibo?q=%23%E5%85%A8%E7%BA%A2%E5%A9%B5%E7%9A%84%E4%BA%B2%E7%AC%94%E7%AD%BE%E5%90%8D%23&Refer=top) `373.9K 🔥`
 1. [国足vs日本大名单](https://s.weibo.com/weibo?q=%E5%9B%BD%E8%B6%B3vs%E6%97%A5%E6%9C%AC%E5%A4%A7%E5%90%8D%E5%8D%95&Refer=top) `366.7K 🔥`
@@ -51,13 +56,8 @@
 1. [无线网密码可以有多离谱](https://s.weibo.com/weibo?q=%23%E6%97%A0%E7%BA%BF%E7%BD%91%E5%AF%86%E7%A0%81%E5%8F%AF%E4%BB%A5%E6%9C%89%E5%A4%9A%E7%A6%BB%E8%B0%B1%23&Refer=top) `322.9K 🔥`
 1. [汪文斌正告台湾当局](https://s.weibo.com/weibo?q=%23%E6%B1%AA%E6%96%87%E6%96%8C%E6%AD%A3%E5%91%8A%E5%8F%B0%E6%B9%BE%E5%BD%93%E5%B1%80%23&Refer=top) `313.1K 🔥`
 1. [顾客购买20万非法储值卡被冻结](https://s.weibo.com/weibo?q=%23%E9%A1%BE%E5%AE%A2%E8%B4%AD%E4%B9%B020%E4%B8%87%E9%9D%9E%E6%B3%95%E5%82%A8%E5%80%BC%E5%8D%A1%E8%A2%AB%E5%86%BB%E7%BB%93%23&Refer=top) `310.2K 🔥`
-1. [深圳赛格广场大厦恢复使用](https://s.weibo.com/weibo?q=%23%E6%B7%B1%E5%9C%B3%E8%B5%9B%E6%A0%BC%E5%B9%BF%E5%9C%BA%E5%A4%A7%E5%8E%A6%E6%81%A2%E5%A4%8D%E4%BD%BF%E7%94%A8%23&Refer=top) `293.5K 🔥`
-1. [重庆警犬入学](https://s.weibo.com/weibo?q=%23%E9%87%8D%E5%BA%86%E8%AD%A6%E7%8A%AC%E5%85%A5%E5%AD%A6%23&Refer=top) `292.3K 🔥`
-1. [李铁说国足就应该由中国人执教](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E9%93%81%E8%AF%B4%E5%9B%BD%E8%B6%B3%E5%B0%B1%E5%BA%94%E8%AF%A5%E7%94%B1%E4%B8%AD%E5%9B%BD%E4%BA%BA%E6%89%A7%E6%95%99%23&Refer=top) `290.7K 🔥`
-1. [一生一世爱情有多舒适](https://s.weibo.com/weibo?q=%23%E4%B8%80%E7%94%9F%E4%B8%80%E4%B8%96%E7%88%B1%E6%83%85%E6%9C%89%E5%A4%9A%E8%88%92%E9%80%82%23&Refer=top) `274.9K 🔥`
-1. [广东队获全运会男子跳水团体金牌](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E4%B8%9C%E9%98%9F%E8%8E%B7%E5%85%A8%E8%BF%90%E4%BC%9A%E7%94%B7%E5%AD%90%E8%B7%B3%E6%B0%B4%E5%9B%A2%E4%BD%93%E9%87%91%E7%89%8C%23&Refer=top) `274.7K 🔥`
 
-数据更新于 2021-09-08 09:44:59
+数据更新于 2021-09-08 10:13:42
 
 <!-- END -->
 
