@@ -8,6 +8,7 @@
 
 1. [吴丽姿家破产](https://s.weibo.com/weibo?q=%23%E5%90%B4%E4%B8%BD%E5%A7%BF%E5%AE%B6%E7%A0%B4%E4%BA%A7%23&Refer=top) `4.5M 🔥`
 1. [老人用农药给孙子洗澡双双中毒](https://s.weibo.com/weibo?q=%23%E8%80%81%E4%BA%BA%E7%94%A8%E5%86%9C%E8%8D%AF%E7%BB%99%E5%AD%99%E5%AD%90%E6%B4%97%E6%BE%A1%E5%8F%8C%E5%8F%8C%E4%B8%AD%E6%AF%92%23&Refer=top) `4.3M 🔥`
+1. [劳荣枝听到死刑后当场痛哭](https://s.weibo.com/weibo?q=%23%E5%8A%B3%E8%8D%A3%E6%9E%9D%E5%90%AC%E5%88%B0%E6%AD%BB%E5%88%91%E5%90%8E%E5%BD%93%E5%9C%BA%E7%97%9B%E5%93%AD%23&Refer=top) `3.1M 🔥`
 1. [香港一名80后打疫苗抽中千万豪宅](https://s.weibo.com/weibo?q=%23%E9%A6%99%E6%B8%AF%E4%B8%80%E5%90%8D80%E5%90%8E%E6%89%93%E7%96%AB%E8%8B%97%E6%8A%BD%E4%B8%AD%E5%8D%83%E4%B8%87%E8%B1%AA%E5%AE%85%23&Refer=top) `2.5M 🔥`
 1. [李维嘉疑代言翻车被多人维权](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E7%BB%B4%E5%98%89%E7%96%91%E4%BB%A3%E8%A8%80%E7%BF%BB%E8%BD%A6%E8%A2%AB%E5%A4%9A%E4%BA%BA%E7%BB%B4%E6%9D%83%23&Refer=top) `2.5M 🔥`
 1. [劳荣枝一审死刑](https://s.weibo.com/weibo?q=%23%E5%8A%B3%E8%8D%A3%E6%9E%9D%E4%B8%80%E5%AE%A1%E6%AD%BB%E5%88%91%23&Refer=top) `1.9M 🔥`
@@ -31,6 +32,7 @@
 1. [一千年前的中国菜长啥样](https://s.weibo.com/weibo?q=%23%E4%B8%80%E5%8D%83%E5%B9%B4%E5%89%8D%E7%9A%84%E4%B8%AD%E5%9B%BD%E8%8F%9C%E9%95%BF%E5%95%A5%E6%A0%B7%23&Refer=top) `952.1K 🔥`
 1. [北京暴雨](https://s.weibo.com/weibo?q=%E5%8C%97%E4%BA%AC%E6%9A%B4%E9%9B%A8&Refer=top) `934.5K 🔥`
 1. [霍格沃茨各院公频都在聊什么](https://s.weibo.com/weibo?q=%23%E9%9C%8D%E6%A0%BC%E6%B2%83%E8%8C%A8%E5%90%84%E9%99%A2%E5%85%AC%E9%A2%91%E9%83%BD%E5%9C%A8%E8%81%8A%E4%BB%80%E4%B9%88%23&Refer=top) `929.5K 🔥`
+1. [腾讯回应60岁老人凌晨王者五杀](https://s.weibo.com/weibo?q=%23%E8%85%BE%E8%AE%AF%E5%9B%9E%E5%BA%9460%E5%B2%81%E8%80%81%E4%BA%BA%E5%87%8C%E6%99%A8%E7%8E%8B%E8%80%85%E4%BA%94%E6%9D%80%23&Refer=top) `919.1K 🔥`
 1. [张家齐陈芋汐跨省组合](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%AE%B6%E9%BD%90%E9%99%88%E8%8A%8B%E6%B1%90%E8%B7%A8%E7%9C%81%E7%BB%84%E5%90%88%23&Refer=top) `832.2K 🔥`
 1. [招聘不得限定男性或男性优先](https://s.weibo.com/weibo?q=%23%E6%8B%9B%E8%81%98%E4%B8%8D%E5%BE%97%E9%99%90%E5%AE%9A%E7%94%B7%E6%80%A7%E6%88%96%E7%94%B7%E6%80%A7%E4%BC%98%E5%85%88%23&Refer=top) `799.7K 🔥`
 1. [江苏23岁民警突遭车祸牺牲](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%8B%8F23%E5%B2%81%E6%B0%91%E8%AD%A6%E7%AA%81%E9%81%AD%E8%BD%A6%E7%A5%B8%E7%89%BA%E7%89%B2%23&Refer=top) `789.7K 🔥`
@@ -54,10 +56,8 @@
 1. [张新成张晞临再合作](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%96%B0%E6%88%90%E5%BC%A0%E6%99%9E%E4%B8%B4%E5%86%8D%E5%90%88%E4%BD%9C%23&Refer=top) `506.6K 🔥`
 1. [腾讯网易等游戏企业和平台被约谈](https://s.weibo.com/weibo?q=%23%E8%85%BE%E8%AE%AF%E7%BD%91%E6%98%93%E7%AD%89%E6%B8%B8%E6%88%8F%E4%BC%81%E4%B8%9A%E5%92%8C%E5%B9%B3%E5%8F%B0%E8%A2%AB%E7%BA%A6%E8%B0%88%23&Refer=top) `504.2K 🔥`
 1. [胡歌回母校寄语学弟学妹](https://s.weibo.com/weibo?q=%23%E8%83%A1%E6%AD%8C%E5%9B%9E%E6%AF%8D%E6%A0%A1%E5%AF%84%E8%AF%AD%E5%AD%A6%E5%BC%9F%E5%AD%A6%E5%A6%B9%23&Refer=top) `495.0K 🔥`
-1. [新生的购买力到底有多强](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%94%9F%E7%9A%84%E8%B4%AD%E4%B9%B0%E5%8A%9B%E5%88%B0%E5%BA%95%E6%9C%89%E5%A4%9A%E5%BC%BA%23&Refer=top) `488.7K 🔥`
-1. [孔雪儿明媒善娶](https://s.weibo.com/weibo?q=%23%E5%AD%94%E9%9B%AA%E5%84%BF%E6%98%8E%E5%AA%92%E5%96%84%E5%A8%B6%23&Refer=top) `486.2K 🔥`
 
-数据更新于 2021-09-09 14:06:04
+数据更新于 2021-09-09 14:28:37
 
 <!-- END -->
 
