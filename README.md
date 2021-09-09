@@ -14,6 +14,7 @@
 1. [李维嘉疑代言翻车被多人维权](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E7%BB%B4%E5%98%89%E7%96%91%E4%BB%A3%E8%A8%80%E7%BF%BB%E8%BD%A6%E8%A2%AB%E5%A4%9A%E4%BA%BA%E7%BB%B4%E6%9D%83%23&Refer=top) `2.5M 🔥`
 1. [三星堆发现国宝级文物青铜神坛](https://s.weibo.com/weibo?q=%23%E4%B8%89%E6%98%9F%E5%A0%86%E5%8F%91%E7%8E%B0%E5%9B%BD%E5%AE%9D%E7%BA%A7%E6%96%87%E7%89%A9%E9%9D%92%E9%93%9C%E7%A5%9E%E5%9D%9B%23&Refer=top) `2.3M 🔥`
 1. [劳荣枝一审死刑](https://s.weibo.com/weibo?q=%23%E5%8A%B3%E8%8D%A3%E6%9E%9D%E4%B8%80%E5%AE%A1%E6%AD%BB%E5%88%91%23&Refer=top) `2.0M 🔥`
+1. [国台办称欢迎台湾演艺人员在大陆发展](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E5%8F%B0%E5%8A%9E%E7%A7%B0%E6%AC%A2%E8%BF%8E%E5%8F%B0%E6%B9%BE%E6%BC%94%E8%89%BA%E4%BA%BA%E5%91%98%E5%9C%A8%E5%A4%A7%E9%99%86%E5%8F%91%E5%B1%95%23&Refer=top) `2.0M 🔥`
 1. [广东祖孙3人食用毒蘑菇致死](https://s.weibo.com/weibo?q=%23%E5%B9%BF%E4%B8%9C%E7%A5%96%E5%AD%993%E4%BA%BA%E9%A3%9F%E7%94%A8%E6%AF%92%E8%98%91%E8%8F%87%E8%87%B4%E6%AD%BB%23&Refer=top) `1.8M 🔥`
 1. [帮舍友买东西要钱时被骂了](https://s.weibo.com/weibo?q=%23%E5%B8%AE%E8%88%8D%E5%8F%8B%E4%B9%B0%E4%B8%9C%E8%A5%BF%E8%A6%81%E9%92%B1%E6%97%B6%E8%A2%AB%E9%AA%82%E4%BA%86%23&Refer=top) `1.6M 🔥`
 1. [和一个人聊天很舒服是什么感觉](https://s.weibo.com/weibo?q=%23%E5%92%8C%E4%B8%80%E4%B8%AA%E4%BA%BA%E8%81%8A%E5%A4%A9%E5%BE%88%E8%88%92%E6%9C%8D%E6%98%AF%E4%BB%80%E4%B9%88%E6%84%9F%E8%A7%89%23&Refer=top) `1.6M 🔥`
@@ -55,9 +56,8 @@
 1. [猪肉价格同比下降44.9%](https://s.weibo.com/weibo?q=%23%E7%8C%AA%E8%82%89%E4%BB%B7%E6%A0%BC%E5%90%8C%E6%AF%94%E4%B8%8B%E9%99%8D44.9%25%23&Refer=top) `553.3K 🔥`
 1. [被一只狗整破防了](https://s.weibo.com/weibo?q=%23%E8%A2%AB%E4%B8%80%E5%8F%AA%E7%8B%97%E6%95%B4%E7%A0%B4%E9%98%B2%E4%BA%86%23&Refer=top) `550.1K 🔥`
 1. [美国军官直言正在抛弃美国公民](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E5%86%9B%E5%AE%98%E7%9B%B4%E8%A8%80%E6%AD%A3%E5%9C%A8%E6%8A%9B%E5%BC%83%E7%BE%8E%E5%9B%BD%E5%85%AC%E6%B0%91%23&Refer=top) `548.7K 🔥`
-1. [中方向阿富汗提供价值2亿元紧急援助](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E6%96%B9%E5%90%91%E9%98%BF%E5%AF%8C%E6%B1%97%E6%8F%90%E4%BE%9B%E4%BB%B7%E5%80%BC2%E4%BA%BF%E5%85%83%E7%B4%A7%E6%80%A5%E6%8F%B4%E5%8A%A9%23&Refer=top) `535.6K 🔥`
 
-数据更新于 2021-09-09 16:53:11
+数据更新于 2021-09-09 16:59:36
 
 <!-- END -->
 
