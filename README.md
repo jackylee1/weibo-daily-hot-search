@@ -33,12 +33,14 @@
 1. [千万不要随便剪短发](https://s.weibo.com/weibo?q=%23%E5%8D%83%E4%B8%87%E4%B8%8D%E8%A6%81%E9%9A%8F%E4%BE%BF%E5%89%AA%E7%9F%AD%E5%8F%91%23&Refer=top) `1.2M 🔥`
 1. [结婚后必须要改口吗](https://s.weibo.com/weibo?q=%23%E7%BB%93%E5%A9%9A%E5%90%8E%E5%BF%85%E9%A1%BB%E8%A6%81%E6%94%B9%E5%8F%A3%E5%90%97%23&Refer=top) `1.1M 🔥`
 1. [劳荣枝案受害者女儿称曾像乞丐一样生活](https://s.weibo.com/weibo?q=%23%E5%8A%B3%E8%8D%A3%E6%9E%9D%E6%A1%88%E5%8F%97%E5%AE%B3%E8%80%85%E5%A5%B3%E5%84%BF%E7%A7%B0%E6%9B%BE%E5%83%8F%E4%B9%9E%E4%B8%90%E4%B8%80%E6%A0%B7%E7%94%9F%E6%B4%BB%23&Refer=top) `1.1M 🔥`
+1. [你为什么放弃了考研](https://s.weibo.com/weibo?q=%23%E4%BD%A0%E4%B8%BA%E4%BB%80%E4%B9%88%E6%94%BE%E5%BC%83%E4%BA%86%E8%80%83%E7%A0%94%23&Refer=top) `1.1M 🔥`
 1. [当你把房间交给父母装修](https://s.weibo.com/weibo?q=%23%E5%BD%93%E4%BD%A0%E6%8A%8A%E6%88%BF%E9%97%B4%E4%BA%A4%E7%BB%99%E7%88%B6%E6%AF%8D%E8%A3%85%E4%BF%AE%23&Refer=top) `1.1M 🔥`
 1. [格兰芬多现任院长是纳威](https://s.weibo.com/weibo?q=%23%E6%A0%BC%E5%85%B0%E8%8A%AC%E5%A4%9A%E7%8E%B0%E4%BB%BB%E9%99%A2%E9%95%BF%E6%98%AF%E7%BA%B3%E5%A8%81%23&Refer=top) `1.1M 🔥`
 1. [纪念毛泽东同志逝世45周年](https://s.weibo.com/weibo?q=%23%E7%BA%AA%E5%BF%B5%E6%AF%9B%E6%B3%BD%E4%B8%9C%E5%90%8C%E5%BF%97%E9%80%9D%E4%B8%9645%E5%91%A8%E5%B9%B4%23&Refer=top) `1.1M 🔥`
 1. [月薪多少才会感觉幸福](https://s.weibo.com/weibo?q=%23%E6%9C%88%E8%96%AA%E5%A4%9A%E5%B0%91%E6%89%8D%E4%BC%9A%E6%84%9F%E8%A7%89%E5%B9%B8%E7%A6%8F%23&Refer=top) `1.1M 🔥`
 1. [劳荣枝二哥支持其上诉](https://s.weibo.com/weibo?q=%23%E5%8A%B3%E8%8D%A3%E6%9E%9D%E4%BA%8C%E5%93%A5%E6%94%AF%E6%8C%81%E5%85%B6%E4%B8%8A%E8%AF%89%23&Refer=top) `1.1M 🔥`
 1. [国际奥委会禁止朝鲜参加冬奥](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E9%99%85%E5%A5%A5%E5%A7%94%E4%BC%9A%E7%A6%81%E6%AD%A2%E6%9C%9D%E9%B2%9C%E5%8F%82%E5%8A%A0%E5%86%AC%E5%A5%A5%23&Refer=top) `1.1M 🔥`
+1. [情侣聊天中奇怪的关注点](https://s.weibo.com/weibo?q=%23%E6%83%85%E4%BE%A3%E8%81%8A%E5%A4%A9%E4%B8%AD%E5%A5%87%E6%80%AA%E7%9A%84%E5%85%B3%E6%B3%A8%E7%82%B9%23&Refer=top) `1.1M 🔥`
 1. [中方回应清朗行动针对韩国说](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E6%96%B9%E5%9B%9E%E5%BA%94%E6%B8%85%E6%9C%97%E8%A1%8C%E5%8A%A8%E9%92%88%E5%AF%B9%E9%9F%A9%E5%9B%BD%E8%AF%B4%23&Refer=top) `1.0M 🔥`
 1. [王毅出席首次阿富汗邻国外长会](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E6%AF%85%E5%87%BA%E5%B8%AD%E9%A6%96%E6%AC%A1%E9%98%BF%E5%AF%8C%E6%B1%97%E9%82%BB%E5%9B%BD%E5%A4%96%E9%95%BF%E4%BC%9A%23&Refer=top) `995.8K 🔥`
 1. [杨洋30岁状态](https://s.weibo.com/weibo?q=%23%E6%9D%A8%E6%B4%8B30%E5%B2%81%E7%8A%B6%E6%80%81%23&Refer=top) `994.7K 🔥`
@@ -54,10 +56,8 @@
 1. [张智霖认布瑞吉当干儿子](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E6%99%BA%E9%9C%96%E8%AE%A4%E5%B8%83%E7%91%9E%E5%90%89%E5%BD%93%E5%B9%B2%E5%84%BF%E5%AD%90%23&Refer=top) `797.0K 🔥`
 1. [江苏23岁民警突遭车祸牺牲](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%8B%8F23%E5%B2%81%E6%B0%91%E8%AD%A6%E7%AA%81%E9%81%AD%E8%BD%A6%E7%A5%B8%E7%89%BA%E7%89%B2%23&Refer=top) `789.7K 🔥`
 1. [读博会改变一个人的性格吗](https://s.weibo.com/weibo?q=%23%E8%AF%BB%E5%8D%9A%E4%BC%9A%E6%94%B9%E5%8F%98%E4%B8%80%E4%B8%AA%E4%BA%BA%E7%9A%84%E6%80%A7%E6%A0%BC%E5%90%97%23&Refer=top) `787.9K 🔥`
-1. [李维嘉代言茶饮品牌已成老赖](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E7%BB%B4%E5%98%89%E4%BB%A3%E8%A8%80%E8%8C%B6%E9%A5%AE%E5%93%81%E7%89%8C%E5%B7%B2%E6%88%90%E8%80%81%E8%B5%96%23&Refer=top) `785.6K 🔥`
-1. [张家齐陈芋汐比赛间隙可爱到爆](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%AE%B6%E9%BD%90%E9%99%88%E8%8A%8B%E6%B1%90%E6%AF%94%E8%B5%9B%E9%97%B4%E9%9A%99%E5%8F%AF%E7%88%B1%E5%88%B0%E7%88%86%23&Refer=top) `782.9K 🔥`
 
-数据更新于 2021-09-09 20:51:58
+数据更新于 2021-09-09 21:11:05
 
 <!-- END -->
 
