@@ -57,7 +57,7 @@
 1. [美国军官直言正在抛弃美国公民](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E5%86%9B%E5%AE%98%E7%9B%B4%E8%A8%80%E6%AD%A3%E5%9C%A8%E6%8A%9B%E5%BC%83%E7%BE%8E%E5%9B%BD%E5%85%AC%E6%B0%91%23&Refer=top) `548.7K 🔥`
 1. [中方向阿富汗提供价值2亿元紧急援助](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E6%96%B9%E5%90%91%E9%98%BF%E5%AF%8C%E6%B1%97%E6%8F%90%E4%BE%9B%E4%BB%B7%E5%80%BC2%E4%BA%BF%E5%85%83%E7%B4%A7%E6%80%A5%E6%8F%B4%E5%8A%A9%23&Refer=top) `535.6K 🔥`
 
-数据更新于 2021-09-09 16:40:07
+数据更新于 2021-09-09 16:46:48
 
 <!-- END -->
 
