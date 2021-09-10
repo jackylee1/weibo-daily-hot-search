@@ -33,11 +33,12 @@
 1. [劳荣枝庭审现场连说2句我不服](https://s.weibo.com/weibo?q=%23%E5%8A%B3%E8%8D%A3%E6%9E%9D%E5%BA%AD%E5%AE%A1%E7%8E%B0%E5%9C%BA%E8%BF%9E%E8%AF%B42%E5%8F%A5%E6%88%91%E4%B8%8D%E6%9C%8D%23&Refer=top) `905.4K 🔥`
 1. [明星代言虚假广告三年之内不得再代言](https://s.weibo.com/weibo?q=%23%E6%98%8E%E6%98%9F%E4%BB%A3%E8%A8%80%E8%99%9A%E5%81%87%E5%B9%BF%E5%91%8A%E4%B8%89%E5%B9%B4%E4%B9%8B%E5%86%85%E4%B8%8D%E5%BE%97%E5%86%8D%E4%BB%A3%E8%A8%80%23&Refer=top) `897.9K 🔥`
 1. [这俩人衣服是怎么穿进去的](https://s.weibo.com/weibo?q=%23%E8%BF%99%E4%BF%A9%E4%BA%BA%E8%A1%A3%E6%9C%8D%E6%98%AF%E6%80%8E%E4%B9%88%E7%A9%BF%E8%BF%9B%E5%8E%BB%E7%9A%84%23&Refer=top) `885.8K 🔥`
+1. [教师资格证有哪些福利](https://s.weibo.com/weibo?q=%23%E6%95%99%E5%B8%88%E8%B5%84%E6%A0%BC%E8%AF%81%E6%9C%89%E5%93%AA%E4%BA%9B%E7%A6%8F%E5%88%A9%23&Refer=top) `853.5K 🔥`
 1. [整形机构打人女老板母亲发声](https://s.weibo.com/weibo?q=%23%E6%95%B4%E5%BD%A2%E6%9C%BA%E6%9E%84%E6%89%93%E4%BA%BA%E5%A5%B3%E8%80%81%E6%9D%BF%E6%AF%8D%E4%BA%B2%E5%8F%91%E5%A3%B0%23&Refer=top) `847.9K 🔥`
 1. [00后在被押法庭路上唱歌](https://s.weibo.com/weibo?q=%2300%E5%90%8E%E5%9C%A8%E8%A2%AB%E6%8A%BC%E6%B3%95%E5%BA%AD%E8%B7%AF%E4%B8%8A%E5%94%B1%E6%AD%8C%23&Refer=top) `846.8K 🔥`
 1. [18岁华裔小将晋级美网决赛](https://s.weibo.com/weibo?q=%2318%E5%B2%81%E5%8D%8E%E8%A3%94%E5%B0%8F%E5%B0%86%E6%99%8B%E7%BA%A7%E7%BE%8E%E7%BD%91%E5%86%B3%E8%B5%9B%23&Refer=top) `834.0K 🔥`
 1. [邮政是不是哪都能送](https://s.weibo.com/weibo?q=%23%E9%82%AE%E6%94%BF%E6%98%AF%E4%B8%8D%E6%98%AF%E5%93%AA%E9%83%BD%E8%83%BD%E9%80%81%23&Refer=top) `795.3K 🔥`
-1. [教师资格证有哪些福利](https://s.weibo.com/weibo?q=%23%E6%95%99%E5%B8%88%E8%B5%84%E6%A0%BC%E8%AF%81%E6%9C%89%E5%93%AA%E4%BA%9B%E7%A6%8F%E5%88%A9%23&Refer=top) `780.6K 🔥`
+1. [为什么老人不愿意住养老院](https://s.weibo.com/weibo?q=%23%E4%B8%BA%E4%BB%80%E4%B9%88%E8%80%81%E4%BA%BA%E4%B8%8D%E6%84%BF%E6%84%8F%E4%BD%8F%E5%85%BB%E8%80%81%E9%99%A2%23&Refer=top) `745.9K 🔥`
 1. [中国年内将再向发展中国家捐1亿剂疫苗](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%9B%BD%E5%B9%B4%E5%86%85%E5%B0%86%E5%86%8D%E5%90%91%E5%8F%91%E5%B1%95%E4%B8%AD%E5%9B%BD%E5%AE%B6%E6%8D%901%E4%BA%BF%E5%89%82%E7%96%AB%E8%8B%97%23&Refer=top) `741.1K 🔥`
 1. [国台办回应蔡英文妄评张钧甯事件](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E5%8F%B0%E5%8A%9E%E5%9B%9E%E5%BA%94%E8%94%A1%E8%8B%B1%E6%96%87%E5%A6%84%E8%AF%84%E5%BC%A0%E9%92%A7%E7%94%AF%E4%BA%8B%E4%BB%B6%23&Refer=top) `721.2K 🔥`
 1. [体会到了袁咏仪的快乐](https://s.weibo.com/weibo?q=%23%E4%BD%93%E4%BC%9A%E5%88%B0%E4%BA%86%E8%A2%81%E5%92%8F%E4%BB%AA%E7%9A%84%E5%BF%AB%E4%B9%90%23&Refer=top) `714.4K 🔥`
@@ -55,9 +56,8 @@
 1. [拜登推出最严疫苗强制令](https://s.weibo.com/weibo?q=%23%E6%8B%9C%E7%99%BB%E6%8E%A8%E5%87%BA%E6%9C%80%E4%B8%A5%E7%96%AB%E8%8B%97%E5%BC%BA%E5%88%B6%E4%BB%A4%23&Refer=top) `545.4K 🔥`
 1. [汪顺发文感谢恩师](https://s.weibo.com/weibo?q=%23%E6%B1%AA%E9%A1%BA%E5%8F%91%E6%96%87%E6%84%9F%E8%B0%A2%E6%81%A9%E5%B8%88%23&Refer=top) `532.5K 🔥`
 1. [亲爱的吾兄定档](https://s.weibo.com/weibo?q=%23%E4%BA%B2%E7%88%B1%E7%9A%84%E5%90%BE%E5%85%84%E5%AE%9A%E6%A1%A3%23&Refer=top) `524.6K 🔥`
-1. [情侣聊天中奇怪的关注点](https://s.weibo.com/weibo?q=%23%E6%83%85%E4%BE%A3%E8%81%8A%E5%A4%A9%E4%B8%AD%E5%A5%87%E6%80%AA%E7%9A%84%E5%85%B3%E6%B3%A8%E7%82%B9%23&Refer=top) `511.0K 🔥`
 
-数据更新于 2021-09-10 15:12:11
+数据更新于 2021-09-10 15:25:52
 
 <!-- END -->
 
