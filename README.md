@@ -7,7 +7,7 @@
 <!-- BEGIN -->
 
 1. [lalisa](https://s.weibo.com/weibo?q=lalisa&Refer=top) `5.9M 🔥`
-1. [20岁男子患痔疮全身失血过半](https://s.weibo.com/weibo?q=%2320%E5%B2%81%E7%94%B7%E5%AD%90%E6%82%A3%E7%97%94%E7%96%AE%E5%85%A8%E8%BA%AB%E5%A4%B1%E8%A1%80%E8%BF%87%E5%8D%8A%23&Refer=top) `4.7M 🔥`
+1. [20岁男子患痔疮全身失血过半](https://s.weibo.com/weibo?q=%2320%E5%B2%81%E7%94%B7%E5%AD%90%E6%82%A3%E7%97%94%E7%96%AE%E5%85%A8%E8%BA%AB%E5%A4%B1%E8%A1%80%E8%BF%87%E5%8D%8A%23&Refer=top) `5.2M 🔥`
 1. [李宁客服回应陈雨菲被运动鞋划伤](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E5%AE%81%E5%AE%A2%E6%9C%8D%E5%9B%9E%E5%BA%94%E9%99%88%E9%9B%A8%E8%8F%B2%E8%A2%AB%E8%BF%90%E5%8A%A8%E9%9E%8B%E5%88%92%E4%BC%A4%23&Refer=top) `3.9M 🔥`
 1. [教师资格证](https://s.weibo.com/weibo?q=%E6%95%99%E5%B8%88%E8%B5%84%E6%A0%BC%E8%AF%81&Refer=top) `3.5M 🔥`
 1. [腾讯视频已上线选集解锁](https://s.weibo.com/weibo?q=%23%E8%85%BE%E8%AE%AF%E8%A7%86%E9%A2%91%E5%B7%B2%E4%B8%8A%E7%BA%BF%E9%80%89%E9%9B%86%E8%A7%A3%E9%94%81%23&Refer=top) `3.2M 🔥`
@@ -57,7 +57,7 @@
 1. [劳荣枝庭审现场连说2句我不服](https://s.weibo.com/weibo?q=%23%E5%8A%B3%E8%8D%A3%E6%9E%9D%E5%BA%AD%E5%AE%A1%E7%8E%B0%E5%9C%BA%E8%BF%9E%E8%AF%B42%E5%8F%A5%E6%88%91%E4%B8%8D%E6%9C%8D%23&Refer=top) `905.4K 🔥`
 1. [明星代言虚假广告三年之内不得再代言](https://s.weibo.com/weibo?q=%23%E6%98%8E%E6%98%9F%E4%BB%A3%E8%A8%80%E8%99%9A%E5%81%87%E5%B9%BF%E5%91%8A%E4%B8%89%E5%B9%B4%E4%B9%8B%E5%86%85%E4%B8%8D%E5%BE%97%E5%86%8D%E4%BB%A3%E8%A8%80%23&Refer=top) `897.9K 🔥`
 
-数据更新于 2021-09-10 21:53:01
+数据更新于 2021-09-10 21:59:16
 
 <!-- END -->
 
