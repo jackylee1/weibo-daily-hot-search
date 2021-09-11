@@ -37,6 +37,7 @@
 1. [阿朵谈李莎旻子不自信的原因](https://s.weibo.com/weibo?q=%23%E9%98%BF%E6%9C%B5%E8%B0%88%E6%9D%8E%E8%8E%8E%E6%97%BB%E5%AD%90%E4%B8%8D%E8%87%AA%E4%BF%A1%E7%9A%84%E5%8E%9F%E5%9B%A0%23&Refer=top) `1.3M 🔥`
 1. [再也不敢去掏耳朵了](https://s.weibo.com/weibo?q=%23%E5%86%8D%E4%B9%9F%E4%B8%8D%E6%95%A2%E5%8E%BB%E6%8E%8F%E8%80%B3%E6%9C%B5%E4%BA%86%23&Refer=top) `1.2M 🔥`
 1. [911事件20年](https://s.weibo.com/weibo?q=%23911%E4%BA%8B%E4%BB%B620%E5%B9%B4%23&Refer=top) `1.2M 🔥`
+1. [福建疫情](https://s.weibo.com/weibo?q=%E7%A6%8F%E5%BB%BA%E7%96%AB%E6%83%85&Refer=top) `1.2M 🔥`
 1. [阿富汗塔利班取消临时政府就职典礼](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E5%A1%94%E5%88%A9%E7%8F%AD%E5%8F%96%E6%B6%88%E4%B8%B4%E6%97%B6%E6%94%BF%E5%BA%9C%E5%B0%B1%E8%81%8C%E5%85%B8%E7%A4%BC%23&Refer=top) `1.2M 🔥`
 1. [心脏骤停1分钟内人的变化](https://s.weibo.com/weibo?q=%23%E5%BF%83%E8%84%8F%E9%AA%A4%E5%81%9C1%E5%88%86%E9%92%9F%E5%86%85%E4%BA%BA%E7%9A%84%E5%8F%98%E5%8C%96%23&Refer=top) `1.2M 🔥`
 1. [重庆公安局原局长一审被控受贿4267万](https://s.weibo.com/weibo?q=%23%E9%87%8D%E5%BA%86%E5%85%AC%E5%AE%89%E5%B1%80%E5%8E%9F%E5%B1%80%E9%95%BF%E4%B8%80%E5%AE%A1%E8%A2%AB%E6%8E%A7%E5%8F%97%E8%B4%BF4267%E4%B8%87%23&Refer=top) `1.1M 🔥`
@@ -55,9 +56,8 @@
 1. [李云迪抱了又没完全抱](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E4%BA%91%E8%BF%AA%E6%8A%B1%E4%BA%86%E5%8F%88%E6%B2%A1%E5%AE%8C%E5%85%A8%E6%8A%B1%23&Refer=top) `990.4K 🔥`
 1. [孟子义朋友问男嘉宾在立完美人设吗](https://s.weibo.com/weibo?q=%23%E5%AD%9F%E5%AD%90%E4%B9%89%E6%9C%8B%E5%8F%8B%E9%97%AE%E7%94%B7%E5%98%89%E5%AE%BE%E5%9C%A8%E7%AB%8B%E5%AE%8C%E7%BE%8E%E4%BA%BA%E8%AE%BE%E5%90%97%23&Refer=top) `952.8K 🔥`
 1. [周也抱孩子的熟练程度](https://s.weibo.com/weibo?q=%23%E5%91%A8%E4%B9%9F%E6%8A%B1%E5%AD%A9%E5%AD%90%E7%9A%84%E7%86%9F%E7%BB%83%E7%A8%8B%E5%BA%A6%23&Refer=top) `934.6K 🔥`
-1. [男子路遇车祸救人发现死者是女儿](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E8%B7%AF%E9%81%87%E8%BD%A6%E7%A5%B8%E6%95%91%E4%BA%BA%E5%8F%91%E7%8E%B0%E6%AD%BB%E8%80%85%E6%98%AF%E5%A5%B3%E5%84%BF%23&Refer=top) `928.4K 🔥`
 
-数据更新于 2021-09-11 19:57:20
+数据更新于 2021-09-11 20:03:58
 
 <!-- END -->
 
