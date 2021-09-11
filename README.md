@@ -6,8 +6,8 @@
 
 <!-- BEGIN -->
 
+1. [福建疫情](https://s.weibo.com/weibo?q=%E7%A6%8F%E5%BB%BA%E7%96%AB%E6%83%85&Refer=top) `3.8M 🔥`
 1. [男子报警称4个妖精放火烧了他家](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E6%8A%A5%E8%AD%A6%E7%A7%B04%E4%B8%AA%E5%A6%96%E7%B2%BE%E6%94%BE%E7%81%AB%E7%83%A7%E4%BA%86%E4%BB%96%E5%AE%B6%23&Refer=top) `3.8M 🔥`
-1. [福建疫情](https://s.weibo.com/weibo?q=%E7%A6%8F%E5%BB%BA%E7%96%AB%E6%83%85&Refer=top) `3.3M 🔥`
 1. [哥哥假装被绊倒妹妹开心跺脚](https://s.weibo.com/weibo?q=%23%E5%93%A5%E5%93%A5%E5%81%87%E8%A3%85%E8%A2%AB%E7%BB%8A%E5%80%92%E5%A6%B9%E5%A6%B9%E5%BC%80%E5%BF%83%E8%B7%BA%E8%84%9A%23&Refer=top) `3.1M 🔥`
 1. [保安脑死亡抢救超48小时不被认定工伤](https://s.weibo.com/weibo?q=%23%E4%BF%9D%E5%AE%89%E8%84%91%E6%AD%BB%E4%BA%A1%E6%8A%A2%E6%95%91%E8%B6%8548%E5%B0%8F%E6%97%B6%E4%B8%8D%E8%A2%AB%E8%AE%A4%E5%AE%9A%E5%B7%A5%E4%BC%A4%23&Refer=top) `3.1M 🔥`
 1. [重庆一对闺蜜公厕遇害](https://s.weibo.com/weibo?q=%23%E9%87%8D%E5%BA%86%E4%B8%80%E5%AF%B9%E9%97%BA%E8%9C%9C%E5%85%AC%E5%8E%95%E9%81%87%E5%AE%B3%23&Refer=top) `3.0M 🔥`
@@ -38,7 +38,9 @@
 1. [阿朵谈李莎旻子不自信的原因](https://s.weibo.com/weibo?q=%23%E9%98%BF%E6%9C%B5%E8%B0%88%E6%9D%8E%E8%8E%8E%E6%97%BB%E5%AD%90%E4%B8%8D%E8%87%AA%E4%BF%A1%E7%9A%84%E5%8E%9F%E5%9B%A0%23&Refer=top) `1.3M 🔥`
 1. [熬夜的七大好处](https://s.weibo.com/weibo?q=%23%E7%86%AC%E5%A4%9C%E7%9A%84%E4%B8%83%E5%A4%A7%E5%A5%BD%E5%A4%84%23&Refer=top) `1.2M 🔥`
 1. [再也不敢去掏耳朵了](https://s.weibo.com/weibo?q=%23%E5%86%8D%E4%B9%9F%E4%B8%8D%E6%95%A2%E5%8E%BB%E6%8E%8F%E8%80%B3%E6%9C%B5%E4%BA%86%23&Refer=top) `1.2M 🔥`
+1. [北京天通苑小区的人口比冰岛多](https://s.weibo.com/weibo?q=%23%E5%8C%97%E4%BA%AC%E5%A4%A9%E9%80%9A%E8%8B%91%E5%B0%8F%E5%8C%BA%E7%9A%84%E4%BA%BA%E5%8F%A3%E6%AF%94%E5%86%B0%E5%B2%9B%E5%A4%9A%23&Refer=top) `1.2M 🔥`
 1. [911事件20年](https://s.weibo.com/weibo?q=%23911%E4%BA%8B%E4%BB%B620%E5%B9%B4%23&Refer=top) `1.2M 🔥`
+1. [悟空](https://s.weibo.com/weibo?q=%E6%82%9F%E7%A9%BA&Refer=top) `1.2M 🔥`
 1. [阿富汗塔利班取消临时政府就职典礼](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%AF%8C%E6%B1%97%E5%A1%94%E5%88%A9%E7%8F%AD%E5%8F%96%E6%B6%88%E4%B8%B4%E6%97%B6%E6%94%BF%E5%BA%9C%E5%B0%B1%E8%81%8C%E5%85%B8%E7%A4%BC%23&Refer=top) `1.2M 🔥`
 1. [心脏骤停1分钟内人的变化](https://s.weibo.com/weibo?q=%23%E5%BF%83%E8%84%8F%E9%AA%A4%E5%81%9C1%E5%88%86%E9%92%9F%E5%86%85%E4%BA%BA%E7%9A%84%E5%8F%98%E5%8C%96%23&Refer=top) `1.2M 🔥`
 1. [重庆公安局原局长一审被控受贿4267万](https://s.weibo.com/weibo?q=%23%E9%87%8D%E5%BA%86%E5%85%AC%E5%AE%89%E5%B1%80%E5%8E%9F%E5%B1%80%E9%95%BF%E4%B8%80%E5%AE%A1%E8%A2%AB%E6%8E%A7%E5%8F%97%E8%B4%BF4267%E4%B8%87%23&Refer=top) `1.1M 🔥`
@@ -54,10 +56,8 @@
 1. [虎鲸被圈养42年后开始严重自残](https://s.weibo.com/weibo?q=%23%E8%99%8E%E9%B2%B8%E8%A2%AB%E5%9C%88%E5%85%BB42%E5%B9%B4%E5%90%8E%E5%BC%80%E5%A7%8B%E4%B8%A5%E9%87%8D%E8%87%AA%E6%AE%8B%23&Refer=top) `1.1M 🔥`
 1. [钟汉良17岁学生照](https://s.weibo.com/weibo?q=%23%E9%92%9F%E6%B1%89%E8%89%AF17%E5%B2%81%E5%AD%A6%E7%94%9F%E7%85%A7%23&Refer=top) `1.0M 🔥`
 1. [赵丽颖中餐厅DNA动了](https://s.weibo.com/weibo?q=%23%E8%B5%B5%E4%B8%BD%E9%A2%96%E4%B8%AD%E9%A4%90%E5%8E%85DNA%E5%8A%A8%E4%BA%86%23&Refer=top) `1.0M 🔥`
-1. [李莎旻子 不努力连输的资格都没有](https://s.weibo.com/weibo?q=%E6%9D%8E%E8%8E%8E%E6%97%BB%E5%AD%90%20%E4%B8%8D%E5%8A%AA%E5%8A%9B%E8%BF%9E%E8%BE%93%E7%9A%84%E8%B5%84%E6%A0%BC%E9%83%BD%E6%B2%A1%E6%9C%89&Refer=top) `1.0M 🔥`
-1. [初判莆田此次疫情毒株为德尔塔毒株](https://s.weibo.com/weibo?q=%23%E5%88%9D%E5%88%A4%E8%8E%86%E7%94%B0%E6%AD%A4%E6%AC%A1%E7%96%AB%E6%83%85%E6%AF%92%E6%A0%AA%E4%B8%BA%E5%BE%B7%E5%B0%94%E5%A1%94%E6%AF%92%E6%A0%AA%23&Refer=top) `1.0M 🔥`
 
-数据更新于 2021-09-11 20:45:08
+数据更新于 2021-09-11 21:04:14
 
 <!-- END -->
 
