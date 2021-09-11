@@ -50,14 +50,14 @@
 1. [军训服能有多不合身](https://s.weibo.com/weibo?q=%23%E5%86%9B%E8%AE%AD%E6%9C%8D%E8%83%BD%E6%9C%89%E5%A4%9A%E4%B8%8D%E5%90%88%E8%BA%AB%23&Refer=top) `317.0K 🔥`
 1. [INTO1明日5风暴眼首秀](https://s.weibo.com/weibo?q=%23INTO1%E6%98%8E%E6%97%A55%E9%A3%8E%E6%9A%B4%E7%9C%BC%E9%A6%96%E7%A7%80%23&Refer=top) `311.1K 🔥`
 1. [没戴头盔被罚后骑手免受伤给交警买奶茶](https://s.weibo.com/weibo?q=%23%E6%B2%A1%E6%88%B4%E5%A4%B4%E7%9B%94%E8%A2%AB%E7%BD%9A%E5%90%8E%E9%AA%91%E6%89%8B%E5%85%8D%E5%8F%97%E4%BC%A4%E7%BB%99%E4%BA%A4%E8%AD%A6%E4%B9%B0%E5%A5%B6%E8%8C%B6%23&Refer=top) `295.1K 🔥`
+1. [九龄前夫和现任打起来了](https://s.weibo.com/weibo?q=%23%E4%B9%9D%E9%BE%84%E5%89%8D%E5%A4%AB%E5%92%8C%E7%8E%B0%E4%BB%BB%E6%89%93%E8%B5%B7%E6%9D%A5%E4%BA%86%23&Refer=top) `291.0K 🔥`
 1. [姜逸城陆漓婚纱照](https://s.weibo.com/weibo?q=%23%E5%A7%9C%E9%80%B8%E5%9F%8E%E9%99%86%E6%BC%93%E5%A9%9A%E7%BA%B1%E7%85%A7%23&Refer=top) `284.9K 🔥`
-1. [九龄前夫和现任打起来了](https://s.weibo.com/weibo?q=%23%E4%B9%9D%E9%BE%84%E5%89%8D%E5%A4%AB%E5%92%8C%E7%8E%B0%E4%BB%BB%E6%89%93%E8%B5%B7%E6%9D%A5%E4%BA%86%23&Refer=top) `281.9K 🔥`
 1. [新疆男篮微博回应周琦注册相关问题](https://s.weibo.com/weibo?q=%23%E6%96%B0%E7%96%86%E7%94%B7%E7%AF%AE%E5%BE%AE%E5%8D%9A%E5%9B%9E%E5%BA%94%E5%91%A8%E7%90%A6%E6%B3%A8%E5%86%8C%E7%9B%B8%E5%85%B3%E9%97%AE%E9%A2%98%23&Refer=top) `277.6K 🔥`
 1. [美国生物实验室内部影像](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%9B%BD%E7%94%9F%E7%89%A9%E5%AE%9E%E9%AA%8C%E5%AE%A4%E5%86%85%E9%83%A8%E5%BD%B1%E5%83%8F%23&Refer=top) `272.5K 🔥`
 1. [因发疯文学引起的社死](https://s.weibo.com/weibo?q=%23%E5%9B%A0%E5%8F%91%E7%96%AF%E6%96%87%E5%AD%A6%E5%BC%95%E8%B5%B7%E7%9A%84%E7%A4%BE%E6%AD%BB%23&Refer=top) `270.2K 🔥`
 1. [C罗重返曼联首秀](https://s.weibo.com/weibo?q=%23C%E7%BD%97%E9%87%8D%E8%BF%94%E6%9B%BC%E8%81%94%E9%A6%96%E7%A7%80%23&Refer=top) `243.4K 🔥`
 
-数据更新于 2021-09-12 07:14:52
+数据更新于 2021-09-12 07:27:52
 
 <!-- END -->
 
