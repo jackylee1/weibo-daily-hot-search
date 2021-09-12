@@ -24,12 +24,13 @@
 1. [7岁男孩爱做饭自学20多道菜](https://s.weibo.com/weibo?q=7%E5%B2%81%E7%94%B7%E5%AD%A9%E7%88%B1%E5%81%9A%E9%A5%AD%E8%87%AA%E5%AD%A620%E5%A4%9A%E9%81%93%E8%8F%9C&Refer=top) `1.1M 🔥`
 1. [莆田疑似疫情源头曾三次核酸阴性](https://s.weibo.com/weibo?q=%23%E8%8E%86%E7%94%B0%E7%96%91%E4%BC%BC%E7%96%AB%E6%83%85%E6%BA%90%E5%A4%B4%E6%9B%BE%E4%B8%89%E6%AC%A1%E6%A0%B8%E9%85%B8%E9%98%B4%E6%80%A7%23&Refer=top) `1.1M 🔥`
 1. [丁程鑫首次以快乐家族身份亮相](https://s.weibo.com/weibo?q=%23%E4%B8%81%E7%A8%8B%E9%91%AB%E9%A6%96%E6%AC%A1%E4%BB%A5%E5%BF%AB%E4%B9%90%E5%AE%B6%E6%97%8F%E8%BA%AB%E4%BB%BD%E4%BA%AE%E7%9B%B8%23&Refer=top) `999.6K 🔥`
+1. [马龙退出全运会单打](https://s.weibo.com/weibo?q=%E9%A9%AC%E9%BE%99%E9%80%80%E5%87%BA%E5%85%A8%E8%BF%90%E4%BC%9A%E5%8D%95%E6%89%93&Refer=top) `989.2K 🔥`
 1. [福建疫情](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E7%96%AB%E6%83%85%23&Refer=top) `987.5K 🔥`
 1. [快乐家族首次六人合体](https://s.weibo.com/weibo?q=%23%E5%BF%AB%E4%B9%90%E5%AE%B6%E6%97%8F%E9%A6%96%E6%AC%A1%E5%85%AD%E4%BA%BA%E5%90%88%E4%BD%93%23&Refer=top) `980.5K 🔥`
 1. [徐杰回应酒精中毒谣言](https://s.weibo.com/weibo?q=%23%E5%BE%90%E6%9D%B0%E5%9B%9E%E5%BA%94%E9%85%92%E7%B2%BE%E4%B8%AD%E6%AF%92%E8%B0%A3%E8%A8%80%23&Refer=top) `965.9K 🔥`
+1. [北电开学报到](https://s.weibo.com/weibo?q=%E5%8C%97%E7%94%B5%E5%BC%80%E5%AD%A6%E6%8A%A5%E5%88%B0&Refer=top) `946.4K 🔥`
 1. [能换个成熟点的头像不](https://s.weibo.com/weibo?q=%23%E8%83%BD%E6%8D%A2%E4%B8%AA%E6%88%90%E7%86%9F%E7%82%B9%E7%9A%84%E5%A4%B4%E5%83%8F%E4%B8%8D%23&Refer=top) `936.7K 🔥`
 1. [五角大楼悬挂巨幅美国国旗](https://s.weibo.com/weibo?q=%23%E4%BA%94%E8%A7%92%E5%A4%A7%E6%A5%BC%E6%82%AC%E6%8C%82%E5%B7%A8%E5%B9%85%E7%BE%8E%E5%9B%BD%E5%9B%BD%E6%97%97%23&Refer=top) `930.3K 🔥`
-1. [北电开学报到](https://s.weibo.com/weibo?q=%E5%8C%97%E7%94%B5%E5%BC%80%E5%AD%A6%E6%8A%A5%E5%88%B0&Refer=top) `929.8K 🔥`
 1. [原来猫的牙齿这么整齐](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E7%8C%AB%E7%9A%84%E7%89%99%E9%BD%BF%E8%BF%99%E4%B9%88%E6%95%B4%E9%BD%90%23&Refer=top) `898.2K 🔥`
 1. [C罗进球](https://s.weibo.com/weibo?q=C%E7%BD%97%E8%BF%9B%E7%90%83&Refer=top) `895.3K 🔥`
 1. [福建仙游疑似源头病例曾跨市流动](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E4%BB%99%E6%B8%B8%E7%96%91%E4%BC%BC%E6%BA%90%E5%A4%B4%E7%97%85%E4%BE%8B%E6%9B%BE%E8%B7%A8%E5%B8%82%E6%B5%81%E5%8A%A8%23&Refer=top) `875.3K 🔥`
@@ -55,9 +56,8 @@
 1. [孟美岐模仿杜华抓到精髓](https://s.weibo.com/weibo?q=%23%E5%AD%9F%E7%BE%8E%E5%B2%90%E6%A8%A1%E4%BB%BF%E6%9D%9C%E5%8D%8E%E6%8A%93%E5%88%B0%E7%B2%BE%E9%AB%93%23&Refer=top) `655.1K 🔥`
 1. [女子躺下铺休息被醉酒男乘客骚扰](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E8%BA%BA%E4%B8%8B%E9%93%BA%E4%BC%91%E6%81%AF%E8%A2%AB%E9%86%89%E9%85%92%E7%94%B7%E4%B9%98%E5%AE%A2%E9%AA%9A%E6%89%B0%23&Refer=top) `650.5K 🔥`
 1. [想去广西吃水果了](https://s.weibo.com/weibo?q=%23%E6%83%B3%E5%8E%BB%E5%B9%BF%E8%A5%BF%E5%90%83%E6%B0%B4%E6%9E%9C%E4%BA%86%23&Refer=top) `648.4K 🔥`
-1. [女子投诉民警当晚被铐走](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E6%8A%95%E8%AF%89%E6%B0%91%E8%AD%A6%E5%BD%93%E6%99%9A%E8%A2%AB%E9%93%90%E8%B5%B0%23&Refer=top) `641.9K 🔥`
 
-数据更新于 2021-09-12 15:45:46
+数据更新于 2021-09-12 15:52:19
 
 <!-- END -->
 
