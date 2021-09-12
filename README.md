@@ -50,14 +50,14 @@
 1. [全红婵一句话冠军感言](https://s.weibo.com/weibo?q=%23%E5%85%A8%E7%BA%A2%E5%A9%B5%E4%B8%80%E5%8F%A5%E8%AF%9D%E5%86%A0%E5%86%9B%E6%84%9F%E8%A8%80%23&Refer=top) `209.8K 🔥`
 1. [张若昀演的强迫症学霸](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%8B%A5%E6%98%80%E6%BC%94%E7%9A%84%E5%BC%BA%E8%BF%AB%E7%97%87%E5%AD%A6%E9%9C%B8%23&Refer=top) `206.6K 🔥`
 1. [ST夺冠](https://s.weibo.com/weibo?q=ST%E5%A4%BA%E5%86%A0&Refer=top) `180.8K 🔥`
+1. [这就是满级的人类幼崽吗](https://s.weibo.com/weibo?q=%23%E8%BF%99%E5%B0%B1%E6%98%AF%E6%BB%A1%E7%BA%A7%E7%9A%84%E4%BA%BA%E7%B1%BB%E5%B9%BC%E5%B4%BD%E5%90%97%23&Refer=top) `174.1K 🔥`
+1. [工作群能问什么时候发工资吗](https://s.weibo.com/weibo?q=%23%E5%B7%A5%E4%BD%9C%E7%BE%A4%E8%83%BD%E9%97%AE%E4%BB%80%E4%B9%88%E6%97%B6%E5%80%99%E5%8F%91%E5%B7%A5%E8%B5%84%E5%90%97%23&Refer=top) `168.7K 🔥`
 1. [浙江多地停课](https://s.weibo.com/weibo?q=%23%E6%B5%99%E6%B1%9F%E5%A4%9A%E5%9C%B0%E5%81%9C%E8%AF%BE%23&Refer=top) `164.8K 🔥`
 1. [墨西哥说唱歌手将金链植入头皮](https://s.weibo.com/weibo?q=%23%E5%A2%A8%E8%A5%BF%E5%93%A5%E8%AF%B4%E5%94%B1%E6%AD%8C%E6%89%8B%E5%B0%86%E9%87%91%E9%93%BE%E6%A4%8D%E5%85%A5%E5%A4%B4%E7%9A%AE%23&Refer=top) `163.6K 🔥`
 1. [仙游疫情](https://s.weibo.com/weibo?q=%23%E4%BB%99%E6%B8%B8%E7%96%AB%E6%83%85%23&Refer=top) `161.5K 🔥`
 1. [海岸村恰恰恰](https://s.weibo.com/weibo?q=%23%E6%B5%B7%E5%B2%B8%E6%9D%91%E6%81%B0%E6%81%B0%E6%81%B0%23&Refer=top) `152.3K 🔥`
-1. [莆田疫情](https://s.weibo.com/weibo?q=%E8%8E%86%E7%94%B0%E7%96%AB%E6%83%85&Refer=top) `150.4K 🔥`
-1. [超强台风灿都袭来](https://s.weibo.com/weibo?q=%23%E8%B6%85%E5%BC%BA%E5%8F%B0%E9%A3%8E%E7%81%BF%E9%83%BD%E8%A2%AD%E6%9D%A5%23&Refer=top) `146.6K 🔥`
 
-数据更新于 2021-09-13 06:08:12
+数据更新于 2021-09-13 06:24:04
 
 <!-- END -->
 
