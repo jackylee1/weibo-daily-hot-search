@@ -10,10 +10,11 @@
 1. [莆田疫情](https://s.weibo.com/weibo?q=%E8%8E%86%E7%94%B0%E7%96%AB%E6%83%85&Refer=top) `3.9M 🔥`
 1. [阿姨吃3年酵素肠子表面像蛇皮](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%A7%A8%E5%90%833%E5%B9%B4%E9%85%B5%E7%B4%A0%E8%82%A0%E5%AD%90%E8%A1%A8%E9%9D%A2%E5%83%8F%E8%9B%87%E7%9A%AE%23&Refer=top) `2.9M 🔥`
 1. [8岁男童挖鼻孔出血致颅内感染](https://s.weibo.com/weibo?q=%238%E5%B2%81%E7%94%B7%E7%AB%A5%E6%8C%96%E9%BC%BB%E5%AD%94%E5%87%BA%E8%A1%80%E8%87%B4%E9%A2%85%E5%86%85%E6%84%9F%E6%9F%93%23&Refer=top) `2.6M 🔥`
+1. [马龙退出全运会单打](https://s.weibo.com/weibo?q=%E9%A9%AC%E9%BE%99%E9%80%80%E5%87%BA%E5%85%A8%E8%BF%90%E4%BC%9A%E5%8D%95%E6%89%93&Refer=top) `2.2M 🔥`
 1. [郑州40万辆泡水车去哪儿了](https://s.weibo.com/weibo?q=%23%E9%83%91%E5%B7%9E40%E4%B8%87%E8%BE%86%E6%B3%A1%E6%B0%B4%E8%BD%A6%E5%8E%BB%E5%93%AA%E5%84%BF%E4%BA%86%23&Refer=top) `2.0M 🔥`
 1. [父子俩高铁占座还光脚架桌板上](https://s.weibo.com/weibo?q=%E7%88%B6%E5%AD%90%E4%BF%A9%E9%AB%98%E9%93%81%E5%8D%A0%E5%BA%A7%E8%BF%98%E5%85%89%E8%84%9A%E6%9E%B6%E6%A1%8C%E6%9D%BF%E4%B8%8A&Refer=top) `1.6M 🔥`
+1. [女童舍不得吃虾带给生病的妈妈](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E7%AB%A5%E8%88%8D%E4%B8%8D%E5%BE%97%E5%90%83%E8%99%BE%E5%B8%A6%E7%BB%99%E7%94%9F%E7%97%85%E7%9A%84%E5%A6%88%E5%A6%88%23&Refer=top) `1.6M 🔥`
 1. [老太脱裤耍赖拒搬出已售房屋](https://s.weibo.com/weibo?q=%23%E8%80%81%E5%A4%AA%E8%84%B1%E8%A3%A4%E8%80%8D%E8%B5%96%E6%8B%92%E6%90%AC%E5%87%BA%E5%B7%B2%E5%94%AE%E6%88%BF%E5%B1%8B%23&Refer=top) `1.6M 🔥`
-1. [女童舍不得吃虾带给生病的妈妈](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E7%AB%A5%E8%88%8D%E4%B8%8D%E5%BE%97%E5%90%83%E8%99%BE%E5%B8%A6%E7%BB%99%E7%94%9F%E7%97%85%E7%9A%84%E5%A6%88%E5%A6%88%23&Refer=top) `1.5M 🔥`
 1. [好好的名字被姓毁了](https://s.weibo.com/weibo?q=%23%E5%A5%BD%E5%A5%BD%E7%9A%84%E5%90%8D%E5%AD%97%E8%A2%AB%E5%A7%93%E6%AF%81%E4%BA%86%23&Refer=top) `1.4M 🔥`
 1. [熬夜的七大好处](https://s.weibo.com/weibo?q=%23%E7%86%AC%E5%A4%9C%E7%9A%84%E4%B8%83%E5%A4%A7%E5%A5%BD%E5%A4%84%23&Refer=top) `1.3M 🔥`
 1. [抽马克龙耳光男子获释](https://s.weibo.com/weibo?q=%23%E6%8A%BD%E9%A9%AC%E5%85%8B%E9%BE%99%E8%80%B3%E5%85%89%E7%94%B7%E5%AD%90%E8%8E%B7%E9%87%8A%23&Refer=top) `1.3M 🔥`
@@ -24,11 +25,10 @@
 1. [7岁男孩爱做饭自学20多道菜](https://s.weibo.com/weibo?q=7%E5%B2%81%E7%94%B7%E5%AD%A9%E7%88%B1%E5%81%9A%E9%A5%AD%E8%87%AA%E5%AD%A620%E5%A4%9A%E9%81%93%E8%8F%9C&Refer=top) `1.1M 🔥`
 1. [莆田疑似疫情源头曾三次核酸阴性](https://s.weibo.com/weibo?q=%23%E8%8E%86%E7%94%B0%E7%96%91%E4%BC%BC%E7%96%AB%E6%83%85%E6%BA%90%E5%A4%B4%E6%9B%BE%E4%B8%89%E6%AC%A1%E6%A0%B8%E9%85%B8%E9%98%B4%E6%80%A7%23&Refer=top) `1.1M 🔥`
 1. [丁程鑫首次以快乐家族身份亮相](https://s.weibo.com/weibo?q=%23%E4%B8%81%E7%A8%8B%E9%91%AB%E9%A6%96%E6%AC%A1%E4%BB%A5%E5%BF%AB%E4%B9%90%E5%AE%B6%E6%97%8F%E8%BA%AB%E4%BB%BD%E4%BA%AE%E7%9B%B8%23&Refer=top) `999.6K 🔥`
-1. [马龙退出全运会单打](https://s.weibo.com/weibo?q=%E9%A9%AC%E9%BE%99%E9%80%80%E5%87%BA%E5%85%A8%E8%BF%90%E4%BC%9A%E5%8D%95%E6%89%93&Refer=top) `989.2K 🔥`
 1. [福建疫情](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E7%96%AB%E6%83%85%23&Refer=top) `987.5K 🔥`
 1. [快乐家族首次六人合体](https://s.weibo.com/weibo?q=%23%E5%BF%AB%E4%B9%90%E5%AE%B6%E6%97%8F%E9%A6%96%E6%AC%A1%E5%85%AD%E4%BA%BA%E5%90%88%E4%BD%93%23&Refer=top) `980.5K 🔥`
 1. [徐杰回应酒精中毒谣言](https://s.weibo.com/weibo?q=%23%E5%BE%90%E6%9D%B0%E5%9B%9E%E5%BA%94%E9%85%92%E7%B2%BE%E4%B8%AD%E6%AF%92%E8%B0%A3%E8%A8%80%23&Refer=top) `965.9K 🔥`
-1. [北电开学报到](https://s.weibo.com/weibo?q=%E5%8C%97%E7%94%B5%E5%BC%80%E5%AD%A6%E6%8A%A5%E5%88%B0&Refer=top) `946.4K 🔥`
+1. [北电开学报到](https://s.weibo.com/weibo?q=%E5%8C%97%E7%94%B5%E5%BC%80%E5%AD%A6%E6%8A%A5%E5%88%B0&Refer=top) `946.6K 🔥`
 1. [能换个成熟点的头像不](https://s.weibo.com/weibo?q=%23%E8%83%BD%E6%8D%A2%E4%B8%AA%E6%88%90%E7%86%9F%E7%82%B9%E7%9A%84%E5%A4%B4%E5%83%8F%E4%B8%8D%23&Refer=top) `936.7K 🔥`
 1. [五角大楼悬挂巨幅美国国旗](https://s.weibo.com/weibo?q=%23%E4%BA%94%E8%A7%92%E5%A4%A7%E6%A5%BC%E6%82%AC%E6%8C%82%E5%B7%A8%E5%B9%85%E7%BE%8E%E5%9B%BD%E5%9B%BD%E6%97%97%23&Refer=top) `930.3K 🔥`
 1. [原来猫的牙齿这么整齐](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E7%8C%AB%E7%9A%84%E7%89%99%E9%BD%BF%E8%BF%99%E4%B9%88%E6%95%B4%E9%BD%90%23&Refer=top) `898.2K 🔥`
@@ -57,7 +57,7 @@
 1. [女子躺下铺休息被醉酒男乘客骚扰](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E5%AD%90%E8%BA%BA%E4%B8%8B%E9%93%BA%E4%BC%91%E6%81%AF%E8%A2%AB%E9%86%89%E9%85%92%E7%94%B7%E4%B9%98%E5%AE%A2%E9%AA%9A%E6%89%B0%23&Refer=top) `650.5K 🔥`
 1. [想去广西吃水果了](https://s.weibo.com/weibo?q=%23%E6%83%B3%E5%8E%BB%E5%B9%BF%E8%A5%BF%E5%90%83%E6%B0%B4%E6%9E%9C%E4%BA%86%23&Refer=top) `648.4K 🔥`
 
-数据更新于 2021-09-12 15:52:19
+数据更新于 2021-09-12 15:58:57
 
 <!-- END -->
 
