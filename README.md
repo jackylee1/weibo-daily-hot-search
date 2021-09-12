@@ -54,10 +54,10 @@
 1. [丁程鑫首次以快乐家族身份亮相](https://s.weibo.com/weibo?q=%23%E4%B8%81%E7%A8%8B%E9%91%AB%E9%A6%96%E6%AC%A1%E4%BB%A5%E5%BF%AB%E4%B9%90%E5%AE%B6%E6%97%8F%E8%BA%AB%E4%BB%BD%E4%BA%AE%E7%9B%B8%23&Refer=top) `999.6K 🔥`
 1. [福建疫情](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E7%96%AB%E6%83%85%23&Refer=top) `987.5K 🔥`
 1. [励志夫妇婚了但没完全婚](https://s.weibo.com/weibo?q=%23%E5%8A%B1%E5%BF%97%E5%A4%AB%E5%A6%87%E5%A9%9A%E4%BA%86%E4%BD%86%E6%B2%A1%E5%AE%8C%E5%85%A8%E5%A9%9A%23&Refer=top) `984.1K 🔥`
+1. [张若昀演的强迫症学霸](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E8%8B%A5%E6%98%80%E6%BC%94%E7%9A%84%E5%BC%BA%E8%BF%AB%E7%97%87%E5%AD%A6%E9%9C%B8%23&Refer=top) `980.5K 🔥`
 1. [快乐家族首次六人合体](https://s.weibo.com/weibo?q=%23%E5%BF%AB%E4%B9%90%E5%AE%B6%E6%97%8F%E9%A6%96%E6%AC%A1%E5%85%AD%E4%BA%BA%E5%90%88%E4%BD%93%23&Refer=top) `980.5K 🔥`
-1. [徐杰回应酒精中毒谣言](https://s.weibo.com/weibo?q=%23%E5%BE%90%E6%9D%B0%E5%9B%9E%E5%BA%94%E9%85%92%E7%B2%BE%E4%B8%AD%E6%AF%92%E8%B0%A3%E8%A8%80%23&Refer=top) `965.9K 🔥`
 
-数据更新于 2021-09-12 22:53:51
+数据更新于 2021-09-12 23:00:20
 
 <!-- END -->
 
