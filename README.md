@@ -8,8 +8,8 @@
 
 1. [顺丰回应签收确认加一元钱](https://s.weibo.com/weibo?q=%23%E9%A1%BA%E4%B8%B0%E5%9B%9E%E5%BA%94%E7%AD%BE%E6%94%B6%E7%A1%AE%E8%AE%A4%E5%8A%A0%E4%B8%80%E5%85%83%E9%92%B1%23&Refer=top) `4.6M 🔥`
 1. [浙江多地停课](https://s.weibo.com/weibo?q=%23%E6%B5%99%E6%B1%9F%E5%A4%9A%E5%9C%B0%E5%81%9C%E8%AF%BE%23&Refer=top) `4.5M 🔥`
+1. [上海停课一天半](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E5%81%9C%E8%AF%BE%E4%B8%80%E5%A4%A9%E5%8D%8A%23&Refer=top) `4.2M 🔥`
 1. [莆田疫情](https://s.weibo.com/weibo?q=%E8%8E%86%E7%94%B0%E7%96%AB%E6%83%85&Refer=top) `3.9M 🔥`
-1. [上海停课一天半](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E5%81%9C%E8%AF%BE%E4%B8%80%E5%A4%A9%E5%8D%8A%23&Refer=top) `3.8M 🔥`
 1. [央视曝多款高跟凉鞋有害物超标](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E6%9B%9D%E5%A4%9A%E6%AC%BE%E9%AB%98%E8%B7%9F%E5%87%89%E9%9E%8B%E6%9C%89%E5%AE%B3%E7%89%A9%E8%B6%85%E6%A0%87%23&Refer=top) `3.2M 🔥`
 1. [阿姨吃3年酵素肠子表面像蛇皮](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%A7%A8%E5%90%833%E5%B9%B4%E9%85%B5%E7%B4%A0%E8%82%A0%E5%AD%90%E8%A1%A8%E9%9D%A2%E5%83%8F%E8%9B%87%E7%9A%AE%23&Refer=top) `2.9M 🔥`
 1. [马龙退出全运会单打](https://s.weibo.com/weibo?q=%E9%A9%AC%E9%BE%99%E9%80%80%E5%87%BA%E5%85%A8%E8%BF%90%E4%BC%9A%E5%8D%95%E6%89%93&Refer=top) `2.9M 🔥`
@@ -57,7 +57,7 @@
 1. [C罗进球](https://s.weibo.com/weibo?q=C%E7%BD%97%E8%BF%9B%E7%90%83&Refer=top) `895.3K 🔥`
 1. [福建仙游疑似源头病例曾跨市流动](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E4%BB%99%E6%B8%B8%E7%96%91%E4%BC%BC%E6%BA%90%E5%A4%B4%E7%97%85%E4%BE%8B%E6%9B%BE%E8%B7%A8%E5%B8%82%E6%B5%81%E5%8A%A8%23&Refer=top) `875.3K 🔥`
 
-数据更新于 2021-09-12 19:48:05
+数据更新于 2021-09-12 19:54:17
 
 <!-- END -->
 
