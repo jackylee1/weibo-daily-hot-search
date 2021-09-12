@@ -15,6 +15,7 @@
 1. [女童舍不得吃虾带给生病的妈妈](https://s.weibo.com/weibo?q=%23%E5%A5%B3%E7%AB%A5%E8%88%8D%E4%B8%8D%E5%BE%97%E5%90%83%E8%99%BE%E5%B8%A6%E7%BB%99%E7%94%9F%E7%97%85%E7%9A%84%E5%A6%88%E5%A6%88%23&Refer=top) `1.8M 🔥`
 1. [父子俩高铁占座还光脚架桌板上](https://s.weibo.com/weibo?q=%E7%88%B6%E5%AD%90%E4%BF%A9%E9%AB%98%E9%93%81%E5%8D%A0%E5%BA%A7%E8%BF%98%E5%85%89%E8%84%9A%E6%9E%B6%E6%A1%8C%E6%9D%BF%E4%B8%8A&Refer=top) `1.6M 🔥`
 1. [老太脱裤耍赖拒搬出已售房屋](https://s.weibo.com/weibo?q=%23%E8%80%81%E5%A4%AA%E8%84%B1%E8%A3%A4%E8%80%8D%E8%B5%96%E6%8B%92%E6%90%AC%E5%87%BA%E5%B7%B2%E5%94%AE%E6%88%BF%E5%B1%8B%23&Refer=top) `1.6M 🔥`
+1. [全红婵陈芋汐张家齐女子10米跳台决赛](https://s.weibo.com/weibo?q=%23%E5%85%A8%E7%BA%A2%E5%A9%B5%E9%99%88%E8%8A%8B%E6%B1%90%E5%BC%A0%E5%AE%B6%E9%BD%90%E5%A5%B3%E5%AD%9010%E7%B1%B3%E8%B7%B3%E5%8F%B0%E5%86%B3%E8%B5%9B%23&Refer=top) `1.5M 🔥`
 1. [好好的名字被姓毁了](https://s.weibo.com/weibo?q=%23%E5%A5%BD%E5%A5%BD%E7%9A%84%E5%90%8D%E5%AD%97%E8%A2%AB%E5%A7%93%E6%AF%81%E4%BA%86%23&Refer=top) `1.4M 🔥`
 1. [熬夜的七大好处](https://s.weibo.com/weibo?q=%23%E7%86%AC%E5%A4%9C%E7%9A%84%E4%B8%83%E5%A4%A7%E5%A5%BD%E5%A4%84%23&Refer=top) `1.3M 🔥`
 1. [抽马克龙耳光男子获释](https://s.weibo.com/weibo?q=%23%E6%8A%BD%E9%A9%AC%E5%85%8B%E9%BE%99%E8%80%B3%E5%85%89%E7%94%B7%E5%AD%90%E8%8E%B7%E9%87%8A%23&Refer=top) `1.3M 🔥`
@@ -24,7 +25,6 @@
 1. [莆田至少已形成4代传播](https://s.weibo.com/weibo?q=%23%E8%8E%86%E7%94%B0%E8%87%B3%E5%B0%91%E5%B7%B2%E5%BD%A2%E6%88%904%E4%BB%A3%E4%BC%A0%E6%92%AD%23&Refer=top) `1.1M 🔥`
 1. [7岁男孩爱做饭自学20多道菜](https://s.weibo.com/weibo?q=7%E5%B2%81%E7%94%B7%E5%AD%A9%E7%88%B1%E5%81%9A%E9%A5%AD%E8%87%AA%E5%AD%A620%E5%A4%9A%E9%81%93%E8%8F%9C&Refer=top) `1.1M 🔥`
 1. [莆田疑似疫情源头曾三次核酸阴性](https://s.weibo.com/weibo?q=%23%E8%8E%86%E7%94%B0%E7%96%91%E4%BC%BC%E7%96%AB%E6%83%85%E6%BA%90%E5%A4%B4%E6%9B%BE%E4%B8%89%E6%AC%A1%E6%A0%B8%E9%85%B8%E9%98%B4%E6%80%A7%23&Refer=top) `1.1M 🔥`
-1. [全红婵陈芋汐张家齐女子10米跳台决赛](https://s.weibo.com/weibo?q=%23%E5%85%A8%E7%BA%A2%E5%A9%B5%E9%99%88%E8%8A%8B%E6%B1%90%E5%BC%A0%E5%AE%B6%E9%BD%90%E5%A5%B3%E5%AD%9010%E7%B1%B3%E8%B7%B3%E5%8F%B0%E5%86%B3%E8%B5%9B%23&Refer=top) `1.0M 🔥`
 1. [丁程鑫首次以快乐家族身份亮相](https://s.weibo.com/weibo?q=%23%E4%B8%81%E7%A8%8B%E9%91%AB%E9%A6%96%E6%AC%A1%E4%BB%A5%E5%BF%AB%E4%B9%90%E5%AE%B6%E6%97%8F%E8%BA%AB%E4%BB%BD%E4%BA%AE%E7%9B%B8%23&Refer=top) `999.6K 🔥`
 1. [福建疫情](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E7%96%AB%E6%83%85%23&Refer=top) `987.5K 🔥`
 1. [快乐家族首次六人合体](https://s.weibo.com/weibo?q=%23%E5%BF%AB%E4%B9%90%E5%AE%B6%E6%97%8F%E9%A6%96%E6%AC%A1%E5%85%AD%E4%BA%BA%E5%90%88%E4%BD%93%23&Refer=top) `980.5K 🔥`
@@ -55,9 +55,9 @@
 1. [保定致6死羽绒加工厂曾被罚72000元](https://s.weibo.com/weibo?q=%23%E4%BF%9D%E5%AE%9A%E8%87%B46%E6%AD%BB%E7%BE%BD%E7%BB%92%E5%8A%A0%E5%B7%A5%E5%8E%82%E6%9B%BE%E8%A2%AB%E7%BD%9A72000%E5%85%83%23&Refer=top) `699.7K 🔥`
 1. [消费者质疑泡泡玛特诱导消费](https://s.weibo.com/weibo?q=%23%E6%B6%88%E8%B4%B9%E8%80%85%E8%B4%A8%E7%96%91%E6%B3%A1%E6%B3%A1%E7%8E%9B%E7%89%B9%E8%AF%B1%E5%AF%BC%E6%B6%88%E8%B4%B9%23&Refer=top) `684.1K 🔥`
 1. [孙女吃螺蛳粉奶奶说你咋吃屎啊](https://s.weibo.com/weibo?q=%23%E5%AD%99%E5%A5%B3%E5%90%83%E8%9E%BA%E8%9B%B3%E7%B2%89%E5%A5%B6%E5%A5%B6%E8%AF%B4%E4%BD%A0%E5%92%8B%E5%90%83%E5%B1%8E%E5%95%8A%23&Refer=top) `675.1K 🔥`
-1. [圆明园一游客踩踏遗址被行拘](https://s.weibo.com/weibo?q=%23%E5%9C%86%E6%98%8E%E5%9B%AD%E4%B8%80%E6%B8%B8%E5%AE%A2%E8%B8%A9%E8%B8%8F%E9%81%97%E5%9D%80%E8%A2%AB%E8%A1%8C%E6%8B%98%23&Refer=top) `666.0K 🔥`
+1. [塔利班9月11日举行升旗仪式](https://s.weibo.com/weibo?q=%23%E5%A1%94%E5%88%A9%E7%8F%AD9%E6%9C%8811%E6%97%A5%E4%B8%BE%E8%A1%8C%E5%8D%87%E6%97%97%E4%BB%AA%E5%BC%8F%23&Refer=top) `669.0K 🔥`
 
-数据更新于 2021-09-12 16:15:22
+数据更新于 2021-09-12 16:31:43
 
 <!-- END -->
 
