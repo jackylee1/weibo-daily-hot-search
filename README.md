@@ -9,6 +9,7 @@
 1. [顺丰回应签收确认加一元钱](https://s.weibo.com/weibo?q=%23%E9%A1%BA%E4%B8%B0%E5%9B%9E%E5%BA%94%E7%AD%BE%E6%94%B6%E7%A1%AE%E8%AE%A4%E5%8A%A0%E4%B8%80%E5%85%83%E9%92%B1%23&Refer=top) `4.6M 🔥`
 1. [浙江多地停课](https://s.weibo.com/weibo?q=%23%E6%B5%99%E6%B1%9F%E5%A4%9A%E5%9C%B0%E5%81%9C%E8%AF%BE%23&Refer=top) `4.5M 🔥`
 1. [上海停课一天半](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E5%81%9C%E8%AF%BE%E4%B8%80%E5%A4%A9%E5%8D%8A%23&Refer=top) `4.2M 🔥`
+1. [男子怀疑凉皮有罂粟报警一查还真有](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E6%80%80%E7%96%91%E5%87%89%E7%9A%AE%E6%9C%89%E7%BD%82%E7%B2%9F%E6%8A%A5%E8%AD%A6%E4%B8%80%E6%9F%A5%E8%BF%98%E7%9C%9F%E6%9C%89%23&Refer=top) `4.1M 🔥`
 1. [莆田疫情](https://s.weibo.com/weibo?q=%E8%8E%86%E7%94%B0%E7%96%AB%E6%83%85&Refer=top) `3.9M 🔥`
 1. [央视曝多款高跟凉鞋有害物超标](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E6%9B%9D%E5%A4%9A%E6%AC%BE%E9%AB%98%E8%B7%9F%E5%87%89%E9%9E%8B%E6%9C%89%E5%AE%B3%E7%89%A9%E8%B6%85%E6%A0%87%23&Refer=top) `3.2M 🔥`
 1. [阿姨吃3年酵素肠子表面像蛇皮](https://s.weibo.com/weibo?q=%23%E9%98%BF%E5%A7%A8%E5%90%833%E5%B9%B4%E9%85%B5%E7%B4%A0%E8%82%A0%E5%AD%90%E8%A1%A8%E9%9D%A2%E5%83%8F%E8%9B%87%E7%9A%AE%23&Refer=top) `2.9M 🔥`
@@ -44,6 +45,7 @@
 1. [莆田疑似疫情源头曾三次核酸阴性](https://s.weibo.com/weibo?q=%23%E8%8E%86%E7%94%B0%E7%96%91%E4%BC%BC%E7%96%AB%E6%83%85%E6%BA%90%E5%A4%B4%E6%9B%BE%E4%B8%89%E6%AC%A1%E6%A0%B8%E9%85%B8%E9%98%B4%E6%80%A7%23&Refer=top) `1.1M 🔥`
 1. [19岁男子称遇到姓刘张王的就打](https://s.weibo.com/weibo?q=%2319%E5%B2%81%E7%94%B7%E5%AD%90%E7%A7%B0%E9%81%87%E5%88%B0%E5%A7%93%E5%88%98%E5%BC%A0%E7%8E%8B%E7%9A%84%E5%B0%B1%E6%89%93%23&Refer=top) `1.1M 🔥`
 1. [小米手机在古巴等六地被禁用](https://s.weibo.com/weibo?q=%23%E5%B0%8F%E7%B1%B3%E6%89%8B%E6%9C%BA%E5%9C%A8%E5%8F%A4%E5%B7%B4%E7%AD%89%E5%85%AD%E5%9C%B0%E8%A2%AB%E7%A6%81%E7%94%A8%23&Refer=top) `1.1M 🔥`
+1. [可乐撒在键盘上有多难受](https://s.weibo.com/weibo?q=%23%E5%8F%AF%E4%B9%90%E6%92%92%E5%9C%A8%E9%94%AE%E7%9B%98%E4%B8%8A%E6%9C%89%E5%A4%9A%E9%9A%BE%E5%8F%97%23&Refer=top) `1.0M 🔥`
 1. [丁程鑫首次以快乐家族身份亮相](https://s.weibo.com/weibo?q=%23%E4%B8%81%E7%A8%8B%E9%91%AB%E9%A6%96%E6%AC%A1%E4%BB%A5%E5%BF%AB%E4%B9%90%E5%AE%B6%E6%97%8F%E8%BA%AB%E4%BB%BD%E4%BA%AE%E7%9B%B8%23&Refer=top) `999.6K 🔥`
 1. [福建疫情](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E7%96%AB%E6%83%85%23&Refer=top) `987.5K 🔥`
 1. [励志夫妇婚了但没完全婚](https://s.weibo.com/weibo?q=%23%E5%8A%B1%E5%BF%97%E5%A4%AB%E5%A6%87%E5%A9%9A%E4%BA%86%E4%BD%86%E6%B2%A1%E5%AE%8C%E5%85%A8%E5%A9%9A%23&Refer=top) `984.1K 🔥`
@@ -52,12 +54,10 @@
 1. [王一博利用休息时间学法语](https://s.weibo.com/weibo?q=%23%E7%8E%8B%E4%B8%80%E5%8D%9A%E5%88%A9%E7%94%A8%E4%BC%91%E6%81%AF%E6%97%B6%E9%97%B4%E5%AD%A6%E6%B3%95%E8%AF%AD%23&Refer=top) `958.4K 🔥`
 1. [北电开学报到](https://s.weibo.com/weibo?q=%E5%8C%97%E7%94%B5%E5%BC%80%E5%AD%A6%E6%8A%A5%E5%88%B0&Refer=top) `946.6K 🔥`
 1. [能换个成熟点的头像不](https://s.weibo.com/weibo?q=%23%E8%83%BD%E6%8D%A2%E4%B8%AA%E6%88%90%E7%86%9F%E7%82%B9%E7%9A%84%E5%A4%B4%E5%83%8F%E4%B8%8D%23&Refer=top) `936.7K 🔥`
-1. [可乐撒在键盘上有多难受](https://s.weibo.com/weibo?q=%23%E5%8F%AF%E4%B9%90%E6%92%92%E5%9C%A8%E9%94%AE%E7%9B%98%E4%B8%8A%E6%9C%89%E5%A4%9A%E9%9A%BE%E5%8F%97%23&Refer=top) `931.3K 🔥`
 1. [五角大楼悬挂巨幅美国国旗](https://s.weibo.com/weibo?q=%23%E4%BA%94%E8%A7%92%E5%A4%A7%E6%A5%BC%E6%82%AC%E6%8C%82%E5%B7%A8%E5%B9%85%E7%BE%8E%E5%9B%BD%E5%9B%BD%E6%97%97%23&Refer=top) `930.3K 🔥`
 1. [福建莆田已排查出841名密接人员](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E8%8E%86%E7%94%B0%E5%B7%B2%E6%8E%92%E6%9F%A5%E5%87%BA841%E5%90%8D%E5%AF%86%E6%8E%A5%E4%BA%BA%E5%91%98%23&Refer=top) `903.3K 🔥`
-1. [原来猫的牙齿这么整齐](https://s.weibo.com/weibo?q=%23%E5%8E%9F%E6%9D%A5%E7%8C%AB%E7%9A%84%E7%89%99%E9%BD%BF%E8%BF%99%E4%B9%88%E6%95%B4%E9%BD%90%23&Refer=top) `898.2K 🔥`
 
-数据更新于 2021-09-12 20:55:21
+数据更新于 2021-09-12 21:10:07
 
 <!-- END -->
 
