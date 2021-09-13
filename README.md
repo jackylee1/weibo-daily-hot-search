@@ -14,12 +14,13 @@
 1. [上海停课一天半](https://s.weibo.com/weibo?q=%23%E4%B8%8A%E6%B5%B7%E5%81%9C%E8%AF%BE%E4%B8%80%E5%A4%A9%E5%8D%8A%23&Refer=top) `1.6M 🔥`
 1. [福建疫情已波及66人](https://s.weibo.com/weibo?q=%23%E7%A6%8F%E5%BB%BA%E7%96%AB%E6%83%85%E5%B7%B2%E6%B3%A2%E5%8F%8A66%E4%BA%BA%23&Refer=top) `1.4M 🔥`
 1. [钟南山曾在全运会打破400米栏全国纪录](https://s.weibo.com/weibo?q=%23%E9%92%9F%E5%8D%97%E5%B1%B1%E6%9B%BE%E5%9C%A8%E5%85%A8%E8%BF%90%E4%BC%9A%E6%89%93%E7%A0%B4400%E7%B1%B3%E6%A0%8F%E5%85%A8%E5%9B%BD%E7%BA%AA%E5%BD%95%23&Refer=top) `1.3M 🔥`
+1. [这苹果怎么桃里桃气的](https://s.weibo.com/weibo?q=%23%E8%BF%99%E8%8B%B9%E6%9E%9C%E6%80%8E%E4%B9%88%E6%A1%83%E9%87%8C%E6%A1%83%E6%B0%94%E7%9A%84%23&Refer=top) `1.3M 🔥`
 1. [新人挤地铁参加婚礼给乘客发喜糖](https://s.weibo.com/weibo?q=%23%E6%96%B0%E4%BA%BA%E6%8C%A4%E5%9C%B0%E9%93%81%E5%8F%82%E5%8A%A0%E5%A9%9A%E7%A4%BC%E7%BB%99%E4%B9%98%E5%AE%A2%E5%8F%91%E5%96%9C%E7%B3%96%23&Refer=top) `1.3M 🔥`
 1. [千万别买紫色假发片](https://s.weibo.com/weibo?q=%23%E5%8D%83%E4%B8%87%E5%88%AB%E4%B9%B0%E7%B4%AB%E8%89%B2%E5%81%87%E5%8F%91%E7%89%87%23&Refer=top) `1.2M 🔥`
+1. [六成大学生认为毕业10年内会年入百万](https://s.weibo.com/weibo?q=%23%E5%85%AD%E6%88%90%E5%A4%A7%E5%AD%A6%E7%94%9F%E8%AE%A4%E4%B8%BA%E6%AF%95%E4%B8%9A10%E5%B9%B4%E5%86%85%E4%BC%9A%E5%B9%B4%E5%85%A5%E7%99%BE%E4%B8%87%23&Refer=top) `1.1M 🔥`
 1. [厦门大学附属第一医院暂停门急诊](https://s.weibo.com/weibo?q=%E5%8E%A6%E9%97%A8%E5%A4%A7%E5%AD%A6%E9%99%84%E5%B1%9E%E7%AC%AC%E4%B8%80%E5%8C%BB%E9%99%A2%E6%9A%82%E5%81%9C%E9%97%A8%E6%80%A5%E8%AF%8A&Refer=top) `1.1M 🔥`
 1. [军训服穿出了汉服的感觉](https://s.weibo.com/weibo?q=%23%E5%86%9B%E8%AE%AD%E6%9C%8D%E7%A9%BF%E5%87%BA%E4%BA%86%E6%B1%89%E6%9C%8D%E7%9A%84%E6%84%9F%E8%A7%89%23&Refer=top) `1.0M 🔥`
 1. [江苏发现2亿年前物种仙女虾](https://s.weibo.com/weibo?q=%23%E6%B1%9F%E8%8B%8F%E5%8F%91%E7%8E%B02%E4%BA%BF%E5%B9%B4%E5%89%8D%E7%89%A9%E7%A7%8D%E4%BB%99%E5%A5%B3%E8%99%BE%23&Refer=top) `1.0M 🔥`
-1. [这苹果怎么桃里桃气的](https://s.weibo.com/weibo?q=%23%E8%BF%99%E8%8B%B9%E6%9E%9C%E6%80%8E%E4%B9%88%E6%A1%83%E9%87%8C%E6%A1%83%E6%B0%94%E7%9A%84%23&Refer=top) `1.0M 🔥`
 1. [鸡腿面包真的有鸡腿了](https://s.weibo.com/weibo?q=%23%E9%B8%A1%E8%85%BF%E9%9D%A2%E5%8C%85%E7%9C%9F%E7%9A%84%E6%9C%89%E9%B8%A1%E8%85%BF%E4%BA%86%23&Refer=top) `1.0M 🔥`
 1. [公司发的月饼你会吃吗](https://s.weibo.com/weibo?q=%23%E5%85%AC%E5%8F%B8%E5%8F%91%E7%9A%84%E6%9C%88%E9%A5%BC%E4%BD%A0%E4%BC%9A%E5%90%83%E5%90%97%23&Refer=top) `960.1K 🔥`
 1. [张彬彬发博告别极限挑战宝藏行](https://s.weibo.com/weibo?q=%23%E5%BC%A0%E5%BD%AC%E5%BD%AC%E5%8F%91%E5%8D%9A%E5%91%8A%E5%88%AB%E6%9E%81%E9%99%90%E6%8C%91%E6%88%98%E5%AE%9D%E8%97%8F%E8%A1%8C%23&Refer=top) `955.0K 🔥`
@@ -55,9 +56,8 @@
 1. [男子开无车门全通透车上路被罚](https://s.weibo.com/weibo?q=%23%E7%94%B7%E5%AD%90%E5%BC%80%E6%97%A0%E8%BD%A6%E9%97%A8%E5%85%A8%E9%80%9A%E9%80%8F%E8%BD%A6%E4%B8%8A%E8%B7%AF%E8%A2%AB%E7%BD%9A%23&Refer=top) `499.7K 🔥`
 1. [学校食堂到底有多便宜](https://s.weibo.com/weibo?q=%23%E5%AD%A6%E6%A0%A1%E9%A3%9F%E5%A0%82%E5%88%B0%E5%BA%95%E6%9C%89%E5%A4%9A%E4%BE%BF%E5%AE%9C%23&Refer=top) `491.5K 🔥`
 1. [日本将举行28年来首次大规模军演](https://s.weibo.com/weibo?q=%23%E6%97%A5%E6%9C%AC%E5%B0%86%E4%B8%BE%E8%A1%8C28%E5%B9%B4%E6%9D%A5%E9%A6%96%E6%AC%A1%E5%A4%A7%E8%A7%84%E6%A8%A1%E5%86%9B%E6%BC%94%23&Refer=top) `487.6K 🔥`
-1. [居然被一群猫嘲笑了](https://s.weibo.com/weibo?q=%23%E5%B1%85%E7%84%B6%E8%A2%AB%E4%B8%80%E7%BE%A4%E7%8C%AB%E5%98%B2%E7%AC%91%E4%BA%86%23&Refer=top) `475.9K 🔥`
 
-数据更新于 2021-09-13 11:20:57
+数据更新于 2021-09-13 11:33:02
 
 <!-- END -->
 
