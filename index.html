@@ -1,0 +1,524 @@
+<!DOCTYPE html>
+<html lang="zh-CN">
+<head>
+    <meta charset="UTF-8">
+    <meta name="viewport" content="width=device-width, initial-scale=1.0">
+    <title>微博热搜榜 - Weibo Daily Hot Search</title>
+    <meta name="description" content="记录从 2020-12-29 日开始的微博热门搜索历史归档">
+    <style>
+        :root {
+            --primary-color: #ff8200;
+            --primary-dark: #e67300;
+            --bg-color: #f5f5f5;
+            --card-bg: #ffffff;
+            --text-color: #333333;
+            --text-secondary: #666666;
+            --border-color: #e0e0e0;
+            --hot-color: #ff4d4f;
+        }
+
+        * {
+            margin: 0;
+            padding: 0;
+            box-sizing: border-box;
+        }
+
+        body {
+            font-family: -apple-system, BlinkMacSystemFont, 'Segoe UI', 'PingFang SC', 'Hiragino Sans GB', 'Microsoft YaHei', sans-serif;
+            background-color: var(--bg-color);
+            color: var(--text-color);
+            line-height: 1.6;
+        }
+
+        .container {
+            max-width: 800px;
+            margin: 0 auto;
+            padding: 20px;
+        }
+
+        header {
+            text-align: center;
+            padding: 40px 20px;
+            background: linear-gradient(135deg, var(--primary-color), var(--primary-dark));
+            color: white;
+            margin-bottom: 30px;
+            border-radius: 0 0 20px 20px;
+        }
+
+        header h1 {
+            font-size: 2rem;
+            margin-bottom: 10px;
+        }
+
+        header p {
+            opacity: 0.9;
+            font-size: 0.95rem;
+        }
+
+        .date-picker {
+            display: flex;
+            justify-content: center;
+            align-items: center;
+            gap: 15px;
+            margin-bottom: 25px;
+            flex-wrap: wrap;
+        }
+
+        .date-picker input[type="date"] {
+            padding: 10px 15px;
+            font-size: 1rem;
+            border: 2px solid var(--border-color);
+            border-radius: 8px;
+            outline: none;
+            transition: border-color 0.3s;
+        }
+
+        .date-picker input[type="date"]:focus {
+            border-color: var(--primary-color);
+        }
+
+        .date-nav {
+            display: flex;
+            gap: 8px;
+        }
+
+        .date-nav button {
+            padding: 10px 15px;
+            font-size: 0.9rem;
+            border: none;
+            background-color: var(--primary-color);
+            color: white;
+            border-radius: 8px;
+            cursor: pointer;
+            transition: background-color 0.3s;
+        }
+
+        .date-nav button:hover {
+            background-color: var(--primary-dark);
+        }
+
+        .date-nav button:disabled {
+            background-color: var(--border-color);
+            cursor: not-allowed;
+        }
+
+        .stats {
+            display: flex;
+            justify-content: center;
+            gap: 30px;
+            margin-bottom: 25px;
+            flex-wrap: wrap;
+        }
+
+        .stat-item {
+            text-align: center;
+            padding: 15px 25px;
+            background-color: var(--card-bg);
+            border-radius: 10px;
+            box-shadow: 0 2px 10px rgba(0, 0, 0, 0.05);
+        }
+
+        .stat-value {
+            font-size: 1.5rem;
+            font-weight: bold;
+            color: var(--primary-color);
+        }
+
+        .stat-label {
+            font-size: 0.85rem;
+            color: var(--text-secondary);
+        }
+
+        .hot-list {
+            background-color: var(--card-bg);
+            border-radius: 15px;
+            box-shadow: 0 2px 15px rgba(0, 0, 0, 0.08);
+            overflow: hidden;
+        }
+
+        .hot-list-header {
+            padding: 20px;
+            background-color: var(--primary-color);
+            color: white;
+            font-weight: bold;
+            display: flex;
+            justify-content: space-between;
+            align-items: center;
+        }
+
+        .hot-item {
+            display: flex;
+            align-items: center;
+            padding: 15px 20px;
+            border-bottom: 1px solid var(--border-color);
+            transition: background-color 0.2s;
+        }
+
+        .hot-item:hover {
+            background-color: #fafafa;
+        }
+
+        .hot-item:last-child {
+            border-bottom: none;
+        }
+
+        .hot-rank {
+            width: 35px;
+            height: 35px;
+            display: flex;
+            align-items: center;
+            justify-content: center;
+            font-weight: bold;
+            font-size: 0.9rem;
+            margin-right: 15px;
+            border-radius: 8px;
+            background-color: var(--bg-color);
+            color: var(--text-secondary);
+        }
+
+        .hot-item:nth-child(1) .hot-rank,
+        .hot-item:nth-child(2) .hot-rank,
+        .hot-item:nth-child(3) .hot-rank {
+            background-color: var(--hot-color);
+            color: white;
+        }
+
+        .hot-content {
+            flex: 1;
+            min-width: 0;
+        }
+
+        .hot-title {
+            color: var(--text-color);
+            text-decoration: none;
+            font-size: 1rem;
+            display: block;
+            overflow: hidden;
+            text-overflow: ellipsis;
+            white-space: nowrap;
+        }
+
+        .hot-title:hover {
+            color: var(--primary-color);
+        }
+
+        .hot-count {
+            font-size: 0.85rem;
+            color: var(--text-secondary);
+            margin-left: 15px;
+            white-space: nowrap;
+        }
+
+        .loading {
+            text-align: center;
+            padding: 60px 20px;
+            color: var(--text-secondary);
+        }
+
+        .loading-spinner {
+            width: 40px;
+            height: 40px;
+            border: 3px solid var(--border-color);
+            border-top-color: var(--primary-color);
+            border-radius: 50%;
+            animation: spin 1s linear infinite;
+            margin: 0 auto 15px;
+        }
+
+        @keyframes spin {
+            to { transform: rotate(360deg); }
+        }
+
+        .error {
+            text-align: center;
+            padding: 60px 20px;
+            color: var(--hot-color);
+        }
+
+        .no-data {
+            text-align: center;
+            padding: 60px 20px;
+            color: var(--text-secondary);
+        }
+
+        footer {
+            text-align: center;
+            padding: 30px 20px;
+            color: var(--text-secondary);
+            font-size: 0.85rem;
+        }
+
+        footer a {
+            color: var(--primary-color);
+            text-decoration: none;
+        }
+
+        footer a:hover {
+            text-decoration: underline;
+        }
+
+        @media (max-width: 600px) {
+            header h1 {
+                font-size: 1.5rem;
+            }
+
+            .date-picker {
+                flex-direction: column;
+            }
+
+            .stats {
+                gap: 15px;
+            }
+
+            .stat-item {
+                padding: 12px 20px;
+            }
+
+            .hot-item {
+                padding: 12px 15px;
+            }
+
+            .hot-rank {
+                width: 30px;
+                height: 30px;
+                font-size: 0.85rem;
+                margin-right: 12px;
+            }
+
+            .hot-title {
+                font-size: 0.95rem;
+            }
+        }
+    </style>
+</head>
+<body>
+    <header>
+        <h1>微博热搜榜</h1>
+        <p>记录从 2020-12-29 日开始的微博热门搜索</p>
+    </header>
+
+    <div class="container">
+        <div class="date-picker">
+            <input type="date" id="datePicker" min="2020-12-29">
+            <div class="date-nav">
+                <button id="prevDay" title="前一天">&larr; 前一天</button>
+                <button id="today" title="今天">今天</button>
+                <button id="nextDay" title="后一天">后一天 &rarr;</button>
+            </div>
+        </div>
+
+        <div class="stats">
+            <div class="stat-item">
+                <div class="stat-value" id="currentDate">-</div>
+                <div class="stat-label">当前日期</div>
+            </div>
+            <div class="stat-item">
+                <div class="stat-value" id="totalTopics">-</div>
+                <div class="stat-label">热搜话题数</div>
+            </div>
+        </div>
+
+        <div class="hot-list">
+            <div class="hot-list-header">
+                <span>热搜排行</span>
+                <span id="updateTime"></span>
+            </div>
+            <div id="hotContent">
+                <div class="loading">
+                    <div class="loading-spinner"></div>
+                    <p>正在加载数据...</p>
+                </div>
+            </div>
+        </div>
+    </div>
+
+    <footer>
+        <p>数据来源: <a href="https://s.weibo.com/top/summary" target="_blank" rel="noopener">微博热搜</a></p>
+        <p>项目地址: <a href="https://github.com/ARandomGuyHere/weibo-daily-hot-search" target="_blank" rel="noopener">GitHub</a></p>
+    </footer>
+
+    <script>
+        const START_DATE = '2020-12-29';
+        const WEIBO_BASE_URL = 'https://s.weibo.com';
+
+        const datePicker = document.getElementById('datePicker');
+        const hotContent = document.getElementById('hotContent');
+        const currentDateEl = document.getElementById('currentDate');
+        const totalTopicsEl = document.getElementById('totalTopics');
+        const updateTimeEl = document.getElementById('updateTime');
+        const prevDayBtn = document.getElementById('prevDay');
+        const nextDayBtn = document.getElementById('nextDay');
+        const todayBtn = document.getElementById('today');
+
+        function formatDate(date) {
+            const year = date.getFullYear();
+            const month = String(date.getMonth() + 1).padStart(2, '0');
+            const day = String(date.getDate()).padStart(2, '0');
+            return `${year}-${month}-${day}`;
+        }
+
+        function formatCount(count) {
+            if (count >= 10000000) {
+                return (count / 10000000).toFixed(1) + '千万';
+            } else if (count >= 10000) {
+                return (count / 10000).toFixed(1) + '万';
+            }
+            return count.toLocaleString();
+        }
+
+        function formatDisplayDate(dateStr) {
+            const [year, month, day] = dateStr.split('-');
+            return `${month}月${day}日`;
+        }
+
+        function getToday() {
+            return formatDate(new Date());
+        }
+
+        function addDays(dateStr, days) {
+            const date = new Date(dateStr);
+            date.setDate(date.getDate() + days);
+            return formatDate(date);
+        }
+
+        function isValidDate(dateStr) {
+            const date = new Date(dateStr);
+            const start = new Date(START_DATE);
+            const today = new Date(getToday());
+            return date >= start && date <= today;
+        }
+
+        async function loadData(date) {
+            hotContent.innerHTML = `
+                <div class="loading">
+                    <div class="loading-spinner"></div>
+                    <p>正在加载数据...</p>
+                </div>
+            `;
+
+            currentDateEl.textContent = formatDisplayDate(date);
+            totalTopicsEl.textContent = '-';
+            updateTimeEl.textContent = '';
+
+            try {
+                const response = await fetch(`./raw/${date}.json`);
+
+                if (!response.ok) {
+                    throw new Error('数据不存在');
+                }
+
+                const data = await response.json();
+
+                if (!data || data.length === 0) {
+                    hotContent.innerHTML = `
+                        <div class="no-data">
+                            <p>该日期暂无数据</p>
+                        </div>
+                    `;
+                    totalTopicsEl.textContent = '0';
+                    return;
+                }
+
+                totalTopicsEl.textContent = data.length;
+                renderHotList(data);
+
+            } catch (error) {
+                hotContent.innerHTML = `
+                    <div class="error">
+                        <p>加载失败: ${error.message}</p>
+                        <p style="margin-top: 10px; color: var(--text-secondary);">该日期可能没有数据记录</p>
+                    </div>
+                `;
+                totalTopicsEl.textContent = '0';
+            }
+        }
+
+        function renderHotList(data) {
+            const html = data.map((item, index) => {
+                const fullUrl = item.url.startsWith('http') ? item.url : WEIBO_BASE_URL + item.url;
+                return `
+                    <div class="hot-item">
+                        <span class="hot-rank">${index + 1}</span>
+                        <div class="hot-content">
+                            <a href="${fullUrl}" class="hot-title" target="_blank" rel="noopener" title="${item.text}">
+                                ${item.text}
+                            </a>
+                        </div>
+                        <span class="hot-count">${formatCount(item.count)}</span>
+                    </div>
+                `;
+            }).join('');
+
+            hotContent.innerHTML = html;
+        }
+
+        function updateNavButtons(date) {
+            const prevDate = addDays(date, -1);
+            const nextDate = addDays(date, 1);
+
+            prevDayBtn.disabled = !isValidDate(prevDate);
+            nextDayBtn.disabled = !isValidDate(nextDate);
+        }
+
+        function setDate(date) {
+            if (!isValidDate(date)) {
+                date = getToday();
+            }
+
+            datePicker.value = date;
+            loadData(date);
+            updateNavButtons(date);
+
+            // Update URL hash
+            window.location.hash = date;
+        }
+
+        // Event listeners
+        datePicker.addEventListener('change', (e) => {
+            setDate(e.target.value);
+        });
+
+        prevDayBtn.addEventListener('click', () => {
+            const currentDate = datePicker.value || getToday();
+            const prevDate = addDays(currentDate, -1);
+            if (isValidDate(prevDate)) {
+                setDate(prevDate);
+            }
+        });
+
+        nextDayBtn.addEventListener('click', () => {
+            const currentDate = datePicker.value || getToday();
+            const nextDate = addDays(currentDate, 1);
+            if (isValidDate(nextDate)) {
+                setDate(nextDate);
+            }
+        });
+
+        todayBtn.addEventListener('click', () => {
+            setDate(getToday());
+        });
+
+        // Initialize
+        function init() {
+            // Set max date to today
+            datePicker.max = getToday();
+
+            // Check URL hash for date
+            const hashDate = window.location.hash.slice(1);
+            const initialDate = isValidDate(hashDate) ? hashDate : getToday();
+
+            setDate(initialDate);
+        }
+
+        // Handle hash change
+        window.addEventListener('hashchange', () => {
+            const hashDate = window.location.hash.slice(1);
+            if (isValidDate(hashDate) && hashDate !== datePicker.value) {
+                setDate(hashDate);
+            }
+        });
+
+        init();
+    </script>
+</body>
+</html>
