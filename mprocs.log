@@ -1,0 +1,6 @@
+ERROR [lib::mprocs] Got panic. @info:panicked at src/vt100/screen.rs:457:10:
+called `Option::unwrap()` on a `None` value
+@stackTrace:disabled backtrace
+ERROR [lib::mprocs] Got panic. @info:panicked at src/vt100/screen.rs:457:10:
+called `Option::unwrap()` on a `None` value
+@stackTrace:disabled backtrace
