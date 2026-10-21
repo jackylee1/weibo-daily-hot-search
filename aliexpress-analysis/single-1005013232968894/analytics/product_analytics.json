@@ -1,0 +1,134 @@
+{
+  "meta": {
+    "captured_at": "2026-10-21T17:20:25+08:00",
+    "source_url": "https://csp.aliexpress.com/m_apps/sycm/product-analyse?productId=1005013232968894&channelId=2700090",
+    "source_system": "AliExpress 卖家中心 / 生意参谋 / 单品分析 / 单品详情",
+    "collection_method": "page load + time-range switch to 最近30天 on each tab + 4 tab reads; headful Chrome, isolated profile, no API calls",
+    "windows": {
+      "core_metrics": "2026-09-20 ~ 2026-10-19 (30 days), compare 2026-08-21 ~ 2026-09-19",
+      "keywords": "2026-09-20 ~ 2026-10-19 (30 days), compare 2026-08-21 ~ 2026-09-19",
+      "price_band": "2026-09-20 ~ 2026-10-19 (30 days)",
+      "sku": "2026-09-20 ~ 2026-10-19 (30 days)"
+    },
+    "caveats": [
+      "Keyword table lists 49 words totalling 85 impressions; core metrics report 182 search impressions for the same window. The gap is long-tail keywords not shown in the table.",
+      "Price-band bar labels are canvas-rendered; only the store band CVR (4.3%) and the best band (10.5%) were legible from the chart.",
+      "Country table screens 5 rows; listed rows sum to 15 visitors against 17 in the All Countries total.",
+      "Product has a single SKU value (Color: RED 3 pcs).",
+      "No on-page export was used; all figures read from rendered UI."
+    ]
+  },
+  "product": {
+    "product_id": "1005013232968894",
+    "title": "3 Pcs 20 Inch 5 Micron PP Sediment Filter Cartridge, Universal Replacement Melt-Blown Polypropylene Filter for Whole House",
+    "store": "Shop1105821210 Store",
+    "price_cny": "278.13",
+    "price_range": "CNY 278.13 ~ CNY 278.13",
+    "category": "家用电器->家电零部件->水过滤机、水净化机零部件",
+    "first_listed": "2026-09-18",
+    "days_live_at_capture": 33,
+    "sku": "Color: RED 3 pcs (single SKU value)",
+    "pack_size": 3,
+    "size_claim": "20 inch, 5 micron; outer diameter not stated in title",
+    "risk_control_paid_orders_6m": 1
+  },
+  "core_metrics_30d": {
+    "visitors": 17,
+    "new_visitors": 17,
+    "search_impressions": 182,
+    "search_ctr": "2.05%",
+    "add_to_cart_users": 2,
+    "favorites_users": 0,
+    "paid_amount_usd": "36.58",
+    "paid_buyers": 1,
+    "paid_orders": 1,
+    "paid_cvr": "5.88%",
+    "unit_price_usd": "36.58"
+  },
+  "geo": [
+    {
+      "country": "沙特阿拉伯 (SA)",
+      "visitors": 8,
+      "paid_amount": "0.00",
+      "paid_buyers": 0,
+      "add_to_cart": 0,
+      "cvr": "0.00%"
+    },
+    {
+      "country": "澳大利亚 (AU)",
+      "visitors": 4,
+      "paid_amount": "36.58",
+      "paid_buyers": 1,
+      "add_to_cart": 1,
+      "cvr": "25.00%"
+    },
+    {
+      "country": "墨西哥 (MX)",
+      "visitors": 2,
+      "paid_amount": "0.00",
+      "paid_buyers": 0,
+      "add_to_cart": 0,
+      "cvr": "0.00%"
+    },
+    {
+      "country": "新西兰 (NZ)",
+      "visitors": 1,
+      "paid_amount": "0.00",
+      "paid_buyers": 0,
+      "add_to_cart": 0,
+      "cvr": "0.00%"
+    }
+  ],
+  "geo_note": "列出的 4 行合计 15 人，全部国家口径为 17 人，其余 2 人未呈现。",
+  "keyword_summary": {
+    "total_keywords": 49,
+    "total_impressions": 85,
+    "by_relevance": {
+      "relevant_20inch": {
+        "keywords": 22,
+        "impressions": 46,
+        "orders": 0
+      },
+      "relevant_generic": {
+        "keywords": 12,
+        "impressions": 23,
+        "orders": 0
+      },
+      "housing_or_equipment": {
+        "keywords": 4,
+        "impressions": 5,
+        "orders": 0
+      },
+      "unrelated": {
+        "keywords": 4,
+        "impressions": 4,
+        "orders": 0
+      },
+      "size_or_spec_mismatch": {
+        "keywords": 5,
+        "impressions": 5,
+        "orders": 0
+      },
+      "other_system": {
+        "keywords": 2,
+        "impressions": 2,
+        "orders": 0
+      }
+    }
+  },
+  "price_band": {
+    "store_band_cvr": "4.3%",
+    "best_band_cvr": "10.5%",
+    "note": "canvas 图表，其余刻度不可读"
+  },
+  "sku_detail": [
+    {
+      "sku": "Color: RED 3 pcs",
+      "paid_amount_usd": "36.58",
+      "paid_buyers": 1,
+      "paid_units": 1,
+      "add_to_cart_users": 2,
+      "add_to_cart_units": 2
+    }
+  ]
+}

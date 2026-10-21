@@ -1,0 +1,19 @@
+{
+  "captured_at": "2026-10-21T17:20:25+08:00",
+  "source_url": "https://csp.aliexpress.com/m_apps/sycm/product-analyse?productId=1005013232968894&channelId=2700090",
+  "source_system": "AliExpress 卖家中心 / 生意参谋 / 单品分析 / 单品详情",
+  "collection_method": "page load + time-range switch to 最近30天 on each tab + 4 tab reads; headful Chrome, isolated profile, no API calls",
+  "windows": {
+    "core_metrics": "2026-09-20 ~ 2026-10-19 (30 days), compare 2026-08-21 ~ 2026-09-19",
+    "keywords": "2026-09-20 ~ 2026-10-19 (30 days), compare 2026-08-21 ~ 2026-09-19",
+    "price_band": "2026-09-20 ~ 2026-10-19 (30 days)",
+    "sku": "2026-09-20 ~ 2026-10-19 (30 days)"
+  },
+  "caveats": [
+    "Keyword table lists 49 words totalling 85 impressions; core metrics report 182 search impressions for the same window. The gap is long-tail keywords not shown in the table.",
+    "Price-band bar labels are canvas-rendered; only the store band CVR (4.3%) and the best band (10.5%) were legible from the chart.",
+    "Country table screens 5 rows; listed rows sum to 15 visitors against 17 in the All Countries total.",
+    "Product has a single SKU value (Color: RED 3 pcs).",
+    "No on-page export was used; all figures read from rendered UI."
+  ]
+}
