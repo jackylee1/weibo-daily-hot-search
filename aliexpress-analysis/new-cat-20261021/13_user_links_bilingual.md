@@ -6,7 +6,7 @@ Two groups: A = 15-stage shower filter unit (same design, 5 shops); B = inline P
 
 ## A组 花洒过滤器整机（15层级）/ Shower Filter Unit, 15-Stage
 
-![S1主图](images/pdd_shower_s1_main.jpg) ![S2主图](images/pdd_shower_s2_main.jpg)
+![S1主图](images/user-links/a-shower-460383600470/pdd_shower_s1_main.jpg) ![S2主图](images/user-links/a-shower-397042997647/pdd_shower_s2_main.jpg)
 
 中文分析：
 - 同一款设计（电镀外壳整机+白色圆柱滤芯），5家店在卖，价格带拉得很开：¥16.7（好运莱，大促价，带滤芯的变体已售罄，本店已拼452件）→ ¥17.9（韵美星，热销1444件，量最大）→ ¥25.19（译康，总售仅1件）→ ¥39（SOIJOT官方旗舰店，已拼408件）→ ¥65.31（谨辰，券后限量价，本店仅46件，定价脱离市场）。
@@ -24,7 +24,7 @@ EN summary: One design sold by 5 shops; the real transaction band is ¥17–18 p
 
 ## B组 前置小过滤器（PP沉淀芯）/ Inline PP Sediment Pre-Filter
 
-![S6规格图](images/pdd_pre_s6_main.jpg) ![S7主图](images/pdd_pre_s7_main.jpg) ![S8主图](images/pdd_pre_s8_main.jpg)
+![S6规格图](images/user-links/b-prefilter-413754131910/pdd_pre_s6_main.jpg) ![S7主图](images/user-links/b-prefilter-667997312949/pdd_pre_s7_main.jpg) ![S8主图](images/user-links/b-prefilter-895160717529/pdd_pre_s8_main.jpg)
 
 中文分析：
 - 3条是同一类：直插式PP棉沉淀前置小过滤器，用于洗衣机/热水器/智能马桶盖/花洒进水口。S6主图带完整规格（已目验）：PP棉10微米、最大流量3 lpm、最大压力7.5 kgf/cm²、进水压力0.1–0.4 MPa、适用温度0.6–40°C、寿命1–3个月；长146mm、外径47mm、下口4分内螺纹（18.6mm）、上口2分快插杆（6.4mm）— 双接口设计，标签自带英文（SEDIMENT CARTRIDGE），明显是出口型产品。
