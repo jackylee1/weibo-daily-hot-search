@@ -34,3 +34,6 @@
 
 ## 图文分析
 亚马逊直通款主图公式：蓝色/白色圆柱本体斜45°+弯头配件同框+NSF徽章+场景小图（RV/浇花/洗车）。速卖通网滤主图：零件平铺+尺寸标注线。你若做直通款，图按亚马逊公式，但徽章只能用自有证书，没有就留空写 media 成分，不要借 Camco 的 NSF。
+
+## 图片索引（本地文件，详见 images/README.md）
+Camco 40043: images/amz_garden_camco_40043.jpg（已目验）| G1: ae_garden_g1_main.webp | G2: ae_garden_g2_main.webp + alt1/alt2 | G3: ae_garden_g3_main.webp | G4: ae_garden_g4_main.webp + alt1/alt2（主图与G2同图）| G5: ae_garden_g5_main.webp | 拼多多云米: 无原图（访客不加载）

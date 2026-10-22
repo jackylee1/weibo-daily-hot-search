@@ -33,3 +33,9 @@
 
 ## 图文分析
 头部主图公式：滤芯扇形展开+海绵同框+饮水机小图角标适配+“2-4 weeks”更换徽章。详情页必备：浸泡5分钟再用（碳粉冲洗）步骤图、适配清单（按形状：圆/方/椭圆+尺寸）、泵海绵单独特写。差异化：独立密封包装是亚马逊20件套的卖点图，速卖通头部少见 — 你可主打。
+
+## 图片索引（本地文件，详见 images/README.md）
+T1: images/ae_pet_t1_main.webp（已目验，含尺寸标注）+ ae_pet_t1_alt1.webp | T2: ae_pet_t2_main.webp | T3: ae_pet_t3_main.webp | T4: ae_pet_t4_main.webp | T5: ae_pet_t5_main.webp | Catit PIXI: images/amz_pet_catit_pixi.jpg | 拼多多5条: 无原图（访客不加载）
+
+## 拼多多跑道款单独调研（2026-10-22，用户指定4链接，登录后核实）
+详见 08_pdd_pet_runway_filter.md。本地图：images/pdd_pet_r1_gallery_painpoints.jpg、pdd_pet_r2_gallery_sponge.jpg、pdd_pet_r3_gallery_install.jpg、pdd_pet_r4_gallery_dims.jpg（实测尺寸：滤片7.6×4.2cm、海绵外径7.6/内径6.1cm）。

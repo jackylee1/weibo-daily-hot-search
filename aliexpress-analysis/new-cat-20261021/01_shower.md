@@ -40,3 +40,6 @@
 
 ## 图文分析汇总
 头部共性：①剖面分层图是转化核心图；②场景词固定为 hard water / chlorine / hair & skin；③低价聚合页主图塞满徽章，正规品牌页反而留白+真人淋浴场景。你的图：整机+芯同框主图、剖面图重绘（介质顺序按真实产品）、安装3步图、3-6月更换提醒图，共4张起，不抄任何一家文案。
+
+## 图片索引（本地文件，详见 images/README.md）
+A1: images/ae_shower_a1_main.webp + ae_shower_a1_alt1.webp | A2: ae_shower_a2_main.webp | A3: ae_shower_a3_main.webp | A4: ae_shower_a4_main.webp | A5: ae_shower_a5_main.webp | AquaBliss SFC100/220/500: images/amz_shower_aquabliss_sfc100.jpg / sfc220.jpg / sfc500.jpg | 拼多多5条: 无原图（访客不加载），文字图描述见上文与 images/README.md
