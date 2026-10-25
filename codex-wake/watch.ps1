@@ -14,6 +14,11 @@ $StateFile  = Join-Path $PSScriptRoot "last-trigger-id.txt"
 $LockFile   = Join-Path $PSScriptRoot "wake-running.lock"
 $LogFile    = Join-Path $PSScriptRoot "wake-log.txt"
 
+# Codex refuses to run outside a trusted directory, and a scheduled task's
+# default working directory is not trusted. Switch to the user's profile
+# directory (where interactive Codex runs) before invoking Codex.
+Set-Location $env:USERPROFILE
+
 function Log($msg) {
     $line = "$(Get-Date -Format 'yyyy-MM-dd HH:mm:ss') $msg"
     Add-Content -Path $LogFile -Value $line
