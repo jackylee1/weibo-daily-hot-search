@@ -1,0 +1,4 @@
+Trial upload via Muse GitHub connector.
+Product: 988947375010 (round 9, carousel image 1)
+Image downloaded locally: 988947375010_c01.jpg, 54190 bytes, JPEG 800x800.
+This text file tests per-file approval behavior; the JPEG itself cannot be sent through this tool because its content parameter is text-only.
